@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Spark 20C | Dr.fone
-date: 2024-04-01T07:23:11.277Z
-updated: 2024-04-02T07:23:11.277Z
+date: 2024-04-01T13:21:14.958Z
+updated: 2024-04-02T13:21:14.958Z
 tags: 
   - virtual location change
   - pokemon-go

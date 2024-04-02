@@ -1,7 +1,7 @@
 ---
 title: In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Tecno Spark 20C | Dr.fone
-date: 2024-04-01T07:23:11.275Z
-updated: 2024-04-02T07:23:11.275Z
+date: 2024-04-01T13:21:14.952Z
+updated: 2024-04-02T13:21:14.952Z
 tags: 
   - virtual location change
   - pokemon-go

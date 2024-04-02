@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Tecno Spark 20 | Dr.fone
-date: 2024-04-01T07:23:11.459Z
-updated: 2024-04-02T07:23:11.459Z
+date: 2024-04-01T13:21:15.037Z
+updated: 2024-04-02T13:21:15.037Z
 tags: 
   - virtual location change
   - pokemon-go

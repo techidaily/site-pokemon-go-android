@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Tecno Spark 20? | Dr.fone
-date: 2024-04-01T07:23:11.461Z
-updated: 2024-04-02T07:23:11.461Z
+date: 2024-04-01T13:21:15.050Z
+updated: 2024-04-02T13:21:15.050Z
 tags: 
   - virtual location change
   - pokemon-go
