@@ -1,7 +1,7 @@
 ---
 title: How to Come up With the Best Pokemon Team On Tecno Spark 20? | Dr.fone
-date: 2024-04-02T04:22:17.102Z
-updated: 2024-04-03T04:22:17.102Z
+date: 2024-04-02T07:41:37.147Z
+updated: 2024-04-03T07:41:37.147Z
 tags: 
   - virtual location change
   - pokemon-go

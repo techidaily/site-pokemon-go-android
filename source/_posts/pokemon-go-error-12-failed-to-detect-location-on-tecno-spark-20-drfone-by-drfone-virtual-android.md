@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Tecno Spark 20? | Dr.fone
-date: 2024-04-02T04:22:17.140Z
-updated: 2024-04-03T04:22:17.140Z
+date: 2024-04-02T07:41:37.163Z
+updated: 2024-04-03T07:41:37.163Z
 tags: 
   - virtual location change
   - pokemon-go

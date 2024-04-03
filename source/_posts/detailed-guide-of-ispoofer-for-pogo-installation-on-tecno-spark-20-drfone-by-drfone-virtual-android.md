@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Tecno Spark 20 | Dr.fone
-date: 2024-04-02T04:22:17.121Z
-updated: 2024-04-03T04:22:17.121Z
+date: 2024-04-02T07:41:37.154Z
+updated: 2024-04-03T07:41:37.154Z
 tags: 
   - virtual location change
   - pokemon-go

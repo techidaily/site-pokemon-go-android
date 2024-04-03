@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Tecno Spark 20 | Dr.fone
-date: 2024-04-02T04:22:17.135Z
-updated: 2024-04-03T04:22:17.135Z
+date: 2024-04-02T07:41:37.160Z
+updated: 2024-04-03T07:41:37.160Z
 tags: 
   - virtual location change
   - pokemon-go

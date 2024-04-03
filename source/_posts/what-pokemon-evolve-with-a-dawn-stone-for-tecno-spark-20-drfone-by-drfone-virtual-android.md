@@ -1,7 +1,7 @@
 ---
 title: What Pokémon Evolve with A Dawn Stone For Tecno Spark 20? | Dr.fone
-date: 2024-04-02T04:22:17.103Z
-updated: 2024-04-03T04:22:17.103Z
+date: 2024-04-02T07:41:37.148Z
+updated: 2024-04-03T07:41:37.148Z
 tags: 
   - virtual location change
   - pokemon-go

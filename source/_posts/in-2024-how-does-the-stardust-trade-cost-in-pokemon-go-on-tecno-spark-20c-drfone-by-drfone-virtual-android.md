@@ -1,7 +1,7 @@
 ---
 title: In 2024, How does the stardust trade cost In pokemon go On Tecno Spark 20C? | Dr.fone
-date: 2024-04-02T04:22:17.094Z
-updated: 2024-04-03T04:22:17.094Z
+date: 2024-04-02T07:41:37.142Z
+updated: 2024-04-03T07:41:37.142Z
 tags: 
   - virtual location change
   - pokemon-go

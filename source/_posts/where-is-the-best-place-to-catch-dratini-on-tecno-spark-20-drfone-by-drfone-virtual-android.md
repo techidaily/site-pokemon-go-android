@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Tecno Spark 20 | Dr.fone
-date: 2024-04-02T04:22:17.139Z
-updated: 2024-04-03T04:22:17.139Z
+date: 2024-04-02T07:41:37.162Z
+updated: 2024-04-03T07:41:37.162Z
 tags: 
   - virtual location change
   - pokemon-go

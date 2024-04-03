@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Tecno Spark 20 | Dr.fone
-date: 2024-04-02T04:22:17.117Z
-updated: 2024-04-03T04:22:17.117Z
+date: 2024-04-02T07:41:37.149Z
+updated: 2024-04-03T07:41:37.149Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: In 2024, What is the best Pokemon for pokemon pvp ranking On Tecno Spark 20C? | Dr.fone
-date: 2024-04-02T04:22:17.035Z
-updated: 2024-04-03T04:22:17.035Z
+date: 2024-04-02T07:41:37.118Z
+updated: 2024-04-03T07:41:37.118Z
 tags: 
   - virtual location change
   - pokemon-go
