@@ -1317,10 +1317,10 @@ hexo-generator-index@^3.0.0:
   dependencies:
     hexo-pagination "3.0.0"
 
-hexo-generator-sitemap-ex@^3.3.4:
-  version "3.3.4"
-  resolved "https://registry.yarnpkg.com/hexo-generator-sitemap-ex/-/hexo-generator-sitemap-ex-3.3.4.tgz#f9932d00cfec10deadb077943dc968b718e339da"
-  integrity sha512-l7BIBftiG+xBcC0MLrjNvIbEcryGN+EMjadmHCPH33wRFYFxgQLV1UgHczcAxLwgI1BE3ri1EJ0qRRk17w9vrA==
+hexo-generator-sitemap-ex@^3.4.1:
+  version "3.4.1"
+  resolved "https://registry.yarnpkg.com/hexo-generator-sitemap-ex/-/hexo-generator-sitemap-ex-3.4.1.tgz#1fb0a5558a02abcedcb389dcf37e346c805da14e"
+  integrity sha512-9aG4k6Ah7cUgDroa81s1H/f+W+ncxuK/Bkgc7B0G63OesxlooFD0iGsBqolsyJeUtO15m1zawBjrxXCWhA5U0Q==
   dependencies:
     hexo-util "^3.0.1"
     micromatch "^4.0.2"

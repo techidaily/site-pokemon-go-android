@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Tecno Spark 20C | Dr.fone
-date: 2024-04-01T13:21:14.987Z
-updated: 2024-04-02T13:21:14.987Z
+date: 2024-04-02T04:22:17.095Z
+updated: 2024-04-03T04:22:17.095Z
 tags: 
   - virtual location change
   - pokemon-go

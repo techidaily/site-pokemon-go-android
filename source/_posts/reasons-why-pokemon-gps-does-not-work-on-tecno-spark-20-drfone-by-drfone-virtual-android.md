@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Tecno Spark 20? | Dr.fone
-date: 2024-04-01T13:21:15.053Z
-updated: 2024-04-02T13:21:15.053Z
+date: 2024-04-02T04:22:17.142Z
+updated: 2024-04-03T04:22:17.142Z
 tags: 
   - virtual location change
   - pokemon-go

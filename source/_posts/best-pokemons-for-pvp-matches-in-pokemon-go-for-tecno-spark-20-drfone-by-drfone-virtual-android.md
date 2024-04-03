@@ -1,7 +1,7 @@
 ---
 title: Best Pokemons for PVP Matches in Pokemon Go For Tecno Spark 20 | Dr.fone
-date: 2024-04-01T13:21:14.994Z
-updated: 2024-04-02T13:21:14.994Z
+date: 2024-04-02T04:22:17.102Z
+updated: 2024-04-03T04:22:17.102Z
 tags: 
   - virtual location change
   - pokemon-go

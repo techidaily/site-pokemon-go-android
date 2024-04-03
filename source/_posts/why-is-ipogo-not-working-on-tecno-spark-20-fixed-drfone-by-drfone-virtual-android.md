@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Tecno Spark 20? Fixed | Dr.fone
-date: 2024-04-01T13:21:15.000Z
-updated: 2024-04-02T13:21:15.000Z
+date: 2024-04-02T04:22:17.118Z
+updated: 2024-04-03T04:22:17.118Z
 tags: 
   - virtual location change
   - pokemon-go

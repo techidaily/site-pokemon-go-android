@@ -1,7 +1,7 @@
 ---
 title: Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Tecno Spark 20 | Dr.fone
-date: 2024-04-01T13:21:15.026Z
-updated: 2024-04-02T13:21:15.026Z
+date: 2024-04-02T04:22:17.133Z
+updated: 2024-04-03T04:22:17.133Z
 tags: 
   - virtual location change
   - pokemon-go

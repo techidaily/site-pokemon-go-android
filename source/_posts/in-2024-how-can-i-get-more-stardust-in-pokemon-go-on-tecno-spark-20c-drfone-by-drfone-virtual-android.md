@@ -1,7 +1,7 @@
 ---
 title: In 2024, How can I get more stardust in pokemon go On Tecno Spark 20C? | Dr.fone
-date: 2024-04-01T13:21:14.984Z
-updated: 2024-04-02T13:21:14.984Z
+date: 2024-04-02T04:22:17.092Z
+updated: 2024-04-03T04:22:17.092Z
 tags: 
   - virtual location change
   - pokemon-go
