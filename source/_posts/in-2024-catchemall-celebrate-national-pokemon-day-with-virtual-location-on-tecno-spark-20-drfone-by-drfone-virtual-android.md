@@ -1,7 +1,7 @@
 ---
 title: In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.499Z
-updated: 2024-04-08T15:22:29.499Z
+date: 2024-04-09T00:04:40.486Z
+updated: 2024-04-10T00:04:40.486Z
 tags: 
   - virtual location change
   - pokemon-go

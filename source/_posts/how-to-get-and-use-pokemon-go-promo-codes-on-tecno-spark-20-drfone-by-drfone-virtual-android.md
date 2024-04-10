@@ -1,7 +1,7 @@
 ---
 title: How to Get and Use Pokemon Go Promo Codes On Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.454Z
-updated: 2024-04-08T15:22:29.454Z
+date: 2024-04-09T00:04:40.430Z
+updated: 2024-04-10T00:04:40.430Z
 tags: 
   - virtual location change
   - pokemon-go

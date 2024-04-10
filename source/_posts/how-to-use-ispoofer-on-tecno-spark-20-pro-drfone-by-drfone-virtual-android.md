@@ -1,7 +1,7 @@
 ---
 title: How to use iSpoofer on Tecno Spark 20 Pro? | Dr.fone
-date: 2024-04-07T15:22:29.572Z
-updated: 2024-04-08T15:22:29.572Z
+date: 2024-04-09T00:04:40.550Z
+updated: 2024-04-10T00:04:40.550Z
 tags: 
   - virtual location change
   - pokemon-go

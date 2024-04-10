@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Tecno Spark 20? | Dr.fone
-date: 2024-04-07T15:22:29.450Z
-updated: 2024-04-08T15:22:29.450Z
+date: 2024-04-09T00:04:40.426Z
+updated: 2024-04-10T00:04:40.426Z
 tags: 
   - virtual location change
   - pokemon-go

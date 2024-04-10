@@ -1,7 +1,7 @@
 ---
 title: In 2024, Ultimate guide to get the meltan box pokemon go For Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.498Z
-updated: 2024-04-08T15:22:29.498Z
+date: 2024-04-09T00:04:40.484Z
+updated: 2024-04-10T00:04:40.484Z
 tags: 
   - virtual location change
   - pokemon-go

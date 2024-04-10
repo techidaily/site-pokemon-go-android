@@ -1,7 +1,7 @@
 ---
 title: In 2024, List of Pokémon Go Joysticks On Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.526Z
-updated: 2024-04-08T15:22:29.526Z
+date: 2024-04-09T00:04:40.506Z
+updated: 2024-04-10T00:04:40.506Z
 tags: 
   - virtual location change
   - pokemon-go

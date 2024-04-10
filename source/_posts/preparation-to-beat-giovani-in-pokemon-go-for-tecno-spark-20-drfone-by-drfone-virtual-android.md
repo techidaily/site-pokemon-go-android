@@ -1,7 +1,7 @@
 ---
 title: Preparation to Beat Giovani in Pokemon Go For Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.382Z
-updated: 2024-04-08T15:22:29.382Z
+date: 2024-04-09T00:04:40.386Z
+updated: 2024-04-10T00:04:40.386Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to Catch the Regional-Located Pokemon For Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.455Z
-updated: 2024-04-08T15:22:29.455Z
+date: 2024-04-09T00:04:40.431Z
+updated: 2024-04-10T00:04:40.431Z
 tags: 
   - virtual location change
   - pokemon-go

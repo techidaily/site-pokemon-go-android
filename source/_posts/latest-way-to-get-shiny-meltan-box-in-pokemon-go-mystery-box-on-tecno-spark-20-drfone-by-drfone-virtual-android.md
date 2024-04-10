@@ -1,7 +1,7 @@
 ---
 title: Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.466Z
-updated: 2024-04-08T15:22:29.466Z
+date: 2024-04-09T00:04:40.443Z
+updated: 2024-04-10T00:04:40.443Z
 tags: 
   - virtual location change
   - pokemon-go

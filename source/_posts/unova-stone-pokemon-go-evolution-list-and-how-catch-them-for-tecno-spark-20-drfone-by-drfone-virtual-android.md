@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.477Z
-updated: 2024-04-08T15:22:29.477Z
+date: 2024-04-09T00:04:40.464Z
+updated: 2024-04-10T00:04:40.464Z
 tags: 
   - virtual location change
   - pokemon-go

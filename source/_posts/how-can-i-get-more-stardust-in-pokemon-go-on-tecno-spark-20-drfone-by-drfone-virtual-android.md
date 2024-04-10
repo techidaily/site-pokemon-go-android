@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Tecno Spark 20? | Dr.fone
-date: 2024-04-07T15:22:29.471Z
-updated: 2024-04-08T15:22:29.471Z
+date: 2024-04-09T00:04:40.448Z
+updated: 2024-04-10T00:04:40.448Z
 tags: 
   - virtual location change
   - pokemon-go

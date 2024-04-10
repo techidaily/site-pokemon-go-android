@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Tecno Spark 20? | Dr.fone
-date: 2024-04-07T15:22:29.456Z
-updated: 2024-04-08T15:22:29.456Z
+date: 2024-04-09T00:04:40.432Z
+updated: 2024-04-10T00:04:40.432Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How and Where to Find a Shiny Stone Pokémon For Tecno Spark 20? | Dr.fone
-date: 2024-04-07T15:22:29.544Z
-updated: 2024-04-08T15:22:29.544Z
+date: 2024-04-09T00:04:40.524Z
+updated: 2024-04-10T00:04:40.524Z
 tags: 
   - virtual location change
   - pokemon-go

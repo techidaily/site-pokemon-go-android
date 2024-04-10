@@ -1,7 +1,7 @@
 ---
 title: In 2024, Which Pokémon can Evolve with a Moon Stone For Tecno Spark 20C? | Dr.fone
-date: 2024-04-07T15:22:29.381Z
-updated: 2024-04-08T15:22:29.381Z
+date: 2024-04-09T00:04:40.383Z
+updated: 2024-04-10T00:04:40.383Z
 tags: 
   - virtual location change
   - pokemon-go

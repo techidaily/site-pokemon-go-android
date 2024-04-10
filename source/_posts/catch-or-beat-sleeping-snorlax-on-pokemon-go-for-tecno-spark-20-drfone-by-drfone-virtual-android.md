@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark 20 | Dr.fone
-date: 2024-04-07T15:22:29.469Z
-updated: 2024-04-08T15:22:29.470Z
+date: 2024-04-09T00:04:40.446Z
+updated: 2024-04-10T00:04:40.446Z
 tags: 
   - virtual location change
   - pokemon-go

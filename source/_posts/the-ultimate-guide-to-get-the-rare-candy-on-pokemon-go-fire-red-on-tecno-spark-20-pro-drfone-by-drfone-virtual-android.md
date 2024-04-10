@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark 20 Pro | Dr.fone
-date: 2024-04-07T15:22:29.595Z
-updated: 2024-04-08T15:22:29.595Z
+date: 2024-04-09T00:04:40.561Z
+updated: 2024-04-10T00:04:40.561Z
 tags: 
   - virtual location change
   - pokemon-go
