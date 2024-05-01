@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Tecno Camon 30 Pro 5G? | Dr.fone
-date: 2024-04-11T23:36:05.397Z
-updated: 2024-04-12T23:36:05.397Z
+date: 2024-04-30T14:58:19.820Z
+updated: 2024-05-01T14:58:19.820Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -348,3 +348,4 @@ That being said, there aren’t any well-researched and ground rules as to how y
 <li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-zte-axon-40-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on ZTE Axon 40 Lite? | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-itel-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Itel</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Tecno Spark 20 Pro | Dr.fone
-date: 2024-04-11T23:35:14.120Z
-updated: 2024-04-12T23:35:14.120Z
+date: 2024-04-30T14:58:19.164Z
+updated: 2024-05-01T14:58:19.164Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -484,3 +484,4 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-asus-rog-phone-8-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Asus ROG Phone 8 Pro to Any iOS Devices | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-vivo-v27-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Vivo V27 to Latest Samsung | Dr.fone</u></a></li>
 </ul></div>
+

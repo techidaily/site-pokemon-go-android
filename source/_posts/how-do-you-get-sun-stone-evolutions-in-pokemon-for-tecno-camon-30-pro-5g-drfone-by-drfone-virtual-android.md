@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Tecno Camon 30 Pro 5G? | Dr.fone
-date: 2024-04-11T23:35:52.653Z
-updated: 2024-04-12T23:35:52.653Z
+date: 2024-04-30T14:58:19.681Z
+updated: 2024-05-01T14:58:19.681Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -509,3 +509,4 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://techidaily.com/how-to-soft-reset-oneplus-nord-n30-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset OnePlus Nord N30 5G phone? | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-samsung-galaxy-a25-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Samsung Galaxy A25 5G Location | Dr.fone</u></a></li>
 </ul></div>
+

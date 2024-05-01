@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Tecno Camon 30 Pro 5G | Dr.fone
-date: 2024-04-11T23:35:55.607Z
-updated: 2024-04-12T23:35:55.607Z
+date: 2024-04-30T14:58:19.704Z
+updated: 2024-05-01T14:58:19.704Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -457,3 +457,4 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-plus-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Plus with a Mask On | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-vivo-s17t-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Vivo S17t to Your PC/Mac | Dr.fone</u></a></li>
 </ul></div>
+

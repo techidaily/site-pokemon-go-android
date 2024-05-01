@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Pova 6 Pro 5G | Dr.fone
-date: 2024-04-11T23:35:36.638Z
-updated: 2024-04-12T23:35:36.638Z
+date: 2024-04-30T14:58:19.484Z
+updated: 2024-05-01T14:58:19.484Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -382,3 +382,4 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 <li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-realme-note-50-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Realme Note 50 Phones? | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-huawei-p60-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Huawei P60 to New Phone | Dr.fone</u></a></li>
 </ul></div>
+

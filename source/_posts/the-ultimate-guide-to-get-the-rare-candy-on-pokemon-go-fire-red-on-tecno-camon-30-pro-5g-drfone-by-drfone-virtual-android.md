@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Camon 30 Pro 5G | Dr.fone
-date: 2024-04-11T23:35:55.116Z
-updated: 2024-04-12T23:35:55.116Z
+date: 2024-04-30T14:58:19.700Z
+updated: 2024-05-01T14:58:19.700Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,3 +384,4 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Poco Phone with Broken Screen</u></a></li>
 <li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Nokia C12 Pro | Dr.fone</u></a></li>
 </ul></div>
+

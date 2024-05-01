@@ -502,3 +502,4 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+

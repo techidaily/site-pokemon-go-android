@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Camon 30 Pro 5G | Dr.fone
-date: 2024-04-11T23:35:55.446Z
-updated: 2024-04-12T23:35:55.446Z
+date: 2024-04-30T14:58:19.703Z
+updated: 2024-05-01T14:58:19.703Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -426,3 +426,4 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Motorola Moto G13 | Dr.fone</u></a></li>
 <li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-htc-u23-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on HTC U23 Devices</u></a></li>
 </ul></div>
+

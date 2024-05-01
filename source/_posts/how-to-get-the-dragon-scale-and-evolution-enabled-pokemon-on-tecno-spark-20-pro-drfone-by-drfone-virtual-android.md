@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Tecno Spark 20 Pro? | Dr.fone
-date: 2024-04-11T23:35:00.816Z
-updated: 2024-04-12T23:35:00.816Z
+date: 2024-04-30T14:58:19.039Z
+updated: 2024-05-01T14:58:19.039Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -327,3 +327,4 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-nubia-red-magic-9-pro-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Nubia Red Magic 9 Pro Phone Password Using Emergency Call</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-motorola-defy-2-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Motorola Defy 2 to iPad | Dr.fone</u></a></li>
 </ul></div>
+

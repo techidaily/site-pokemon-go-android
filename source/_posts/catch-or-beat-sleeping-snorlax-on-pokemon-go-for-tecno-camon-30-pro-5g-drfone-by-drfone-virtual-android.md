@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Camon 30 Pro 5G | Dr.fone
-date: 2024-04-11T23:35:59.785Z
-updated: 2024-04-12T23:35:59.785Z
+date: 2024-04-30T14:58:19.752Z
+updated: 2024-05-01T14:58:19.752Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -476,3 +476,4 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Oppo K11 5G? | Dr.fone</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-14-pro-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On Apple iPhone 14 Pro | Dr.fone</u></a></li>
 </ul></div>
+
