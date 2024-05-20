@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor Play 8T? | Dr.fone
-date: 2024-04-30T15:07:20.519Z
-updated: 2024-05-01T15:07:20.519Z
+date: 2024-05-19T04:24:21.935Z
+updated: 2024-05-20T04:24:21.935Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -402,4 +402,5 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On OnePlus Nord N30 SE | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-spark-10c-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Spark 10C using Video Repair Utility on Mac?</u></a></li>
 </ul></div>
+
 

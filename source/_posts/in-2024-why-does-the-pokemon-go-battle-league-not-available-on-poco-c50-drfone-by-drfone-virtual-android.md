@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Poco C50 | Dr.fone
-date: 2024-04-30T15:15:09.816Z
-updated: 2024-05-01T15:15:09.816Z
+date: 2024-05-19T04:24:51.156Z
+updated: 2024-05-20T04:24:51.156Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -363,4 +363,5 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-oppo-a38-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Oppo A38</u></a></li>
 <li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

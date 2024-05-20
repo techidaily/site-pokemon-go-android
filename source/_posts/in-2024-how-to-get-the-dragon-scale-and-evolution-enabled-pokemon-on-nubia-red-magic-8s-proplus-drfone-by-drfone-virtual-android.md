@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+? | Dr.fone
-date: 2024-04-30T15:13:02.782Z
-updated: 2024-05-01T15:13:02.782Z
+date: 2024-05-19T04:24:42.910Z
+updated: 2024-05-20T04:24:42.910Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -450,4 +450,5 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://techidaily.com/sign-xls-files-online-for-free-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Sign .xls files Online for Free</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-fix-my-oppo-a78-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Oppo A78 5G Location Is Wrong | Dr.fone</u></a></li>
 </ul></div>
+
 

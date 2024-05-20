@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nubia Z50S Pro | Dr.fone
-date: 2024-04-30T15:13:40.145Z
-updated: 2024-05-01T15:13:40.145Z
+date: 2024-05-19T04:24:45.233Z
+updated: 2024-05-20T04:24:45.233Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -355,4 +355,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/fcpx-audio-editing-essentials-a-step-by-step-guide-to-l-cuts-and-j-cuts/"><u>FCPX Audio Editing Essentials A Step-by-Step Guide to L-Cuts and J-Cuts</u></a></li>
 </ul></div>
+
 

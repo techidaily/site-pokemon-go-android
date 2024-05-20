@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Honor 90 | Dr.fone
-date: 2024-04-30T15:04:02.512Z
-updated: 2024-05-01T15:04:02.512Z
+date: 2024-05-19T04:24:09.754Z
+updated: 2024-05-20T04:24:09.754Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -563,4 +563,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Oppo Find X6 Pro | Dr.fone</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/updated-free-video-wobble-fixers-for-windows-macos-and-more/"><u>Updated Free Video Wobble Fixers for Windows, macOS, and More</u></a></li>
 </ul></div>
+
 

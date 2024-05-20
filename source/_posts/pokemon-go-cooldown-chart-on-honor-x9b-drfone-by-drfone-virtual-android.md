@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor X9b | Dr.fone
-date: 2024-04-30T15:11:57.039Z
-updated: 2024-05-01T15:11:57.039Z
+date: 2024-05-19T04:24:38.837Z
+updated: 2024-05-20T04:24:38.837Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -420,4 +420,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-reno-11-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Reno 11 5G to iPhone XS/11 | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/how-to-soft-reset-honor-magic-vs-2-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Honor Magic Vs 2 phone? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor X50i | Dr.fone
-date: 2024-04-30T15:03:09.789Z
-updated: 2024-05-01T15:03:09.789Z
+date: 2024-05-19T04:24:06.654Z
+updated: 2024-05-20T04:24:06.654Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -499,4 +499,5 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 <li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://ai-video-editing.techidaily.com/art-of-time-manipulation-a-guide-to-after-effects-slow-motion-mastery/"><u>Art of Time Manipulation A Guide to After Effects Slow Motion Mastery</u></a></li>
 </ul></div>
+
 

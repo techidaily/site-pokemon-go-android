@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Google Pixel 8? | Dr.fone
-date: 2024-04-30T14:58:52.068Z
-updated: 2024-05-01T14:58:52.068Z
+date: 2024-05-19T04:23:50.167Z
+updated: 2024-05-20T04:23:50.167Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -426,4 +426,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://techidaily.com/how-to-factory-reset-oppo-a2-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo A2 in 5 Easy Ways | Dr.fone</u></a></li>
 <li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-realme-gt-5-240w-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Realme GT 5 (240W) | Dr.fone</u></a></li>
 </ul></div>
+
 

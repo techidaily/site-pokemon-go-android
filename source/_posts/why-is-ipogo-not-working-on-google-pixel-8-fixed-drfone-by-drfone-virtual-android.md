@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Google Pixel 8? Fixed | Dr.fone
-date: 2024-04-30T14:58:43.454Z
-updated: 2024-05-01T14:58:43.454Z
+date: 2024-05-19T04:23:49.655Z
+updated: 2024-05-20T04:23:49.655Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -390,4 +390,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-y36i-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo Y36i to PC- Detailed Steps | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Meizu 21 | Dr.fone</u></a></li>
 </ul></div>
+
 

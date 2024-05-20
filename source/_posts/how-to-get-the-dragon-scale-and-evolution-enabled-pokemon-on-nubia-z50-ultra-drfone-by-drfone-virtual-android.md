@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Nubia Z50 Ultra? | Dr.fone
-date: 2024-04-30T15:12:23.774Z
-updated: 2024-05-01T15:12:23.774Z
+date: 2024-05-19T04:24:40.602Z
+updated: 2024-05-20T04:24:40.602Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -371,4 +371,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-realme-c33-2023-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Realme C33 2023 Screen | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-14-plus-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock iPhone 14 Plus Without Swiping Up? 6 Ways</u></a></li>
 </ul></div>
+
 

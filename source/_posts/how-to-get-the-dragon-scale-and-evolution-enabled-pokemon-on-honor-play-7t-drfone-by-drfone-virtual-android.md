@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor Play 7T? | Dr.fone
-date: 2024-04-30T15:02:43.462Z
-updated: 2024-05-01T15:02:43.462Z
+date: 2024-05-19T04:24:04.900Z
+updated: 2024-05-20T04:24:04.900Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -391,4 +391,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://fix-guide.techidaily.com/how-to-change-your-tecno-spark-10-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Tecno Spark 10 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-meizu-21-pro-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Meizu 21 Pro? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
+
 

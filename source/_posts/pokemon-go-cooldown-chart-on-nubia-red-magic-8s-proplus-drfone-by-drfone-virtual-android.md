@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Nubia Red Magic 8S Pro+ | Dr.fone
-date: 2024-04-30T15:12:49.616Z
-updated: 2024-05-01T15:12:49.616Z
+date: 2024-05-19T04:24:42.115Z
+updated: 2024-05-20T04:24:42.115Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -396,4 +396,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-apple-iphone-se-2020-data-to-iphone-12-a-complete-guide-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Apple iPhone SE (2020) Data to iPhone 12 A Complete Guide | Dr.fone</u></a></li>
 <li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Realme GT 5 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Poco C65? | Dr.fone
-date: 2024-04-30T15:18:20.314Z
-updated: 2024-05-01T15:18:20.314Z
+date: 2024-05-19T04:25:03.263Z
+updated: 2024-05-20T04:25:03.263Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -452,4 +452,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-vivo-y56-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Vivo Y56 5G | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-xiaomi-redmi-note-12-pro-4g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Xiaomi Redmi Note 12 Pro 4G Phone? | Dr.fone</u></a></li>
 </ul></div>
+
 

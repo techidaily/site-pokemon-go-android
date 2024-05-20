@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Google Pixel 8? | Dr.fone
-date: 2024-04-30T14:58:50.369Z
-updated: 2024-05-01T14:58:50.369Z
+date: 2024-05-19T04:23:50.055Z
+updated: 2024-05-20T04:23:50.055Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,4 +384,5 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-add-wow-factor-to-your-videos-top-free-special-effects-apps/"><u>2024 Approved Add Wow Factor to Your Videos Top Free Special Effects Apps</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-xiaomi-redmi-note-12t-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Xiaomi Redmi Note 12T Pro to iPad | Dr.fone</u></a></li>
 </ul></div>
+
 

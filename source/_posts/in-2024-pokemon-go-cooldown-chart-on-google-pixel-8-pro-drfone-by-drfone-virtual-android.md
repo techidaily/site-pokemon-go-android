@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Google Pixel 8 Pro | Dr.fone
-date: 2024-04-30T14:59:25.368Z
-updated: 2024-05-01T14:59:25.368Z
+date: 2024-05-19T04:23:52.436Z
+updated: 2024-05-20T04:23:52.436Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -467,4 +467,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://techidaily.com/your-complete-guide-to-reset-samsung-galaxy-s23-ultra-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-apple-iphone-15-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On Apple iPhone 15?</u></a></li>
 </ul></div>
+
 

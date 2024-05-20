@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Poco C51? | Dr.fone
-date: 2024-04-30T15:16:37.001Z
-updated: 2024-05-01T15:16:37.001Z
+date: 2024-05-19T04:24:56.688Z
+updated: 2024-05-20T04:24:56.688Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -456,4 +456,5 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://ai-vdieo-software.techidaily.com/adjust-video-playback-speed-in-camtasia-for-2024/"><u>Adjust Video Playback Speed in Camtasia for 2024</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Itel P55+? | Dr.fone</u></a></li>
 </ul></div>
+
 

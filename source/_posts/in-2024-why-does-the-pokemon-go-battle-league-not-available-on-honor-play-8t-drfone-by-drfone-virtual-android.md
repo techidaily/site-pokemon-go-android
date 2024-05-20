@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Honor Play 8T | Dr.fone
-date: 2024-04-30T15:07:20.085Z
-updated: 2024-05-01T15:07:20.085Z
+date: 2024-05-19T04:24:21.912Z
+updated: 2024-05-20T04:24:21.912Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -371,4 +371,5 @@ There you go! By following these tips, you would be able to come up with a winni
 <li><a href="https://techidaily.com/how-to-soft-reset-oneplus-nord-3-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset OnePlus Nord 3 5G phone? | Dr.fone</u></a></li>
 <li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-a54-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy A54 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

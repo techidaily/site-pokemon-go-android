@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Poco X5 Pro | Dr.fone
-date: 2024-04-30T15:15:22.690Z
-updated: 2024-05-01T15:15:22.690Z
+date: 2024-05-19T04:24:51.923Z
+updated: 2024-05-20T04:24:51.923Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -386,4 +386,5 @@ There you go! I’m sure that after reading this post, you would be able to know
 <li><a href="https://android-frp.techidaily.com/oneplus-nord-n30-se-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>OnePlus Nord N30 SE ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on Apple iPhone 14 Plus</u></a></li>
 </ul></div>
+
 

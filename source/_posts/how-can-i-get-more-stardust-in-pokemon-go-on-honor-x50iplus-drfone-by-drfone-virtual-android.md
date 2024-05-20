@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Honor X50i+? | Dr.fone
-date: 2024-04-30T15:07:38.771Z
-updated: 2024-05-01T15:07:38.771Z
+date: 2024-05-19T04:24:23.005Z
+updated: 2024-05-20T04:24:23.005Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -416,4 +416,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://techidaily.com/is-your-honor-100-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Honor 100 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nubia-red-magic-9-proplus-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nubia Red Magic 9 Pro+</u></a></li>
 </ul></div>
+
 

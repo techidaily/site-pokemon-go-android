@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Poco C65? | Dr.fone
-date: 2024-04-30T15:18:27.347Z
-updated: 2024-05-01T15:18:27.347Z
+date: 2024-05-19T04:25:03.702Z
+updated: 2024-05-20T04:25:03.702Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -708,4 +708,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Itel P40+ | Dr.fone</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-xiaomi-redmi-note-12t-pro-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Xiaomi Redmi Note 12T Pro</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco M6 Pro 5G | Dr.fone
-date: 2024-04-30T15:18:00.040Z
-updated: 2024-05-01T15:18:00.040Z
+date: 2024-05-19T04:25:01.955Z
+updated: 2024-05-20T04:25:01.955Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -454,4 +454,5 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-8-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On Apple iPhone 8</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-7-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 7 to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
 </ul></div>
+
 

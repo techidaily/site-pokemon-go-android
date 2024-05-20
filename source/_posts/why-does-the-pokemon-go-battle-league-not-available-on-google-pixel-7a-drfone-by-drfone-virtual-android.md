@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Google Pixel 7a | Dr.fone
-date: 2024-04-30T14:58:19.996Z
-updated: 2024-05-01T14:58:19.996Z
+date: 2024-05-19T04:23:46.664Z
+updated: 2024-05-20T04:23:46.664Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -398,4 +398,5 @@ Dr. Fone is perhaps the best and the most used program for the Pokémon trainer 
 <li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-itel-p40plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Itel P40+ | Dr.fone</u></a></li>
 </ul></div>
+
 

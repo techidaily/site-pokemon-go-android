@@ -1,7 +1,7 @@
 ---
 title: In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Poco C50 | Dr.fone
-date: 2024-04-30T15:15:15.336Z
-updated: 2024-05-01T15:15:15.336Z
+date: 2024-05-19T04:24:51.513Z
+updated: 2024-05-20T04:24:51.513Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -456,4 +456,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://howto.techidaily.com/bricked-your-vivo-y78plus-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Vivo Y78+? Heres A Full Solution | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-infinix-zero-5g-2023-turbo-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
 </ul></div>
+
 

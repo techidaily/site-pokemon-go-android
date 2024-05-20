@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Poco C55? | Dr.fone
-date: 2024-04-30T15:15:49.674Z
-updated: 2024-05-01T15:15:49.674Z
+date: 2024-05-19T04:24:53.587Z
+updated: 2024-05-20T04:24:53.587Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -423,4 +423,5 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-6s-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 6s Without Losing Anything? | Dr.fone</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-vivo-y77t-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Vivo Y77t Like A Pro 5 Easy Ways</u></a></li>
 </ul></div>
+
 

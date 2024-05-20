@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 90 Pro | Dr.fone
-date: 2024-04-30T15:03:56.023Z
-updated: 2024-05-01T15:03:56.023Z
+date: 2024-05-19T04:24:09.385Z
+updated: 2024-05-20T04:24:09.385Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -475,4 +475,5 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-7-plus-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 7 Plus Unavailable Issue With Ease</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-nubia-red-magic-8s-pro-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Nubia Red Magic 8S Pro</u></a></li>
 </ul></div>
+
 

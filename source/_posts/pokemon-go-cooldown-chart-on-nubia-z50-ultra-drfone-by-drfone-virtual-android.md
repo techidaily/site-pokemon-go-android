@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Nubia Z50 Ultra | Dr.fone
-date: 2024-04-30T15:12:23.562Z
-updated: 2024-05-01T15:12:23.562Z
+date: 2024-05-19T04:24:40.590Z
+updated: 2024-05-20T04:24:40.590Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -455,4 +455,5 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 <li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-samsung-galaxy-a05s-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Samsung Galaxy A05s</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/lock-your-samsung-galaxy-a23-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Samsung Galaxy A23 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
 </ul></div>
+
 

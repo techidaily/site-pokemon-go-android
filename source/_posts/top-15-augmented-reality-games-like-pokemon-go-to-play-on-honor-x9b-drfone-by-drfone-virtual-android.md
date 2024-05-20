@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X9b | Dr.fone
-date: 2024-04-30T15:12:02.987Z
-updated: 2024-05-01T15:12:02.987Z
+date: 2024-05-19T04:24:39.183Z
+updated: 2024-05-20T04:24:39.183Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -444,4 +444,5 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-poco-x5-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Poco X5 to New Phone | Dr.fone</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-xiaomi-redmi-a2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi Redmi A2 | Dr.fone</u></a></li>
 </ul></div>
+
 

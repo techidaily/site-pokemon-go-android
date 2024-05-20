@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Honor 100 | Dr.fone
-date: 2024-04-30T15:08:12.243Z
-updated: 2024-05-01T15:08:12.243Z
+date: 2024-05-19T04:24:25.059Z
+updated: 2024-05-20T04:24:25.059Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,4 +445,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://howto.techidaily.com/android-screen-stuck-general-vivo-v30-lite-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Vivo V30 Lite 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-k11x-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Oppo K11x Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
 </ul></div>
+
 

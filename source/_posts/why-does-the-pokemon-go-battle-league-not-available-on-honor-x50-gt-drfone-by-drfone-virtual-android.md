@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Honor X50 GT | Dr.fone
-date: 2024-04-30T15:10:38.161Z
-updated: 2024-05-01T15:10:38.161Z
+date: 2024-05-19T04:24:33.881Z
+updated: 2024-05-20T04:24:33.881Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -386,4 +386,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-apple-iphone-xs-max-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on Apple iPhone XS Max Safe and Legal</u></a></li>
 <li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-itel-a05s-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Itel A05s</u></a></li>
 </ul></div>
+
 

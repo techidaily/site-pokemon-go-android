@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Honor X8b | Dr.fone
-date: 2024-04-30T15:09:44.792Z
-updated: 2024-05-01T15:09:44.792Z
+date: 2024-05-19T04:24:30.781Z
+updated: 2024-05-20T04:24:30.781Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -493,4 +493,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://review-topics.techidaily.com/new-iphone-14-plus-restore-from-icloud-stuck-on-time-remaining-estimating-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>New iPhone 14 Plus Restore from iCloud Stuck on Time Remaining Estimating | Stellar</u></a></li>
 <li><a href="https://change-location.techidaily.com/honor-90-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor 90 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
 </ul></div>
+
 

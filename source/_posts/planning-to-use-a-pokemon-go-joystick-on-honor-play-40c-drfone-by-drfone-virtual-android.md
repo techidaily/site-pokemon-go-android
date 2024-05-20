@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Honor Play 40C? | Dr.fone
-date: 2024-04-30T15:05:41.706Z
-updated: 2024-05-01T15:05:41.706Z
+date: 2024-05-19T04:24:16.031Z
+updated: 2024-05-20T04:24:16.031Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -417,4 +417,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://unlock-android.techidaily.com/top-12-prominent-infinix-smart-8-plus-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Infinix Smart 8 Plus Fingerprint Not Working Solutions</u></a></li>
 <li><a href="https://howto.techidaily.com/authentication-error-occurred-on-lava-agni-2-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Lava Agni 2 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
 </ul></div>
+
 

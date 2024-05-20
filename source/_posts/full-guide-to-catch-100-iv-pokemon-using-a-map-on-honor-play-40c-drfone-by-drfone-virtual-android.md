@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Honor Play 40C | Dr.fone
-date: 2024-04-30T15:05:47.158Z
-updated: 2024-05-01T15:05:47.158Z
+date: 2024-05-19T04:24:16.307Z
+updated: 2024-05-20T04:24:16.307Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -446,4 +446,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://blog-min.techidaily.com/how-to-remove-honor-magic5-ultimate-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Honor Magic5 Ultimate PIN</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-infinix-note-30-vip-racing-edition-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Infinix Note 30 VIP Racing Edition Safely | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Nubia Red Magic 9 Pro? | Dr.fone
-date: 2024-04-30T15:14:08.803Z
-updated: 2024-05-01T15:14:08.803Z
+date: 2024-05-19T04:24:47.131Z
+updated: 2024-05-20T04:24:47.131Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -503,4 +503,5 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-on-apple-iphone-14-pro-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share on Apple iPhone 14 Pro? | Dr.fone</u></a></li>
 <li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-honor-100-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Honor 100 | Dr.fone</u></a></li>
 </ul></div>
+
 

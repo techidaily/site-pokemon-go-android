@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor X50i+? | Dr.fone
-date: 2024-04-30T15:07:36.955Z
-updated: 2024-05-01T15:07:36.955Z
+date: 2024-05-19T04:24:22.882Z
+updated: 2024-05-20T04:24:22.882Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -512,4 +512,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-cut-edit-repeat-top-10-free-ubuntu-video-editors/"><u>Updated 2024 Approved Cut, Edit, Repeat Top 10 Free Ubuntu Video Editors</u></a></li>
 <li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Samsung Galaxy S23 | Dr.fone</u></a></li>
 </ul></div>
+
 

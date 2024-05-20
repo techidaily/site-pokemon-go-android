@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition? | Dr.fone
-date: 2024-04-30T15:00:13.007Z
-updated: 2024-05-01T15:00:13.007Z
+date: 2024-05-19T04:23:55.455Z
+updated: 2024-05-20T04:23:55.455Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -426,4 +426,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-nokia-105-classic-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Nokia 105 Classic | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-itel-a05s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Itel A05s | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco C65? | Dr.fone
-date: 2024-04-30T15:18:38.108Z
-updated: 2024-05-01T15:18:38.108Z
+date: 2024-05-19T04:25:04.449Z
+updated: 2024-05-20T04:25:04.449Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -368,4 +368,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-vivo-t2x-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Vivo T2x 5G Phone Now with These Tips</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Lava Agni 2 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Nubia Z50S Pro? | Dr.fone
-date: 2024-04-30T15:13:55.401Z
-updated: 2024-05-01T15:13:55.401Z
+date: 2024-05-19T04:24:46.278Z
+updated: 2024-05-20T04:24:46.278Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -323,4 +323,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-oneplus-11-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your OnePlus 11 5G Location Settings | Dr.fone</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Infinix Zero 5G 2023 Turbo?</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 8S Pro? | Dr.fone
-date: 2024-04-30T15:13:10.943Z
-updated: 2024-05-01T15:13:10.943Z
+date: 2024-05-19T04:24:43.450Z
+updated: 2024-05-20T04:24:43.450Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -457,4 +457,5 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://easy-unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-oppo-reno-10-proplus-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Oppo Reno 10 Pro+ 5G</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>How to Use Life360 on Windows PC For Apple iPhone 6s Plus? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Honor 90 Pro? | Dr.fone
-date: 2024-04-30T15:03:31.557Z
-updated: 2024-05-01T15:03:31.557Z
+date: 2024-05-19T04:24:07.962Z
+updated: 2024-05-20T04:24:07.962Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -465,4 +465,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-y78-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo Y78 5G to Protect Your Individual Information</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-iphone-14-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled iPhone 14 Without iTunes in 5 Ways | Dr.fone</u></a></li>
 </ul></div>
+
 

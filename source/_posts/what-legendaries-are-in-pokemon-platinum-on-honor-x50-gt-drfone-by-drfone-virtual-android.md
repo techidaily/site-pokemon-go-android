@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor X50 GT? | Dr.fone
-date: 2024-04-30T15:10:42.601Z
-updated: 2024-05-01T15:10:42.601Z
+date: 2024-05-19T04:24:34.093Z
+updated: 2024-05-20T04:24:34.093Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -438,4 +438,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://ai-vdieo-software.techidaily.com/in-2024-discover-the-best-mac-video-editors-similar-to-windows-movie-maker/"><u>In 2024, Discover the Best Mac Video Editors Similar to Windows Movie Maker</u></a></li>
 <li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 11 | Dr.fone</u></a></li>
 </ul></div>
+
 

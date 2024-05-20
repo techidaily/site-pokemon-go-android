@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Nubia Red Magic 8S Pro+? | Dr.fone
-date: 2024-04-30T15:12:51.222Z
-updated: 2024-05-01T15:12:51.222Z
+date: 2024-05-19T04:24:42.188Z
+updated: 2024-05-20T04:24:42.188Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -501,4 +501,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-xr-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone XR Without Losing Anything? | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy F15 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

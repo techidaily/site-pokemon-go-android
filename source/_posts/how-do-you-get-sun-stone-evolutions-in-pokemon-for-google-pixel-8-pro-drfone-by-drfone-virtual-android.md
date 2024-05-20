@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Google Pixel 8 Pro? | Dr.fone
-date: 2024-04-30T14:59:07.566Z
-updated: 2024-05-01T14:59:07.566Z
+date: 2024-05-19T04:23:51.406Z
+updated: 2024-05-20T04:23:51.406Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -452,4 +452,5 @@ Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A goo
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-x50-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor X50 to Other Android Devices Devices? | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-iphone-13-mini-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From iPhone 13 mini</u></a></li>
 </ul></div>
+
 

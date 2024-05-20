@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco X5 Pro | Dr.fone
-date: 2024-04-30T15:15:23.100Z
-updated: 2024-05-01T15:15:23.100Z
+date: 2024-05-19T04:24:51.970Z
+updated: 2024-05-20T04:24:51.970Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -422,4 +422,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://ios-unlock.techidaily.com/unlock-iphone-14-plus-without-passcode-easily-by-drfone-ios/"><u>Unlock iPhone 14 Plus Without Passcode Easily</u></a></li>
 <li><a href="https://techidaily.com/best-fixes-for-motorola-moto-g73-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Motorola Moto G73 5G Hard Reset | Dr.fone</u></a></li>
 </ul></div>
+
 

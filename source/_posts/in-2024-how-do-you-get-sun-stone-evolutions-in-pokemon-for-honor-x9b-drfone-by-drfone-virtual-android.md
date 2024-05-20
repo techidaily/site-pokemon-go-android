@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor X9b? | Dr.fone
-date: 2024-04-30T15:12:05.656Z
-updated: 2024-05-01T15:12:05.656Z
+date: 2024-05-19T04:24:39.304Z
+updated: 2024-05-20T04:24:39.304Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -455,4 +455,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-infinix-note-30-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Infinix Note 30 Devices | Dr.fone</u></a></li>
 <li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Tecno Phantom V Flip | Dr.fone</u></a></li>
 </ul></div>
+
 

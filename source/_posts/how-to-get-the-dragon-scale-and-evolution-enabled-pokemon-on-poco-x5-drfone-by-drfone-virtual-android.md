@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Poco X5? | Dr.fone
-date: 2024-04-30T15:16:15.622Z
-updated: 2024-05-01T15:16:15.622Z
+date: 2024-05-19T04:24:55.147Z
+updated: 2024-05-20T04:24:55.147Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -396,4 +396,5 @@ There you go! I’m sure that after reading this post, you would be able to know
 <li><a href="https://sim-unlock.techidaily.com/sim-unlock-motorola-edge-40-neo-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Motorola Edge 40 Neo Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-free-video-splitter-software-our-top-picks-of-the-year/"><u>Updated In 2024, Free Video Splitter Software Our Top Picks of the Year</u></a></li>
 </ul></div>
+
 

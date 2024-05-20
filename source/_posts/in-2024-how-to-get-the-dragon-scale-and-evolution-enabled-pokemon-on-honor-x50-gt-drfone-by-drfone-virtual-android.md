@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor X50 GT? | Dr.fone
-date: 2024-04-30T15:10:52.287Z
-updated: 2024-05-01T15:10:52.287Z
+date: 2024-05-19T04:24:34.680Z
+updated: 2024-05-20T04:24:34.680Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -357,4 +357,5 @@ There you go! By following these tips, you would be able to come up with a winni
 <li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-zte-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass ZTE FRP</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/samsung-galaxy-f15-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy F15 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
 </ul></div>
+
 

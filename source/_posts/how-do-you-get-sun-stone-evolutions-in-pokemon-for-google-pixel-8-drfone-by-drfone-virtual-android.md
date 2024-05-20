@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Google Pixel 8? | Dr.fone
-date: 2024-04-30T14:58:42.835Z
-updated: 2024-05-01T14:58:42.835Z
+date: 2024-05-19T04:23:49.622Z
+updated: 2024-05-20T04:23:49.622Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -485,4 +485,5 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-xs-max-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone XS Max? Complete Guide | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On HTC U23 Pro? | Dr.fone</u></a></li>
 </ul></div>
+
 

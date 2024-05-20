@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Nubia Z50S Pro? | Dr.fone
-date: 2024-04-30T15:13:41.515Z
-updated: 2024-05-01T15:13:41.515Z
+date: 2024-05-19T04:24:45.479Z
+updated: 2024-05-20T04:24:45.479Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -321,4 +321,5 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 <li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-on-apple-iphone-15-pro-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working On Apple iPhone 15 Pro</u></a></li>
 <li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Realme 10T 5G? | Dr.fone</u></a></li>
 </ul></div>
+
 

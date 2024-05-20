@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor X50 GT | Dr.fone
-date: 2024-04-30T15:10:38.372Z
-updated: 2024-05-01T15:10:38.372Z
+date: 2024-05-19T04:24:33.902Z
+updated: 2024-05-20T04:24:33.902Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -485,4 +485,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-xiaomi-redmi-note-12r-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Xiaomi Redmi Note 12R Phones? | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-vivo-v27-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Vivo V27 Activity | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Google Pixel 8 | Dr.fone
-date: 2024-04-30T14:58:45.942Z
-updated: 2024-05-01T14:58:45.942Z
+date: 2024-05-19T04:23:49.805Z
+updated: 2024-05-20T04:23:49.805Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -417,4 +417,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-gionee-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Gionee FRP?</u></a></li>
 <li><a href="https://android-frp.techidaily.com/how-can-we-bypass-oppo-a59-5g-frp-by-drfone-android/"><u>How Can We Bypass Oppo A59 5G FRP?</u></a></li>
 </ul></div>
+
 

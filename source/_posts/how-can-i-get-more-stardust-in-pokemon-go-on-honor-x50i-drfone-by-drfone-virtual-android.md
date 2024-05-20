@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Honor X50i? | Dr.fone
-date: 2024-04-30T15:03:15.726Z
-updated: 2024-05-01T15:03:15.726Z
+date: 2024-05-19T04:24:06.984Z
+updated: 2024-05-20T04:24:06.984Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -410,4 +410,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-vivo-y56-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Vivo Y56 5G Phone and Remove Locked Screen</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-pause-life360-location-sharing-for-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Xiaomi Redmi K70E | Dr.fone</u></a></li>
 </ul></div>
+
 

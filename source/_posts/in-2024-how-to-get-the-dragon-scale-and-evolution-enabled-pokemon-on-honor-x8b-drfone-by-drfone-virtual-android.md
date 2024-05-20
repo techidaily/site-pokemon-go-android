@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor X8b? | Dr.fone
-date: 2024-04-30T15:09:58.119Z
-updated: 2024-05-01T15:09:58.119Z
+date: 2024-05-19T04:24:31.581Z
+updated: 2024-05-20T04:24:31.581Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -347,4 +347,5 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-honor-magic-5-pro-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Honor Magic 5 Pro | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-nokia-g42-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Nokia G42 5G to Enjoy More Fun | Dr.fone</u></a></li>
 </ul></div>
+
 

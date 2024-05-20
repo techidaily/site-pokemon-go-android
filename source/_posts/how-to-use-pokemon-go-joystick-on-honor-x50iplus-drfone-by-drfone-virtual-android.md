@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Honor X50i+? | Dr.fone
-date: 2024-04-30T15:07:34.771Z
-updated: 2024-05-01T15:07:34.771Z
+date: 2024-05-19T04:24:22.774Z
+updated: 2024-05-20T04:24:22.774Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -341,4 +341,5 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-pro-max-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Pro Max To Android devices? | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-samsung-galaxy-f34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

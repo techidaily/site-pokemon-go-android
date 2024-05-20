@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Honor 100 | Dr.fone
-date: 2024-04-30T15:07:59.493Z
-updated: 2024-05-01T15:07:59.493Z
+date: 2024-05-19T04:24:24.265Z
+updated: 2024-05-20T04:24:24.265Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -383,4 +383,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://android-frp.techidaily.com/easy-guide-to-motorola-g54-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Motorola G54 5G FRP Bypass With Best Methods</u></a></li>
 <li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-m14-4g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy M14 4G | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco C50? | Dr.fone
-date: 2024-04-30T15:15:10.233Z
-updated: 2024-05-01T15:15:10.233Z
+date: 2024-05-19T04:24:51.188Z
+updated: 2024-05-20T04:24:51.188Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -411,4 +411,5 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 <li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Use Special Features - Virtual Location On Apple iPhone XS? | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/unlocking-apple-iphone-14-pro-max-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>Unlocking Apple iPhone 14 Pro Max Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
 </ul></div>
+
 

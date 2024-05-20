@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+? | Dr.fone
-date: 2024-04-30T15:12:49.829Z
-updated: 2024-05-01T15:12:49.829Z
+date: 2024-05-19T04:24:42.127Z
+updated: 2024-05-20T04:24:42.127Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,4 +384,5 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://techidaily.com/three-solutions-to-hard-reset-lava-blaze-2-pro-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Lava Blaze 2 Pro? | Dr.fone</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/new-combine-wmv-videos-without-spending-a-dime-top-5-free-tools/"><u>New Combine WMV Videos Without Spending a Dime Top 5 Free Tools</u></a></li>
 </ul></div>
+
 

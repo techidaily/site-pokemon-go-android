@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Play 8T | Dr.fone
-date: 2024-04-30T15:07:13.034Z
-updated: 2024-05-01T15:07:13.034Z
+date: 2024-05-19T04:24:21.486Z
+updated: 2024-05-20T04:24:21.486Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -480,4 +480,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-vivo-y100i-by-drfone-android/"><u>In 2024, How to Bypass FRP from Vivo Y100i?</u></a></li>
 <li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

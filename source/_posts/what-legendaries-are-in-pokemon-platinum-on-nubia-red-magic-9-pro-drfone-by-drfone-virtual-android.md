@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Nubia Red Magic 9 Pro? | Dr.fone
-date: 2024-04-30T15:14:10.678Z
-updated: 2024-05-01T15:14:10.678Z
+date: 2024-05-19T04:24:47.239Z
+updated: 2024-05-20T04:24:47.239Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -326,4 +326,5 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-infinix-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Infinix</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-realme-c67-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Realme C67 5G to iPhone | Dr.fone</u></a></li>
 </ul></div>
+
 

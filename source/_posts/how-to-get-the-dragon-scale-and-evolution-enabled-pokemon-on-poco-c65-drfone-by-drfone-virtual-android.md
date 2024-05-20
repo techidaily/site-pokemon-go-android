@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Poco C65? | Dr.fone
-date: 2024-04-30T15:18:26.047Z
-updated: 2024-05-01T15:18:26.047Z
+date: 2024-05-19T04:25:03.614Z
+updated: 2024-05-20T04:25:03.614Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -378,4 +378,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Oppo A18 | Dr.fone</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/updated-the-ultimate-guide-to-youtube-influencer-marketing-for-2024/"><u>Updated The Ultimate Guide to YouTube Influencer Marketing for 2024</u></a></li>
 </ul></div>
+
 

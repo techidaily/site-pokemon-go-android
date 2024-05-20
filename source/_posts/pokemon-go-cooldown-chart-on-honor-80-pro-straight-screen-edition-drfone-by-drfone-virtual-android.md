@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor 80 Pro Straight Screen Edition | Dr.fone
-date: 2024-04-30T15:00:04.940Z
-updated: 2024-05-01T15:00:04.940Z
+date: 2024-05-19T04:23:54.822Z
+updated: 2024-05-20T04:23:54.822Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -436,4 +436,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-oneplus-11r-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock OnePlus 11R Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
 <li><a href="https://ios-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-apple-iphone-12-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 6 Apps/Services to Trace Any Apple iPhone 12 Location By Mobile Number | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: iPogo will be the new iSpoofer On Google Pixel Fold? | Dr.fone
-date: 2024-04-30T14:58:24.866Z
-updated: 2024-05-01T14:58:24.866Z
+date: 2024-05-19T04:23:48.361Z
+updated: 2024-05-20T04:23:48.361Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -464,4 +464,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://howto.techidaily.com/what-to-do-if-your-oppo-find-n3-flip-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Oppo Find N3 Flip Auto Does Not Work | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-xiaomi-redmi-k70-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

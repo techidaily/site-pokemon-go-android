@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Nubia Red Magic 8S Pro+ | Dr.fone
-date: 2024-04-30T15:12:48.988Z
-updated: 2024-05-01T15:12:48.988Z
+date: 2024-05-19T04:24:42.077Z
+updated: 2024-05-20T04:24:42.077Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -429,4 +429,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-vivo-v29-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Vivo V29 Phone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-vivo-y36i-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Vivo Y36i to Latest Samsung | Dr.fone</u></a></li>
 </ul></div>
+
 

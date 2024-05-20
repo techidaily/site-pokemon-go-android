@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Honor X50i? | Dr.fone
-date: 2024-04-30T15:03:10.452Z
-updated: 2024-05-01T15:03:10.452Z
+date: 2024-05-19T04:24:06.690Z
+updated: 2024-05-20T04:24:06.690Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -466,4 +466,5 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 <li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-on-apple-iphone-13-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock On Apple iPhone 13 Online</u></a></li>
 <li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Nokia XR21? | Dr.fone</u></a></li>
 </ul></div>
+
 

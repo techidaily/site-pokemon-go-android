@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Google Pixel 8 Pro | Dr.fone
-date: 2024-04-30T14:59:31.651Z
-updated: 2024-05-01T14:59:31.651Z
+date: 2024-05-19T04:23:52.838Z
+updated: 2024-05-20T04:23:52.838Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -520,4 +520,5 @@ That being said, there aren’t any well-researched and ground rules as to how y
 <li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-honor-x50-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Honor X50 GT | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-samsung-galaxy-a15-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Samsung Galaxy A15 5G PC | Dr.fone</u></a></li>
 </ul></div>
+
 

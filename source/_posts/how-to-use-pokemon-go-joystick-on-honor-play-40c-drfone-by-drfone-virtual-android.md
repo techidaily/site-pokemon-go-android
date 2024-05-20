@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Honor Play 40C? | Dr.fone
-date: 2024-04-30T15:05:49.594Z
-updated: 2024-05-01T15:05:49.594Z
+date: 2024-05-19T04:24:16.421Z
+updated: 2024-05-20T04:24:16.421Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -372,4 +372,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-apple-iphone-11-pro-max-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From Apple iPhone 11 Pro Max? How to Fix it?</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-apple-iphone-se-2022-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen Apple iPhone SE (2022) In Different Conditionsin | Dr.fone</u></a></li>
 </ul></div>
+
 

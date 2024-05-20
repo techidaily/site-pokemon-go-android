@@ -1,7 +1,7 @@
 ---
 title: List of Pokémon Go Joysticks On Google Pixel 8 | Dr.fone
-date: 2024-04-30T14:58:48.290Z
-updated: 2024-05-01T14:58:48.290Z
+date: 2024-05-19T04:23:49.937Z
+updated: 2024-05-20T04:23:49.937Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -558,4 +558,5 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Nokia C210 | Dr.fone</u></a></li>
 <li><a href="https://ai-video-translation.techidaily.com/in-2024-how-to-translate-video-from-japanese-to-english-online/"><u>In 2024, How To Translate Video From Japanese to English Online?</u></a></li>
 </ul></div>
+
 

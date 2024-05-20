@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Poco C50? | Dr.fone
-date: 2024-04-30T15:14:52.330Z
-updated: 2024-05-01T15:14:52.330Z
+date: 2024-05-19T04:24:49.936Z
+updated: 2024-05-20T04:24:49.936Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -436,4 +436,5 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-samsung-galaxy-a05-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Samsung Galaxy A05 Phone Password Using Emergency Call</u></a></li>
 <li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-on-apple-iphone-6s-plus-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently On Apple iPhone 6s Plus</u></a></li>
 </ul></div>
+
 

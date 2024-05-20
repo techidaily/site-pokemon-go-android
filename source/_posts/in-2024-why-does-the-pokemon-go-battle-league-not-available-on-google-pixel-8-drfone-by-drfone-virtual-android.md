@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Google Pixel 8 | Dr.fone
-date: 2024-04-30T14:58:58.797Z
-updated: 2024-05-01T14:58:58.797Z
+date: 2024-05-19T04:23:50.843Z
+updated: 2024-05-20T04:23:50.843Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -407,4 +407,5 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 <li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nokia G42 5G | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-apple-iphone-13-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From Apple iPhone 13</u></a></li>
 </ul></div>
+
 

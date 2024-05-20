@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Tecno Spark 20? | Dr.fone
-date: 2024-04-30T14:58:18.854Z
-updated: 2024-05-01T14:58:18.854Z
+date: 2024-05-19T04:23:38.342Z
+updated: 2024-05-20T04:23:38.342Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -317,4 +317,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/" ><u>Reasons why Pokémon GPS does not Work On Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/" ><u>In 2024, List of Pokémon Go Joysticks On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

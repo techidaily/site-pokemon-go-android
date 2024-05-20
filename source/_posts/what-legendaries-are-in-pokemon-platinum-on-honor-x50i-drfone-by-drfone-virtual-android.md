@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor X50i? | Dr.fone
-date: 2024-04-30T15:03:13.735Z
-updated: 2024-05-01T15:03:13.735Z
+date: 2024-05-19T04:24:06.854Z
+updated: 2024-05-20T04:24:06.854Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -525,4 +525,5 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-infinix-note-30-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Infinix Note 30 5G</u></a></li>
 <li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-nokia-c12-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Nokia C12 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

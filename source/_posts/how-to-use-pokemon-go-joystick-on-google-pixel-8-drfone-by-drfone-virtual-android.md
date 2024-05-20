@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Google Pixel 8? | Dr.fone
-date: 2024-04-30T14:58:48.504Z
-updated: 2024-05-01T14:58:48.504Z
+date: 2024-05-19T04:23:49.945Z
+updated: 2024-05-20T04:23:49.945Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -440,4 +440,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-xiaomi-13t-pro-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Xiaomi 13T Pro to PC? | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-11-pro-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 11 Pro How to Bypass?</u></a></li>
 </ul></div>
+
 

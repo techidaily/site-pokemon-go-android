@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor X50 GT? | Dr.fone
-date: 2024-04-30T15:10:38.685Z
-updated: 2024-05-01T15:10:38.685Z
+date: 2024-05-19T04:24:33.916Z
+updated: 2024-05-20T04:24:33.916Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -475,4 +475,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Tecno Phantom V Fold? | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-c12-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Nokia C12 | Dr.fone</u></a></li>
 </ul></div>
+
 

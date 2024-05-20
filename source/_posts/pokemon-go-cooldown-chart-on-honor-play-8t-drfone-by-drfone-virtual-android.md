@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor Play 8T | Dr.fone
-date: 2024-04-30T15:07:07.303Z
-updated: 2024-05-01T15:07:07.303Z
+date: 2024-05-19T04:24:21.149Z
+updated: 2024-05-20T04:24:21.149Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -440,4 +440,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-14-pro-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 14 Pro without Password?</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/how-to-open-your-iphone-12-pro-max-without-a-home-button-by-drfone-ios/"><u>How To Open Your iPhone 12 Pro Max Without a Home Button</u></a></li>
 </ul></div>
+
 

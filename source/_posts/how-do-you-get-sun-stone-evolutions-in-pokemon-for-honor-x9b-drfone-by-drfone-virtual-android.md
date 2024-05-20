@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Honor X9b? | Dr.fone
-date: 2024-04-30T15:11:52.467Z
-updated: 2024-05-01T15:11:52.467Z
+date: 2024-05-19T04:24:38.582Z
+updated: 2024-05-20T04:24:38.582Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -422,4 +422,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-lenovo-thinkphone-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Lenovo ThinkPhone to New Phone | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-xiaomi-redmi-12-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Xiaomi Redmi 12 5G</u></a></li>
 </ul></div>
+
 

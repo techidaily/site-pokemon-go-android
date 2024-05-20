@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Honor 100? | Dr.fone
-date: 2024-04-30T15:08:05.341Z
-updated: 2024-05-01T15:08:05.341Z
+date: 2024-05-19T04:24:24.600Z
+updated: 2024-05-20T04:24:24.600Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -448,4 +448,5 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Huawei Nova Y71 | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-11-pro-max-screen-lock-without-password-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone 11 Pro Max screen lock without password?</u></a></li>
 </ul></div>
+
 

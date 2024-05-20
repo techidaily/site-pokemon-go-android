@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Honor X50i? | Dr.fone
-date: 2024-04-30T15:03:04.209Z
-updated: 2024-05-01T15:03:04.209Z
+date: 2024-05-19T04:24:06.338Z
+updated: 2024-05-20T04:24:06.338Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -382,4 +382,5 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-realme-10t-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Realme 10T 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/8-blender-3d-animation-tutorials-for-beginners-for-2024/"><u>8 Blender 3D Animation Tutorials for Beginners for 2024</u></a></li>
 </ul></div>
+
 

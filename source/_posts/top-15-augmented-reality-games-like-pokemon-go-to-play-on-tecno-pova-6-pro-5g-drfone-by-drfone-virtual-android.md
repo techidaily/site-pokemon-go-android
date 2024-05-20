@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Tecno Pova 6 Pro 5G | Dr.fone
-date: 2024-04-30T14:58:19.540Z
-updated: 2024-05-01T14:58:19.540Z
+date: 2024-05-19T04:23:43.616Z
+updated: 2024-05-20T04:23:43.616Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -408,4 +408,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Infinix Note 30 VIP Racing Edition</u></a></li>
 <li><a href="https://howto.techidaily.com/bricked-your-poco-f5-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Poco F5 5G? Heres A Full Solution | Dr.fone</u></a></li>
 </ul></div>
+
 

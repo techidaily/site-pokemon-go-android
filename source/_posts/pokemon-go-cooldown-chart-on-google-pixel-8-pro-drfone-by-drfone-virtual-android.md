@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Google Pixel 8 Pro | Dr.fone
-date: 2024-04-30T14:59:12.246Z
-updated: 2024-05-01T14:59:12.246Z
+date: 2024-05-19T04:23:51.646Z
+updated: 2024-05-20T04:23:51.646Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -446,4 +446,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-nokia-c110-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Nokia C110 | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-xiaomi-redmi-k70e-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Xiaomi Redmi K70E | Dr.fone</u></a></li>
 </ul></div>
+
 

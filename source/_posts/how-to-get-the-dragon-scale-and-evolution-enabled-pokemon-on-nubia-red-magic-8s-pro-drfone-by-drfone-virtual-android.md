@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro? | Dr.fone
-date: 2024-04-30T15:13:15.642Z
-updated: 2024-05-01T15:13:15.642Z
+date: 2024-05-19T04:24:43.719Z
+updated: 2024-05-20T04:24:43.719Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -364,4 +364,5 @@ The Dr. Fone Virtual location is the best and the most advanced program that can
 <li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-12-mini-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 12 mini without Losing Anything? | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-asus-rog-phone-7-ultimate-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Asus ROG Phone 7 Ultimate Screen to PC with Chromecast | Dr.fone</u></a></li>
 </ul></div>
+
 

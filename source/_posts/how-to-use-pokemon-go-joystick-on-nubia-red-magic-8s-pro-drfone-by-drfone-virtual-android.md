@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Nubia Red Magic 8S Pro? | Dr.fone
-date: 2024-04-30T15:13:17.300Z
-updated: 2024-05-01T15:13:17.300Z
+date: 2024-05-19T04:24:43.798Z
+updated: 2024-05-20T04:24:43.798Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -538,4 +538,5 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Vivo V30 | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-y78plus-t1-edition-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Y78+ (T1) Edition</u></a></li>
 </ul></div>
+
 

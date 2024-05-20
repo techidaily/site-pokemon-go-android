@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Google Pixel 8 Pro? | Dr.fone
-date: 2024-04-30T14:59:13.734Z
-updated: 2024-05-01T14:59:13.734Z
+date: 2024-05-19T04:23:51.729Z
+updated: 2024-05-20T04:23:51.729Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -432,4 +432,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-motorola-razr-40-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Motorola Razr 40</u></a></li>
 <li><a href="https://change-location.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Vivo Y100 5G? | Dr.fone</u></a></li>
 </ul></div>
+
 

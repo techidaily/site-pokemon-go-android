@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor X7b? | Dr.fone
-date: 2024-04-30T15:09:19.294Z
-updated: 2024-05-01T15:09:19.294Z
+date: 2024-05-19T04:24:29.107Z
+updated: 2024-05-20T04:24:29.107Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -401,4 +401,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-vivo-y77t-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Vivo Y77t | Dr.fone</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-apple-iphone-8-plus-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About Apple iPhone 8 Plus Unlock Chip You Need to Know</u></a></li>
 </ul></div>
+
 

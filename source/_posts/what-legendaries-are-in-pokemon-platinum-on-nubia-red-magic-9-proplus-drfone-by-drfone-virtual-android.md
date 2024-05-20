@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Nubia Red Magic 9 Pro+? | Dr.fone
-date: 2024-04-30T15:14:34.658Z
-updated: 2024-05-01T15:14:34.658Z
+date: 2024-05-19T04:24:48.823Z
+updated: 2024-05-20T04:24:48.823Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -443,4 +443,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-lava-yuva-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Lava Yuva 2 | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-to-mirror-nokia-g310-to-mac-drfone-by-drfone-android/"><u>How to Mirror Nokia G310 to Mac? | Dr.fone</u></a></li>
 </ul></div>
+
 

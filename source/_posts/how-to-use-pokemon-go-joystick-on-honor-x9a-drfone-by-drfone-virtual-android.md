@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Honor X9a? | Dr.fone
-date: 2024-04-30T14:59:40.359Z
-updated: 2024-05-01T14:59:40.359Z
+date: 2024-05-19T04:23:53.318Z
+updated: 2024-05-20T04:23:53.318Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -399,4 +399,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Vivo T2 Pro 5G? | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-nokia-c12-pro-by-fonelab-android-recover-data/"><u>How to recover lost data from Nokia C12 Pro?</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Google Pixel 8 Pro | Dr.fone
-date: 2024-04-30T14:59:11.769Z
-updated: 2024-05-01T14:59:11.769Z
+date: 2024-05-19T04:23:51.615Z
+updated: 2024-05-20T04:23:51.615Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -566,4 +566,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://ai-video-editing.techidaily.com/new-in-2024-do-you-want-to-create-slow-motion-videos-this-article-shows-methods-to-create-slow-mo-videos-without-changing-the-medias-quality/"><u>New In 2024, Do You Want to Create Slow-Motion Videos? This Article Shows Methods to Create Slow-Mo Videos without Changing the Medias Quality</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/how-to-unlock-itel-p55plus-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Itel P55+ PIN Code/Pattern Lock/Password</u></a></li>
 </ul></div>
+
 

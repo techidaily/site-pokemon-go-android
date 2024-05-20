@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 90 Lite | Dr.fone
-date: 2024-04-30T15:04:47.725Z
-updated: 2024-05-01T15:04:47.725Z
+date: 2024-05-19T04:24:12.691Z
+updated: 2024-05-20T04:24:12.691Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -664,4 +664,5 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 <li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-honor-play-7t-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Honor Play 7T using Video Repair Utility on Windows?</u></a></li>
 <li><a href="https://change-location.techidaily.com/how-to-deal-with-the-realme-11x-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Realme 11X 5G Screen Black But Still Works? | Dr.fone</u></a></li>
 </ul></div>
+
 

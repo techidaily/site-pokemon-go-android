@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor Magic 5? | Dr.fone
-date: 2024-04-30T15:00:56.506Z
-updated: 2024-05-01T15:00:56.506Z
+date: 2024-05-19T04:23:58.087Z
+updated: 2024-05-20T04:23:58.087Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -434,4 +434,5 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 <li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-iphone-8-plus-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on iPhone 8 Plus and iPad Securely</u></a></li>
 <li><a href="https://howto.techidaily.com/fix-realme-12-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Realme 12 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
 </ul></div>
+
 

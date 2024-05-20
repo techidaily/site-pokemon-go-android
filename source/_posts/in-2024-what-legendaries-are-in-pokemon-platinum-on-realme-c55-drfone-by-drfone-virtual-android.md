@@ -421,3 +421,4 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
      data-full-width-responsive="true"></ins>
 
 
+

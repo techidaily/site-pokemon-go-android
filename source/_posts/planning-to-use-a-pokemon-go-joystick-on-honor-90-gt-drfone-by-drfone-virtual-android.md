@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Honor 90 GT? | Dr.fone
-date: 2024-04-30T15:10:05.241Z
-updated: 2024-05-01T15:10:05.241Z
+date: 2024-05-19T04:24:32.025Z
+updated: 2024-05-20T04:24:32.025Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -378,4 +378,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://ai-voice-clone.techidaily.com/video-translator-wondershare-virbo-online/"><u>Video Translator | Wondershare Virbo Online</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-oppo-find-x7-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Oppo Find X7 Location | Dr.fone</u></a></li>
 </ul></div>
+
 

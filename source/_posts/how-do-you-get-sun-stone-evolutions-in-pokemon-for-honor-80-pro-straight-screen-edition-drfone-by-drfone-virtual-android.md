@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition? | Dr.fone
-date: 2024-04-30T15:00:00.360Z
-updated: 2024-05-01T15:00:00.360Z
+date: 2024-05-19T04:23:54.583Z
+updated: 2024-05-20T04:23:54.583Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -476,4 +476,5 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Oppo Find N3 | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/apple-iphone-14-pro-max-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>Apple iPhone 14 Pro Max Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
 </ul></div>
+
 

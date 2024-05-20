@@ -330,3 +330,4 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
      data-full-width-responsive="true"></ins>
 
 
+

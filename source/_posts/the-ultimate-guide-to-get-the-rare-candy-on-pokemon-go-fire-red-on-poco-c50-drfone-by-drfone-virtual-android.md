@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco C50 | Dr.fone
-date: 2024-04-30T15:14:56.076Z
-updated: 2024-05-01T15:14:56.076Z
+date: 2024-05-19T04:24:50.126Z
+updated: 2024-05-20T04:24:50.126Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -432,4 +432,5 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 <li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Realme 12 Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/new-in-2024-what-are-the-best-video-background-changers-online/"><u>New In 2024, What Are the Best Video Background Changers Online?</u></a></li>
 </ul></div>
+
 

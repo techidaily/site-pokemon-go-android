@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor X50? | Dr.fone
-date: 2024-04-30T15:04:58.372Z
-updated: 2024-05-01T15:04:58.372Z
+date: 2024-05-19T04:24:13.254Z
+updated: 2024-05-20T04:24:13.254Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -381,4 +381,5 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-realme-c51-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Realme C51 To iPhone 15/14/13? | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-nokia-c12-plus-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Nokia C12 Plus Location | Dr.fone</u></a></li>
 </ul></div>
+
 

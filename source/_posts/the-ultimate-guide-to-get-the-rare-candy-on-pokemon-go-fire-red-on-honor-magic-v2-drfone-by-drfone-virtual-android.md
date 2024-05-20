@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic V2 | Dr.fone
-date: 2024-04-30T15:05:20.015Z
-updated: 2024-05-01T15:05:20.015Z
+date: 2024-05-19T04:24:14.555Z
+updated: 2024-05-20T04:24:14.555Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -443,4 +443,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://techidaily.com/hard-reset-vivo-y78-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Vivo Y78 5G in 3 Efficient Ways | Dr.fone</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/2024-approved-animated-business-logos-and-tools-to-create/"><u>2024 Approved Animated Business Logos and Tools to Create</u></a></li>
 </ul></div>
+
 

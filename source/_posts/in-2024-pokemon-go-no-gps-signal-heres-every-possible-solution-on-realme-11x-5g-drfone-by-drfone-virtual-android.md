@@ -277,3 +277,4 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
      data-full-width-responsive="true"></ins>
 
 
+

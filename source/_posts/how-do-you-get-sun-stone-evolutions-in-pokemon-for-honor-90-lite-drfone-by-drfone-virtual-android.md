@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Honor 90 Lite? | Dr.fone
-date: 2024-04-30T15:04:24.473Z
-updated: 2024-05-01T15:04:24.473Z
+date: 2024-05-19T04:24:11.271Z
+updated: 2024-05-20T04:24:11.271Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -528,4 +528,5 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 <li><a href="https://animation-videos.techidaily.com/updated-in-2024-free-best-anime-streaming-sites-to-download-anime/"><u>Updated In 2024, FREE Best Anime Streaming Sites to Download Anime</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/forgot-your-vivo-g2-lock-screen-pattern-pin-or-password-here-s-what-to-do-by-drfone-android-unlock-android-unlock/"><u>Forgot your Vivo G2 lock screen pattern, PIN or password? Here’s what to do</u></a></li>
 </ul></div>
+
 

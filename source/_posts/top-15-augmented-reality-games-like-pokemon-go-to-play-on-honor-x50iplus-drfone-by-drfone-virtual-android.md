@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X50i+ | Dr.fone
-date: 2024-04-30T15:07:39.199Z
-updated: 2024-05-01T15:07:39.199Z
+date: 2024-05-19T04:24:23.029Z
+updated: 2024-05-20T04:24:23.029Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -449,4 +449,5 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 8 | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Realme 12 Pro+ 5G</u></a></li>
 </ul></div>
+
 

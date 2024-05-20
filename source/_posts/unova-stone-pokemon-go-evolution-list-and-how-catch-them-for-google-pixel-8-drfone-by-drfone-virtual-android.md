@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Google Pixel 8 | Dr.fone
-date: 2024-04-30T14:58:53.125Z
-updated: 2024-05-01T14:58:53.125Z
+date: 2024-05-19T04:23:50.424Z
+updated: 2024-05-20T04:23:50.424Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -374,4 +374,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-oppo-find-n3-flip-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Oppo Find N3 Flip? </u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-motorola-moto-g-5g-2023-by-fonelab-android-recover-call-logs/"><u>How To  Restore Missing Call Logs from Motorola Moto G 5G (2023)</u></a></li>
 </ul></div>
+
 

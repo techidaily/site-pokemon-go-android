@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor Play 8T? | Dr.fone
-date: 2024-04-30T15:07:15.279Z
-updated: 2024-05-01T15:07:15.279Z
+date: 2024-05-19T04:24:21.614Z
+updated: 2024-05-20T04:24:21.614Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,4 +445,5 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://ai-editing-video.techidaily.com/color-correction-basics-s-log-footage-for-2024/"><u>Color Correction Basics (S-LOG Footage) for 2024</u></a></li>
 <li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-motorola-g24-power-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Motorola G24 Power | Dr.fone</u></a></li>
 </ul></div>
+
 

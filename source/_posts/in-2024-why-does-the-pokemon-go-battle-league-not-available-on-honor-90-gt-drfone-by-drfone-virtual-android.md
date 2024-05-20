@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Honor 90 GT | Dr.fone
-date: 2024-04-30T15:10:24.031Z
-updated: 2024-05-01T15:10:24.031Z
+date: 2024-05-19T04:24:33.088Z
+updated: 2024-05-20T04:24:33.088Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -429,4 +429,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-gt-neo-5-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme GT Neo 5</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-motorola-defy-2-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Motorola Defy 2</u></a></li>
 </ul></div>
+
 

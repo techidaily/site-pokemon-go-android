@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Honor X50? | Dr.fone
-date: 2024-04-30T15:04:56.272Z
-updated: 2024-05-01T15:04:56.272Z
+date: 2024-05-19T04:24:13.138Z
+updated: 2024-05-20T04:24:13.138Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -418,4 +418,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-from-apple-iphone-12-mini-by-drfone-ios/"><u>Unlock Apple ID without Phone Number From Apple iPhone 12 mini</u></a></li>
 <li><a href="https://ai-video-translation.techidaily.com/in-2024-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>In 2024, Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
 </ul></div>
+
 

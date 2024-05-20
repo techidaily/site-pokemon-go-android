@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Honor Magic 5 Lite | Dr.fone
-date: 2024-04-30T15:00:30.319Z
-updated: 2024-05-01T15:00:30.319Z
+date: 2024-05-19T04:23:56.510Z
+updated: 2024-05-20T04:23:56.510Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -361,4 +361,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-oneplus-11r-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked OnePlus 11R Phone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-realme-narzo-n53-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Realme Narzo N53</u></a></li>
 </ul></div>
+
 

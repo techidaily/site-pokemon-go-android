@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Nubia Red Magic 8S Pro+ | Dr.fone
-date: 2024-04-30T15:12:55.756Z
-updated: 2024-05-01T15:12:55.756Z
+date: 2024-05-19T04:24:42.451Z
+updated: 2024-05-20T04:24:42.451Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -390,4 +390,5 @@ There you go! By following these tips, you would be able to come up with a winni
 <li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-k11x-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo K11x Devices | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-x-fold-2withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo X Fold 2with/without a PC</u></a></li>
 </ul></div>
+
 

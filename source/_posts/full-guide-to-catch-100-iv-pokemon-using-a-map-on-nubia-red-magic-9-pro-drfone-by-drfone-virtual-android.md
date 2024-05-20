@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Nubia Red Magic 9 Pro | Dr.fone
-date: 2024-04-30T15:14:06.662Z
-updated: 2024-05-01T15:14:06.662Z
+date: 2024-05-19T04:24:47.004Z
+updated: 2024-05-20T04:24:47.004Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -494,4 +494,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://howto.techidaily.com/what-to-do-if-your-infinix-smart-7-hd-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Infinix Smart 7 HD Auto Does Not Work | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/recover-your-photos-after-honor-70-lite-5g-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Honor 70 Lite 5G has been deleted.</u></a></li>
 </ul></div>
+
 

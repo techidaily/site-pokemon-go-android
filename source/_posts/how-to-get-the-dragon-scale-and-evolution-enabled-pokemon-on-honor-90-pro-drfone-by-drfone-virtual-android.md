@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor 90 Pro? | Dr.fone
-date: 2024-04-30T15:03:36.354Z
-updated: 2024-05-01T15:03:36.354Z
+date: 2024-05-19T04:24:08.231Z
+updated: 2024-05-20T04:24:08.231Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -465,4 +465,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-samsung-galaxy-a15-4g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Samsung Galaxy A15 4G Devices</u></a></li>
 <li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 8 | Dr.fone</u></a></li>
 </ul></div>
+
 

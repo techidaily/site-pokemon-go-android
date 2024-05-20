@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor X9a | Dr.fone
-date: 2024-04-30T14:59:38.872Z
-updated: 2024-05-01T14:59:38.872Z
+date: 2024-05-19T04:23:53.235Z
+updated: 2024-05-20T04:23:53.235Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -439,4 +439,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-infinix-hot-30-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Infinix Hot 30 5G | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/in-2024-zte-axon-40-lite-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, ZTE Axon 40 Lite ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 </ul></div>
+
 

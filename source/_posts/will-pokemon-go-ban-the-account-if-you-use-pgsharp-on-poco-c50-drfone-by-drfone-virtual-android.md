@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Poco C50 | Dr.fone
-date: 2024-04-30T15:14:56.842Z
-updated: 2024-05-01T15:14:56.842Z
+date: 2024-05-19T04:24:50.160Z
+updated: 2024-05-20T04:24:50.160Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -392,4 +392,5 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 <li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Samsung Galaxy A15 4G | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-15-plus-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking iPhone 15 Plus Passcode without a Computer</u></a></li>
 </ul></div>
+
 

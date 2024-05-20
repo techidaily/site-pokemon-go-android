@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Honor 90 GT | Dr.fone
-date: 2024-04-30T15:10:10.611Z
-updated: 2024-05-01T15:10:10.611Z
+date: 2024-05-19T04:24:32.310Z
+updated: 2024-05-20T04:24:32.310Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -414,4 +414,5 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Honor Magic 5 | Dr.fone</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/updated-downloadinstallregisteruninstall-wondershare-virbo/"><u>Updated Download/Install/Register/Uninstall | Wondershare Virbo</u></a></li>
 </ul></div>
+
 

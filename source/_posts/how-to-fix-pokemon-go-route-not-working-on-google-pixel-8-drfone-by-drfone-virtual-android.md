@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Google Pixel 8? | Dr.fone
-date: 2024-04-30T14:58:49.547Z
-updated: 2024-05-01T14:58:49.547Z
+date: 2024-05-19T04:23:49.993Z
+updated: 2024-05-20T04:23:49.993Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -361,4 +361,5 @@ Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A goo
 <li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Infinix Smart 7 | Dr.fone</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>Top 11 Free Apps to Check IMEI on Apple iPhone 13 Pro Max</u></a></li>
 </ul></div>
+
 

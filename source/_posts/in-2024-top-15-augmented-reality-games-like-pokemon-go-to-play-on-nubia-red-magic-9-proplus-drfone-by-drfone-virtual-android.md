@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nubia Red Magic 9 Pro+ | Dr.fone
-date: 2024-04-30T15:14:50.185Z
-updated: 2024-05-01T15:14:50.185Z
+date: 2024-05-19T04:24:49.792Z
+updated: 2024-05-20T04:24:49.792Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -453,4 +453,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Nokia C300 | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-samsung-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Samsung ?</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor X50? | Dr.fone
-date: 2024-04-30T15:04:54.631Z
-updated: 2024-05-01T15:04:54.631Z
+date: 2024-05-19T04:24:13.077Z
+updated: 2024-05-20T04:24:13.077Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -356,4 +356,5 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 <li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y02t-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo Y02T Phone Pattern Lock without Factory Reset</u></a></li>
 <li><a href="https://howto.techidaily.com/app-wont-open-on-your-realme-11-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Realme 11 5G? Here Are All Fixes | Dr.fone</u></a></li>
 </ul></div>
+
 

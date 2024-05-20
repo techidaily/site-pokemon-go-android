@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Honor Magic Vs 2 | Dr.fone
-date: 2024-04-30T15:06:40.591Z
-updated: 2024-05-01T15:06:40.591Z
+date: 2024-05-19T04:24:19.433Z
+updated: 2024-05-20T04:24:19.433Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -568,4 +568,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-nubia-red-magic-9-pro-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Nubia Red Magic 9 Pro Pattern Lock Screen Everything You Need to Know</u></a></li>
 <li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-lava-storm-5g-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Lava Storm 5G has been deleted.</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor 90 GT? | Dr.fone
-date: 2024-04-30T15:10:11.060Z
-updated: 2024-05-01T15:10:11.060Z
+date: 2024-05-19T04:24:32.336Z
+updated: 2024-05-20T04:24:32.336Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -456,4 +456,5 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo X100 | Dr.fone</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/updated-the-only-guide-to-make-2d-rigging-clear-to-you-for-2024/"><u>Updated The Only Guide to Make 2D Rigging Clear to You for 2024</u></a></li>
 </ul></div>
+
 

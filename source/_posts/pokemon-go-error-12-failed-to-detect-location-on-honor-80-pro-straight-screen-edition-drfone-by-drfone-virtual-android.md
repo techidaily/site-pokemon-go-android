@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Honor 80 Pro Straight Screen Edition? | Dr.fone
-date: 2024-04-30T15:00:05.562Z
-updated: 2024-05-01T15:00:05.562Z
+date: 2024-05-19T04:23:54.858Z
+updated: 2024-05-20T04:23:54.858Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -434,4 +434,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://ai-voice-clone.techidaily.com/secrets-for-tiktok-live-studio-success/"><u>Secrets for TikTok Live Studio Success</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-xiaomi-redmi-a2-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Xiaomi Redmi A2</u></a></li>
 </ul></div>
+
 

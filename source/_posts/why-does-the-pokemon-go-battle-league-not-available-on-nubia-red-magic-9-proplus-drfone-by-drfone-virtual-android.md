@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Nubia Red Magic 9 Pro+ | Dr.fone
-date: 2024-04-30T15:14:31.043Z
-updated: 2024-05-01T15:14:31.043Z
+date: 2024-05-19T04:24:48.594Z
+updated: 2024-05-20T04:24:48.594Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -477,4 +477,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-gt-5-pro-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from GT 5 Pro.</u></a></li>
 <li><a href="https://location-social.techidaily.com/does-oppo-a78-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Oppo A78 Have Find My Friends? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Google Pixel Fold | Dr.fone
-date: 2024-04-30T14:58:22.547Z
-updated: 2024-05-01T14:58:22.547Z
+date: 2024-05-19T04:23:48.229Z
+updated: 2024-05-20T04:23:48.229Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -408,4 +408,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-vivo-y100-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Vivo Y100 5G Phone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-on-apple-iphone-12-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share on Apple iPhone 12? | Dr.fone</u></a></li>
 </ul></div>
+
 

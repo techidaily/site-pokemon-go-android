@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Honor Magic 6 | Dr.fone
-date: 2024-04-30T15:11:04.673Z
-updated: 2024-05-01T15:11:04.673Z
+date: 2024-05-19T04:24:35.729Z
+updated: 2024-05-20T04:24:35.729Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -533,4 +533,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-infinix-note-30-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Infinix Note 30</u></a></li>
 <li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-realme-11-pro-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Realme 11 Pro Unresponsive Screen | Dr.fone</u></a></li>
 </ul></div>
+
 

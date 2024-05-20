@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Poco C50? | Dr.fone
-date: 2024-04-30T15:15:11.647Z
-updated: 2024-05-01T15:15:11.647Z
+date: 2024-05-19T04:24:51.255Z
+updated: 2024-05-20T04:24:51.255Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -429,4 +429,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://fix-guide.techidaily.com/oppo-reno-8t-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Reno 8T 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/nubia-data-recovery-recover-lost-data-from-nubia-red-magic-8s-proplus-by-fonelab-android-recover-data/"><u>Nubia Data Recovery – recover lost data from Nubia Red Magic 8S Pro+</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor Magic V2? | Dr.fone
-date: 2024-04-30T15:05:21.502Z
-updated: 2024-05-01T15:05:21.502Z
+date: 2024-05-19T04:24:14.634Z
+updated: 2024-05-20T04:24:14.634Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -366,4 +366,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-realme-narzo-n53-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Realme Narzo N53 | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
 </ul></div>
+
 

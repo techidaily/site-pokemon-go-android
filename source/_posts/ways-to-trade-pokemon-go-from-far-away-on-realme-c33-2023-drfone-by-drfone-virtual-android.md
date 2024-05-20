@@ -308,3 +308,4 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
      data-full-width-responsive="true"></ins>
 
 
+

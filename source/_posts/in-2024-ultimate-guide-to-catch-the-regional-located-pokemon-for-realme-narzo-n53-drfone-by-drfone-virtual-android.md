@@ -389,3 +389,4 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
      data-full-width-responsive="true"></ins>
 
 
+

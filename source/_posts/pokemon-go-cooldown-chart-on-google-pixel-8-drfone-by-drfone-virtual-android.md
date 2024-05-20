@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Google Pixel 8 | Dr.fone
-date: 2024-04-30T14:58:47.024Z
-updated: 2024-05-01T14:58:47.024Z
+date: 2024-05-19T04:23:49.862Z
+updated: 2024-05-20T04:23:49.862Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -456,4 +456,5 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-best-slideshow-video-creators/"><u>2024 Approved Best Slideshow Video Creators</u></a></li>
 <li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-vivo-y200e-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Vivo Y200e 5G to Enjoy More Fun | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Honor 100 Pro | Dr.fone
-date: 2024-04-30T15:08:25.107Z
-updated: 2024-05-01T15:08:25.107Z
+date: 2024-05-19T04:24:25.982Z
+updated: 2024-05-20T04:24:25.982Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -364,4 +364,5 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 <li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-vivo-x-flip-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Vivo X Flip Phones with/without a PC</u></a></li>
 <li><a href="https://ios-location-track.techidaily.com/solutions-to-spy-on-apple-iphone-15-pro-with-and-without-jailbreak-drfone-by-drfone-virtual-ios/"><u>Solutions to Spy on Apple iPhone 15 Pro with and without jailbreak | Dr.fone</u></a></li>
 </ul></div>
+
 

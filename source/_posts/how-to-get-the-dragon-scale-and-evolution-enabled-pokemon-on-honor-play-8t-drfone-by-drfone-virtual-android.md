@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor Play 8T? | Dr.fone
-date: 2024-04-30T15:07:07.516Z
-updated: 2024-05-01T15:07:07.516Z
+date: 2024-05-19T04:24:21.162Z
+updated: 2024-05-20T04:24:21.162Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -397,4 +397,5 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 <li><a href="https://easy-unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-realme-12-proplus-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Realme 12 Pro+ 5G</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-countdown-magic-mastering-fcpx-timers-in-3-short-steps/"><u>Updated 2024 Approved Countdown Magic Mastering FCPX Timers in 3 Short Steps</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Tecno Camon 30 Pro 5G | Dr.fone
-date: 2024-04-30T14:58:19.707Z
-updated: 2024-05-01T14:58:19.707Z
+date: 2024-05-19T04:23:44.918Z
+updated: 2024-05-20T04:23:44.918Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -449,4 +449,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Motorola Defy 2 | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/how-do-i-reset-my-vivo-v29-pro-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Vivo V29 Pro Phone without technical knowledge? | Dr.fone</u></a></li>
 </ul></div>
+
 

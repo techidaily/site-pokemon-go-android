@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Google Pixel 8 Pro | Dr.fone
-date: 2024-04-30T14:59:11.147Z
-updated: 2024-05-01T14:59:11.147Z
+date: 2024-05-19T04:23:51.580Z
+updated: 2024-05-20T04:23:51.580Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -494,4 +494,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-magic-6-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Magic 6 Pro to Samsung Phone | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Oppo Reno 9A | Dr.fone</u></a></li>
 </ul></div>
+
 

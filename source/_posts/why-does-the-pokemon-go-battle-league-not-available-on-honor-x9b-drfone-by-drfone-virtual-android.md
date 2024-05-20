@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Honor X9b | Dr.fone
-date: 2024-04-30T15:11:56.820Z
-updated: 2024-05-01T15:11:56.820Z
+date: 2024-05-19T04:24:38.824Z
+updated: 2024-05-20T04:24:38.824Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -354,4 +354,5 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 <li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-6-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 6</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/new-here-we-will-discuss-about-both-the-methods-which-you-can-choose-one-to-get-rid-of-unwanted-portions-from-your-videos-or-photos/"><u>New Here We Will Discuss About Both the Methods Which You Can Choose One to Get Rid of Unwanted Portions From Your Videos or Photos</u></a></li>
 </ul></div>
+
 

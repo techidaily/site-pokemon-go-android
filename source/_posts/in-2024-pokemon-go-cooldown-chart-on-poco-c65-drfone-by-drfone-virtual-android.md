@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Poco C65 | Dr.fone
-date: 2024-04-30T15:18:37.899Z
-updated: 2024-05-01T15:18:37.899Z
+date: 2024-05-19T04:25:04.440Z
+updated: 2024-05-20T04:25:04.440Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -363,4 +363,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-s24-ultra-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy S24 Ultra to iPhone XS/11 | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-realme-c53-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Realme C53</u></a></li>
 </ul></div>
+
 

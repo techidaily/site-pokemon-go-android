@@ -422,3 +422,4 @@ The journey to completing your Pokedex may not be a short one as there are hundr
      data-full-width-responsive="true"></ins>
 
 
+

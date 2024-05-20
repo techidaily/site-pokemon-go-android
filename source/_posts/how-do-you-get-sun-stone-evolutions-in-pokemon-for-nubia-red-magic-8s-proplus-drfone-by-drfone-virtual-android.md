@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 8S Pro+? | Dr.fone
-date: 2024-04-30T15:12:45.104Z
-updated: 2024-05-01T15:12:45.104Z
+date: 2024-05-19T04:24:41.866Z
+updated: 2024-05-20T04:24:41.866Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -469,4 +469,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-iphone-11-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase iPhone 11 When Its Locked Within Seconds | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-iphone-6-plus-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from iPhone 6 Plus Safe and Legal</u></a></li>
 </ul></div>
+
 

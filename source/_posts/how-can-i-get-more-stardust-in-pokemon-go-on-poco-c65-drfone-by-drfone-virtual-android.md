@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Poco C65? | Dr.fone
-date: 2024-04-30T15:18:30.945Z
-updated: 2024-05-01T15:18:30.945Z
+date: 2024-05-19T04:25:03.965Z
+updated: 2024-05-20T04:25:03.965Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -436,4 +436,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-oppo-a79-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Oppo A79 5G Phone With/Without IMEI Number</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-honor-magic-6-pro-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Honor Magic 6 Pro</u></a></li>
 </ul></div>
+
 

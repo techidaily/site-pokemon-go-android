@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nubia Z50 Ultra | Dr.fone
-date: 2024-04-30T15:12:22.495Z
-updated: 2024-05-01T15:12:22.495Z
+date: 2024-05-19T04:24:40.523Z
+updated: 2024-05-20T04:24:40.523Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -461,4 +461,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://techidaily.com/full-guide-to-hard-reset-your-honor-x50-gt-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Honor X50 GT | Dr.fone</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-samsung-galaxy-f34-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Samsung Galaxy F34 5G Phone</u></a></li>
 </ul></div>
+
 

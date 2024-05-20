@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Honor 100 | Dr.fone
-date: 2024-04-30T15:08:12.700Z
-updated: 2024-05-01T15:08:12.700Z
+date: 2024-05-19T04:24:25.086Z
+updated: 2024-05-20T04:24:25.086Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -409,4 +409,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-motorola-defy-2-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Motorola Defy 2 Screen | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-sony-xperia-10-v-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Sony Xperia 10 V to iPod | Dr.fone</u></a></li>
 </ul></div>
+
 

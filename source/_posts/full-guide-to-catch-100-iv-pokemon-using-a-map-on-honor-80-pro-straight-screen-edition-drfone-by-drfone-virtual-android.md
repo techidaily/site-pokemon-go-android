@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Honor 80 Pro Straight Screen Edition | Dr.fone
-date: 2024-04-30T15:00:04.194Z
-updated: 2024-05-01T15:00:04.194Z
+date: 2024-05-19T04:23:54.790Z
+updated: 2024-05-20T04:23:54.790Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -422,4 +422,5 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 <li><a href="https://techidaily.com/full-guide-to-hard-reset-your-xiaomi-redmi-k70-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Xiaomi Redmi K70 | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Infinix Zero 5G 2023 Turbo</u></a></li>
 </ul></div>
+
 

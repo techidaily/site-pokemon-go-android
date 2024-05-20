@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X8b | Dr.fone
-date: 2024-04-30T15:09:51.010Z
-updated: 2024-05-01T15:09:51.010Z
+date: 2024-05-19T04:24:31.140Z
+updated: 2024-05-20T04:24:31.140Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -533,4 +533,5 @@ In conclusion, the pursuit of capturing a **Snorlax Pokémon sleeping** in Poké
 <li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-samsung-galaxy-f34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-redmi-note-12t-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi Redmi Note 12T Pro and Browser | Dr.fone</u></a></li>
 </ul></div>
+
 

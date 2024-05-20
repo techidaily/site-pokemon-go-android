@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Poco C51 | Dr.fone
-date: 2024-04-30T15:16:41.121Z
-updated: 2024-05-01T15:16:41.121Z
+date: 2024-05-19T04:24:56.912Z
+updated: 2024-05-20T04:24:56.912Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -396,4 +396,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://ai-vdieo-software.techidaily.com/updated-5-surprising-benefits-of-using-a-16x9-ratio-calculator/"><u>Updated 5 Surprising Benefits of Using a 16X9 Ratio Calculator</u></a></li>
 <li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-poco-x5-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Poco X5 | Dr.fone</u></a></li>
 </ul></div>
+
 

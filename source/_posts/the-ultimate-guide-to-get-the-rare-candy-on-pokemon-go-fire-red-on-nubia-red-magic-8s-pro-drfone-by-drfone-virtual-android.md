@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nubia Red Magic 8S Pro | Dr.fone
-date: 2024-04-30T15:13:14.397Z
-updated: 2024-05-01T15:13:14.397Z
+date: 2024-05-19T04:24:43.648Z
+updated: 2024-05-20T04:24:43.648Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -424,4 +424,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-motorola-razr-40-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Motorola Razr 40 to iPod | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-xiaomi-redmi-13c-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Xiaomi Redmi 13C Mirror Screen to PC? | Dr.fone</u></a></li>
 </ul></div>
+
 

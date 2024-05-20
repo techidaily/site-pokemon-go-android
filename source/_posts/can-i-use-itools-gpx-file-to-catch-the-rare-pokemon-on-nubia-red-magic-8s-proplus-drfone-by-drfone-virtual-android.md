@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Nubia Red Magic 8S Pro+ | Dr.fone
-date: 2024-04-30T15:12:45.664Z
-updated: 2024-05-01T15:12:45.664Z
+date: 2024-05-19T04:24:41.889Z
+updated: 2024-05-20T04:24:41.889Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -349,4 +349,5 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-apple-iphone-13-pro-by-drfone-ios/"><u>How to Unlock Verizon Apple iPhone 13 Pro</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/updated-best-gif-resizers-to-reduce-gif-size-for-2024/"><u>Updated Best GIF Resizers to Reduce GIF Size for 2024</u></a></li>
 </ul></div>
+
 

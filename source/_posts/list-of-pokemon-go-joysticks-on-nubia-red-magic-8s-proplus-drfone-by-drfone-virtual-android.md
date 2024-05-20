@@ -1,7 +1,7 @@
 ---
 title: List of Pokémon Go Joysticks On Nubia Red Magic 8S Pro+ | Dr.fone
-date: 2024-04-30T15:12:50.891Z
-updated: 2024-05-01T15:12:50.891Z
+date: 2024-05-19T04:24:42.182Z
+updated: 2024-05-20T04:24:42.182Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,4 +384,5 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 <li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-oppo-a18-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Oppo A18? Try These Fixes</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-google-pixel-8-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Google Pixel 8</u></a></li>
 </ul></div>
+
 

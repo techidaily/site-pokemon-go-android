@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor X8b? | Dr.fone
-date: 2024-04-30T15:09:45.216Z
-updated: 2024-05-01T15:09:45.216Z
+date: 2024-05-19T04:24:30.807Z
+updated: 2024-05-20T04:24:30.807Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -328,4 +328,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://howto.techidaily.com/why-does-my-tecno-pova-5-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Tecno Pova 5 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/remove-the-lock-of-s17-pro-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of S17 Pro</u></a></li>
 </ul></div>
+
 

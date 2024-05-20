@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Nubia Red Magic 9 Pro | Dr.fone
-date: 2024-04-30T15:14:07.282Z
-updated: 2024-05-01T15:14:07.282Z
+date: 2024-05-19T04:24:47.041Z
+updated: 2024-05-20T04:24:47.041Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -433,4 +433,5 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-infinix-smart-8-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Infinix Smart 8 Running Slow and Freezing | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-s23-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on S23</u></a></li>
 </ul></div>
+
 

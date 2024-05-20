@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco C50 | Dr.fone
-date: 2024-04-30T15:15:08.924Z
-updated: 2024-05-01T15:15:08.924Z
+date: 2024-05-19T04:24:51.094Z
+updated: 2024-05-20T04:24:51.094Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -416,4 +416,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-music-from-realme-v30t-by-fonelab-android-recover-music/"><u>How to retrieve erased music from Realme V30T</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-vivo-y78plus-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Vivo Y78+? Tips, Tricks and Helpful Advice</u></a></li>
 </ul></div>
+
 

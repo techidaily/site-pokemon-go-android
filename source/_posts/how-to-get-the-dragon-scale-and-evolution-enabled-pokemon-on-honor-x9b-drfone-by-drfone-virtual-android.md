@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor X9b? | Dr.fone
-date: 2024-04-30T15:11:57.366Z
-updated: 2024-05-01T15:11:57.366Z
+date: 2024-05-19T04:24:38.851Z
+updated: 2024-05-20T04:24:38.851Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -338,4 +338,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-samsung-galaxy-s24-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Samsung Galaxy S24? Fixed | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-nokia-c22-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Nokia C22 Screen to PC Using WiFi | Dr.fone</u></a></li>
 </ul></div>
+
 

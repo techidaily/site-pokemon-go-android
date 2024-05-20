@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor 90 Pro | Dr.fone
-date: 2024-04-30T15:03:36.142Z
-updated: 2024-05-01T15:03:36.142Z
+date: 2024-05-19T04:24:08.218Z
+updated: 2024-05-20T04:24:08.218Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -434,4 +434,5 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 <li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Apple iPhone XS Max | Dr.fone</u></a></li>
 <li><a href="https://ai-voice.techidaily.com/updated-guide-to-discovering-the-voice-generatorschangers-with-the-most-anime/"><u>Updated Guide to Discovering the Voice Generators/Changers with the Most Anime</u></a></li>
 </ul></div>
+
 

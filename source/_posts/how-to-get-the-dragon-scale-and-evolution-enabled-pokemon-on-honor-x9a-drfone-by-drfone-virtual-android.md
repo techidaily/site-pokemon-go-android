@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor X9a? | Dr.fone
-date: 2024-04-30T14:59:39.084Z
-updated: 2024-05-01T14:59:39.084Z
+date: 2024-05-19T04:23:53.249Z
+updated: 2024-05-20T04:23:53.249Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -378,4 +378,5 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-12-to-other-iphone-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 12 to other iPhone? | Dr.fone</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/updated-in-2024-why-these-10-top-text-motion-templates-are-worth-your-attention/"><u>Updated In 2024, Why These 10 Top Text Motion Templates Are Worth Your Attention</u></a></li>
 </ul></div>
+
 

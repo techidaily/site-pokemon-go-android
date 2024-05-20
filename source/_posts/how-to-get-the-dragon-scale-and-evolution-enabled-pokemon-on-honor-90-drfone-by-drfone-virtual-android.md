@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor 90? | Dr.fone
-date: 2024-04-30T15:04:03.143Z
-updated: 2024-05-01T15:04:03.143Z
+date: 2024-05-19T04:24:09.798Z
+updated: 2024-05-20T04:24:09.798Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -337,4 +337,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://animation-videos.techidaily.com/updated-in-2024-learn-how-to-make-your-characters-interactive-in-unity-animation-rigging/"><u>Updated In 2024, Learn How to Make Your Characters Interactive in Unity Animation Rigging</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-on-iphone-xs-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock on iPhone XS</u></a></li>
 </ul></div>
+
 

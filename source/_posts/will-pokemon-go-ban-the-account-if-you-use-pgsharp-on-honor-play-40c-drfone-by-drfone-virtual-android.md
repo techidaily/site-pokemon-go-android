@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Honor Play 40C | Dr.fone
-date: 2024-04-30T15:05:47.520Z
-updated: 2024-05-01T15:05:47.520Z
+date: 2024-05-19T04:24:16.316Z
+updated: 2024-05-20T04:24:16.316Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -432,4 +432,5 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 <li><a href="https://ai-editing-video.techidaily.com/vintage-film-effect-1920s-how-to-make/"><u>Vintage Film Effect 1920S - How to Make</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-iphone-15-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock iPhone 15 | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Honor Play 40C | Dr.fone
-date: 2024-04-30T15:05:47.726Z
-updated: 2024-05-01T15:05:47.726Z
+date: 2024-05-19T04:24:16.326Z
+updated: 2024-05-20T04:24:16.326Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -492,4 +492,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://sim-unlock.techidaily.com/how-to-remove-iphone-x-sim-lock-by-drfone-ios/"><u>How to Remove iPhone X SIM Lock?</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/unlock-your-oppo-reno-11-pro-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Oppo Reno 11 Pro 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
+
 

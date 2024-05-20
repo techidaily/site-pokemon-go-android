@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Nubia Red Magic 9 Pro | Dr.fone
-date: 2024-04-30T15:14:07.071Z
-updated: 2024-05-01T15:14:07.071Z
+date: 2024-05-19T04:24:47.027Z
+updated: 2024-05-20T04:24:47.027Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -464,4 +464,5 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-oppo-a56s-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Oppo A56s 5G | Dr.fone</u></a></li>
 <li><a href="https://iphone-location.techidaily.com/3-smart-and-simple-ways-to-change-home-address-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>3 Smart and Simple Ways to Change Home Address on Apple iPhone 15 | Dr.fone</u></a></li>
 </ul></div>
+
 

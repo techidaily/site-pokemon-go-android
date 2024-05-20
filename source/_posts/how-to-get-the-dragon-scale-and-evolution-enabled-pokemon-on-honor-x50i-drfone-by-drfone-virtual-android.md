@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Honor X50i? | Dr.fone
-date: 2024-04-30T15:03:10.025Z
-updated: 2024-05-01T15:03:10.025Z
+date: 2024-05-19T04:24:06.668Z
+updated: 2024-05-20T04:24:06.668Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,4 +384,5 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
 <li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-add-zoom-blur-effect-in-photoshop-step-by-step/"><u>Updated In 2024, Add Zoom Blur Effect In Photoshop Step by Step</u></a></li>
 <li><a href="https://ai-video-editing.techidaily.com/new-competitive-guide-to-use-slow-motion-in-after-effects-for-2024/"><u>New Competitive Guide To Use Slow Motion in After Effects for 2024</u></a></li>
 </ul></div>
+
 

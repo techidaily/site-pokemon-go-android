@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Poco C50? | Dr.fone
-date: 2024-04-30T15:14:57.899Z
-updated: 2024-05-01T15:14:57.899Z
+date: 2024-05-19T04:24:50.211Z
+updated: 2024-05-20T04:24:50.211Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -421,4 +421,5 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-x-fold-2-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo X Fold 2 | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/why-your-nokia-c22-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Nokia C22 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
+
 

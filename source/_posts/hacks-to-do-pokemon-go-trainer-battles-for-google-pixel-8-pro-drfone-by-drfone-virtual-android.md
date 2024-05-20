@@ -1,7 +1,7 @@
 ---
 title: Hacks to do pokemon go trainer battles For Google Pixel 8 Pro | Dr.fone
-date: 2024-04-30T14:59:18.489Z
-updated: 2024-05-01T14:59:18.489Z
+date: 2024-05-19T04:23:51.993Z
+updated: 2024-05-20T04:23:51.993Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -370,4 +370,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-vivo-x90s-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Vivo X90S | Dr.fone</u></a></li>
 <li><a href="https://ai-video-editing.techidaily.com/updated-how-to-remove-audio-from-video-for-2024/"><u>Updated How To Remove Audio From Video for 2024</u></a></li>
 </ul></div>
+
 

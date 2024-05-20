@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Honor X8b | Dr.fone
-date: 2024-04-30T15:09:41.570Z
-updated: 2024-05-01T15:09:41.570Z
+date: 2024-05-19T04:24:30.609Z
+updated: 2024-05-20T04:24:30.609Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -372,4 +372,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Tecno Spark 10C? | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-oneplus-ace-2-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on OnePlus Ace 2 Easily & Safely | Dr.fone</u></a></li>
 </ul></div>
+
 

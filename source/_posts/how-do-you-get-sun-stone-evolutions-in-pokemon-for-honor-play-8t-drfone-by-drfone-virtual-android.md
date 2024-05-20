@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Honor Play 8T? | Dr.fone
-date: 2024-04-30T15:07:02.507Z
-updated: 2024-05-01T15:07:02.507Z
+date: 2024-05-19T04:24:20.901Z
+updated: 2024-05-20T04:24:20.901Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -533,4 +533,5 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/what-to-do-if-your-oppo-reno-9a-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Oppo Reno 9A Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
+
 

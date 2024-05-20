@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Honor X50i? | Dr.fone
-date: 2024-04-30T15:03:05.442Z
-updated: 2024-05-01T15:03:05.442Z
+date: 2024-05-19T04:24:06.407Z
+updated: 2024-05-20T04:24:06.407Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -487,4 +487,5 @@ The Dr. Fone Virtual location is the best and the most advanced program that can
 <li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo X100 | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-on-your-iphone-6-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card on Your iPhone 6 Apple ID and Apple Pay</u></a></li>
 </ul></div>
+
 

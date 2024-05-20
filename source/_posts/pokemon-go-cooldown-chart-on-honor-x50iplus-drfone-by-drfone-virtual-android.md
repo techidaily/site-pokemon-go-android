@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor X50i+ | Dr.fone
-date: 2024-04-30T15:07:33.276Z
-updated: 2024-05-01T15:07:33.276Z
+date: 2024-05-19T04:24:22.692Z
+updated: 2024-05-20T04:24:22.692Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -460,4 +460,5 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 <li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-mastering-davinci-resolve-scopes-a-comprehensive-guide/"><u>Updated In 2024, Mastering DaVinci Resolve Scopes A Comprehensive Guide</u></a></li>
 <li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-v29-pro-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo V29 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

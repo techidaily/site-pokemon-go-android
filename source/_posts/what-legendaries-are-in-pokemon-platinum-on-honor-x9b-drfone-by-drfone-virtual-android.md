@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor X9b? | Dr.fone
-date: 2024-04-30T15:12:00.609Z
-updated: 2024-05-01T15:12:00.609Z
+date: 2024-05-19T04:24:39.037Z
+updated: 2024-05-20T04:24:39.037Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -430,4 +430,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://bypass-frp.techidaily.com/about-zte-axon-40-lite-frp-bypass-by-drfone-android/"><u>About ZTE Axon 40 Lite FRP Bypass</u></a></li>
 <li><a href="https://techidaily.com/how-to-easily-hard-reset-my-vivo-y78-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Vivo Y78 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Honor Play 8T | Dr.fone
-date: 2024-04-30T15:07:06.886Z
-updated: 2024-05-01T15:07:06.886Z
+date: 2024-05-19T04:24:21.117Z
+updated: 2024-05-20T04:24:21.117Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -411,4 +411,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-meizu-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Meizu FRP</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-a2-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo A2 to BlackBerry | Dr.fone</u></a></li>
 </ul></div>
+
 

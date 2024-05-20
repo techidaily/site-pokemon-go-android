@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Honor X8b? | Dr.fone
-date: 2024-04-30T15:09:45.642Z
-updated: 2024-05-01T15:09:45.642Z
+date: 2024-05-19T04:24:30.821Z
+updated: 2024-05-20T04:24:30.821Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -373,4 +373,5 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Lava Yuva 2 Pro | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-repair-ios-of-iphone-13-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS of iPhone 13? | Dr.fone</u></a></li>
 </ul></div>
+
 

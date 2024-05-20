@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco C65 | Dr.fone
-date: 2024-04-30T15:18:25.835Z
-updated: 2024-05-01T15:18:25.835Z
+date: 2024-05-19T04:25:03.605Z
+updated: 2024-05-20T04:25:03.605Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -438,4 +438,5 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://review-topics.techidaily.com/how-to-unlock-nova-y71-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Nova Y71 Without Password?</u></a></li>
 <li><a href="https://howto.techidaily.com/why-does-my-oppo-find-x7-ultra-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Oppo Find X7 Ultra Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
+
 

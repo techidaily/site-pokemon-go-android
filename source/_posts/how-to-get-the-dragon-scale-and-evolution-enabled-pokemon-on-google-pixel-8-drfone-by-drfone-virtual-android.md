@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Google Pixel 8? | Dr.fone
-date: 2024-04-30T14:58:47.236Z
-updated: 2024-05-01T14:58:47.236Z
+date: 2024-05-19T04:23:49.875Z
+updated: 2024-05-20T04:23:49.875Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -426,4 +426,5 @@ There you go! By following these tips, you would be able to come up with a winni
 <li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-f54-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy F54 5G Phone Hassle-Free</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-download-splice-video-editor-for-mac/"><u>2024 Approved Download Splice Video Editor for Mac</u></a></li>
 </ul></div>
+
 

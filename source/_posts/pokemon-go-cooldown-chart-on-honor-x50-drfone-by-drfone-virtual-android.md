@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor X50 | Dr.fone
-date: 2024-04-30T15:04:54.418Z
-updated: 2024-05-01T15:04:54.418Z
+date: 2024-05-19T04:24:13.065Z
+updated: 2024-05-20T04:24:13.065Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -501,4 +501,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo X100 Pro | Dr.fone</u></a></li>
 <li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oppo-find-x6-pro-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Oppo Find X6 Pro</u></a></li>
 </ul></div>
+
 

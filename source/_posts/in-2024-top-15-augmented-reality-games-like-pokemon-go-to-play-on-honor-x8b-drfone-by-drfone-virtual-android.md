@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X8b | Dr.fone
-date: 2024-04-30T15:10:04.042Z
-updated: 2024-05-01T15:10:04.042Z
+date: 2024-05-19T04:24:31.945Z
+updated: 2024-05-20T04:24:31.945Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -429,4 +429,5 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 <li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-itel-a60s-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Itel A60s Device</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-erase-iphone-15-data-completely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase iPhone 15 Data Completely | Dr.fone</u></a></li>
 </ul></div>
+
 

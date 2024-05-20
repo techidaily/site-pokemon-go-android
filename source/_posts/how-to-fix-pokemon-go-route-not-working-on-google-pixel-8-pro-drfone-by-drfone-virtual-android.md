@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Google Pixel 8 Pro? | Dr.fone
-date: 2024-04-30T14:59:14.786Z
-updated: 2024-05-01T14:59:14.786Z
+date: 2024-05-19T04:23:51.777Z
+updated: 2024-05-20T04:23:51.777Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -371,4 +371,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Tecno Spark Go (2024)? | Dr.fone</u></a></li>
 </ul></div>
+
 

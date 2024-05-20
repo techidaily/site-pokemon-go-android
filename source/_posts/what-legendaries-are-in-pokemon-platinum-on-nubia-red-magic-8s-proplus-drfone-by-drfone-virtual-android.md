@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Nubia Red Magic 8S Pro+? | Dr.fone
-date: 2024-04-30T15:12:53.337Z
-updated: 2024-05-01T15:12:53.337Z
+date: 2024-05-19T04:24:42.296Z
+updated: 2024-05-20T04:24:42.296Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -399,4 +399,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Samsung Galaxy S23 | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-y100-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo Y100? | Dr.fone</u></a></li>
 </ul></div>
+
 

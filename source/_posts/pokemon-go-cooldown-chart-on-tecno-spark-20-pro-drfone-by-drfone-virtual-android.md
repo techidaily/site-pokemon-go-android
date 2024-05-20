@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Tecno Spark 20 Pro | Dr.fone
-date: 2024-04-30T14:58:19.037Z
-updated: 2024-05-01T14:58:19.037Z
+date: 2024-05-19T04:23:39.950Z
+updated: 2024-05-20T04:23:39.950Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -389,4 +389,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://techidaily.com/hard-reset-tecno-spark-20-proplus-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Tecno Spark 20 Pro+ in 3 Efficient Ways | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-oneplus-ace-2-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset OnePlus Ace 2 Phone Using PC | Dr.fone</u></a></li>
 </ul></div>
+
 

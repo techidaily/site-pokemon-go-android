@@ -420,3 +420,4 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
      data-full-width-responsive="true"></ins>
 
 
+

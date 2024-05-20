@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Google Pixel 8 Pro? | Dr.fone
-date: 2024-04-30T14:59:12.458Z
-updated: 2024-05-01T14:59:12.458Z
+date: 2024-05-19T04:23:51.659Z
+updated: 2024-05-20T04:23:51.659Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -290,4 +290,5 @@ That being said, there aren’t any well-researched and ground rules as to how y
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-se-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone SE Lock Screen with Notifications?</u></a></li>
 <li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-everything-from-apple-iphone-6-plus-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Everything from Apple iPhone 6 Plus to iPhone | Dr.fone</u></a></li>
 </ul></div>
+
 

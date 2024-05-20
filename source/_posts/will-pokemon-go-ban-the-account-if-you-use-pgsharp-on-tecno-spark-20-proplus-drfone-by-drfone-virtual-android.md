@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Tecno Spark 20 Pro+ | Dr.fone
-date: 2024-04-30T14:58:19.253Z
-updated: 2024-05-01T14:58:19.253Z
+date: 2024-05-19T04:23:41.645Z
+updated: 2024-05-20T04:23:41.645Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -351,4 +351,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On OnePlus 12R | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme 12 Pro+ 5G</u></a></li>
 </ul></div>
+
 

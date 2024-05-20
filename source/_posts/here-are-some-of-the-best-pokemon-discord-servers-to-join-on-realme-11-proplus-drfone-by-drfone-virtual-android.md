@@ -332,3 +332,4 @@ And now you are good to have one of the strongest Pokemon on your team when figh
      data-full-width-responsive="true"></ins>
 
 
+

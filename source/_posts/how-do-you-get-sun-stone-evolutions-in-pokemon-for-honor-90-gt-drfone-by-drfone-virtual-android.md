@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Honor 90 GT? | Dr.fone
-date: 2024-04-30T15:10:06.442Z
-updated: 2024-05-01T15:10:06.442Z
+date: 2024-05-19T04:24:32.075Z
+updated: 2024-05-20T04:24:32.075Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -446,4 +446,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-itel-p55-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Itel P55 5G | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-samsung-galaxy-f34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Samsung Galaxy F34 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

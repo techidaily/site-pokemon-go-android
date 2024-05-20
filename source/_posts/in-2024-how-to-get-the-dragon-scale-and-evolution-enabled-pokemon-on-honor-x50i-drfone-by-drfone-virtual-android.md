@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor X50i? | Dr.fone
-date: 2024-04-30T15:03:23.571Z
-updated: 2024-05-01T15:03:23.571Z
+date: 2024-05-19T04:24:07.450Z
+updated: 2024-05-20T04:24:07.450Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -415,4 +415,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-xiaomi-redmi-13c-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Xiaomi Redmi 13C 5G Fingerprint Lock</u></a></li>
 <li><a href="https://ai-voice.techidaily.com/new-2024-approved-an-ultimate-guide-of-best-narrator-voice-generators/"><u>New 2024 Approved An Ultimate Guide of Best Narrator Voice Generators</u></a></li>
 </ul></div>
+
 

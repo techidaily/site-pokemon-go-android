@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Honor 90 Lite | Dr.fone
-date: 2024-04-30T15:04:41.368Z
-updated: 2024-05-01T15:04:41.368Z
+date: 2024-05-19T04:24:12.275Z
+updated: 2024-05-20T04:24:12.275Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -370,4 +370,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-realme-12-pro-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Realme 12 Pro 5G</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-can-you-cast-your-apple-iphone-13-pro-max-to-windows-pc-with-ease-drfone-by-drfone-ios/"><u>How Can You Cast Your Apple iPhone 13 Pro Max to Windows PC With Ease? | Dr.fone</u></a></li>
 </ul></div>
+
 

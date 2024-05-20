@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Google Pixel 8 | Dr.fone
-date: 2024-04-30T14:58:46.595Z
-updated: 2024-05-01T14:58:46.595Z
+date: 2024-05-19T04:23:49.839Z
+updated: 2024-05-20T04:23:49.839Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -349,4 +349,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-v29-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo V29 Phone</u></a></li>
 <li><a href="https://iphone-transfer.techidaily.com/in-2024-5-easy-ways-to-transfer-contacts-from-apple-iphone-11-pro-max-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Easy Ways to Transfer Contacts from Apple iPhone 11 Pro Max to Android | Dr.fone</u></a></li>
 </ul></div>
+
 

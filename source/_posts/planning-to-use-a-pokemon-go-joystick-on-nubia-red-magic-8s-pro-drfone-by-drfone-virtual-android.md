@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Nubia Red Magic 8S Pro? | Dr.fone
-date: 2024-04-30T15:13:09.666Z
-updated: 2024-05-01T15:13:09.666Z
+date: 2024-05-19T04:24:43.381Z
+updated: 2024-05-20T04:24:43.381Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -425,4 +425,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-to-others-ios-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 To Others ios devices? | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-realme-narzo-n55-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Realme Narzo N55 | Dr.fone</u></a></li>
 </ul></div>
+
 

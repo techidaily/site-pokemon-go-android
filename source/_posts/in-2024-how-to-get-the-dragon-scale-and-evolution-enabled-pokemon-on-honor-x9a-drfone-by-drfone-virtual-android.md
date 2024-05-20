@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor X9a? | Dr.fone
-date: 2024-04-30T14:59:52.113Z
-updated: 2024-05-01T14:59:52.113Z
+date: 2024-05-19T04:23:54.023Z
+updated: 2024-05-20T04:23:54.023Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -507,4 +507,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Nokia G42 5G | Dr.fone</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/iphone-12-mini-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>iPhone 12 mini Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
 </ul></div>
+
 

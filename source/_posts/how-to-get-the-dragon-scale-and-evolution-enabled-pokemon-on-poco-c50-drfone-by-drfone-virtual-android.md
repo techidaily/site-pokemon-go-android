@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Poco C50? | Dr.fone
-date: 2024-04-30T15:14:57.472Z
-updated: 2024-05-01T15:14:57.472Z
+date: 2024-05-19T04:24:50.194Z
+updated: 2024-05-20T04:24:50.194Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,4 +445,5 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Motorola Moto G34 5G? | Dr.fone</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-motorola-g54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Motorola G54 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Poco C51? | Dr.fone
-date: 2024-04-30T15:16:42.143Z
-updated: 2024-05-01T15:16:42.143Z
+date: 2024-05-19T04:24:56.946Z
+updated: 2024-05-20T04:24:56.946Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -361,4 +361,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-motorola-defy-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Motorola Defy 2 | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/undelete-lost-contacts-from-honor-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Honor .</u></a></li>
 </ul></div>
+
 
