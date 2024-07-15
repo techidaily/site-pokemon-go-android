@@ -1,7 +1,7 @@
 ---
 title: In 2024, 4 solution to get rid of pokemon fail to detect location On Realme Narzo 60x 5G | Dr.fone
-date: 2024-03-25 17:18:34
-updated: 2024-03-27 19:19:16
+date: 2024-07-14T11:05:13.063Z
+updated: 2024-07-15T11:05:13.064Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 4 solution to get rid of pokemon fail to detect location On Realme Narzo 60x 5G
 excerpt: This article describes 4 solution to get rid of pokemon fail to detect location On Realme Narzo 60x 5G
 keywords: Pokémon Go for Narzo 60x 5G,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for Narzo 60x 5G,Pokemon Go Without Walking,Pokemon Go Joystick for Narzo 60x 5G
-thumbnail: https://www.lifewire.com/thmb/UCCJI6MO1FwbR0mTqx5aB-FS3_0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-add-tiktok-filters-and-effects-f3c195b2fe1449cb8b2906eea3305b22.jpg
+thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2f2b7f6dd74a2f0921700773.jpg
 ---
 
 ## 4 solution to get rid of pokemon fail to detect location On Realme Narzo 60x 5G
@@ -94,12 +94,18 @@ First of all download and install the program to get started.
 
 Click the get started icon once the iPhone has been connected to the system and the virtual location has been enabled.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 **Step 3: Locate the Realme Narzo 60x 5G device**
 
 Click the center on a button to make sure that your location is detected by the program.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 **Step 4: Change Location**
@@ -112,6 +118,9 @@ The third icon on the upper right corner is to be pressed to teleport. In the ba
 
 Click on move here to get to the location that has been selected.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 **Step 6: Validation**
@@ -162,6 +171,9 @@ For instance, if you’re a Rank 2, you can earn around 2,000 Stardust points by
 
 Another method is to play with your friends, and the Stardust points can vary from 300 to 1000, depending on your opponent’s rank.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pvp in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-3.jpg)
 
 ### By Opening Gifts
@@ -198,6 +210,9 @@ If you stay consistent and catch at least one Pokemon daily, you can get up to 9
 
 ![catch a pokemon](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### By Claiming Raid Rewards
 
 When the Boss enters your Gym, you may think it’s a stressful scenario. However, you should consider the bright side and fight to earn valuable rewards, such as Stardust points.
@@ -391,3 +406,71 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-unlocking-hidden-social-content-where-are-your-vids/"><u>[Updated] 2024 Approved  Unlocking Hidden Social Content  Where Are Your Vids?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-premium-free-srt-translation-services/"><u>[Updated] Unveiling Premium Free SRT Translation Services</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-asmr-apps-android-and-ios-edition/"><u>Essential ASMR Apps  Android & iOS Edition</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/next-gen-audio-transcription-technologies-and-their-applications-for-2024/"><u>Next-Gen Audio Transcription Technologies and Their Applications for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/finding-the-perfect-youtube-to-mp3-converter-tips-and-tricks/"><u>Finding the Perfect YouTube to MP3 Converter Tips and Tricks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-fcpx-xml-mastery-taking-your-editing-skills-to-the-next-level-for-2024/"><u>Updated FCPX XML Mastery Taking Your Editing Skills to the Next Level for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/in-2024-how-to-make-gifs-from-videos-on-mac/"><u>In 2024, How to Make GIFs From Videos on Mac</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-tier-android-and-ios-timers-unveiled-your-weddings-guardian-angels/"><u>Top-Tier Android & iOS Timers Unveiled  Your Wedding's Guardian Angels</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-streamlining-audio-capture-in-windows-11/"><u>In 2024, Streamlining Audio Capture in Windows 11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-zte-axon-40-lite-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track ZTE Axon 40 Lite Location by Number | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-smallscreenvid-recorder-critique/"><u>[Updated] In 2024, SmallScreenVid Recorder Critique</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-achieving-synergy-integrating-linktree-into-your-tiktok-profile/"><u>[New] 2024 Approved  Achieving Synergy  Integrating Linktree Into Your TikTok Profile</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-streamlining-your-live-broadcast-ps4-recording-via-obs-studio/"><u>[New] 2024 Approved  Streamlining Your Live Broadcast  PS4 Recording via OBS Studio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-4k-videos-with-the-versatile-nikon-1j5/"><u>Mastering 4K Videos with the Versatile Nikon 1J5</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-avoid-complexity-easy-video-edits-on-windows-10-for-everyone/"><u>In 2024, Avoid Complexity  Easy Video Edits on Windows 10 for Everyone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-securing-students-learning-mac-based-lecture-recording/"><u>[Updated] Securing Students' Learning  Mac-Based Lecture Recording</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-amplify-your-storytelling-music-for-instagram-stories-and-videos-for-2024/"><u>[Updated] Amplify Your Storytelling  Music for Instagram Stories & Videos for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instamagic-weaving-your-story-with-every-posts-caption-for-2024/"><u>Instamagic  Weaving Your Story with Every Post's Caption for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/seamless-integration-vimeo-uploads-with-windows-media-center-for-2024/"><u>Seamless Integration  Vimeo Uploads with Windows Media Center for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-unlock-the-power-of-slow-motion-in-windows-live-movie-maker-updated-2023-for-2024/"><u>Updated Unlock the Power of Slow Motion in Windows Live Movie Maker (Updated 2023) for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-navigating-the-ins-and-outs-of-youtube-premium/"><u>In 2024, Navigating the Ins and Outs of YouTube Premium</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-pixelpioneer-mastering-the-art-of-screen-capture-for-2024/"><u>[Updated] PixelPioneer  Mastering the Art of Screen Capture for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-honor-magic-6-pro-phone-by-drfone-android/"><u>How to Unlock a Network Locked Honor Magic 6 Pro Phone?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-80-pro-straight-screen-edition-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor 80 Pro Straight Screen Edition? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-vivo-s17-pro-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Vivo S17 Pro Activity | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-bending-reality-a-short-history-of-virtual-space-for-2024/"><u>[New] Bending Reality  A Short History of Virtual Space for 2024</u></a></li>
+</ul></div>

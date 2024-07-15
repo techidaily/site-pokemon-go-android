@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Honor X9a? | Dr.fone
-date: 2024-05-19T04:23:54.219Z
-updated: 2024-05-20T04:23:54.219Z
+date: 2024-07-14T08:32:00.571Z
+updated: 2024-07-15T08:32:00.571Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Honor X9a?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Honor X9a?
 keywords: Pokemon Go for X9a,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for X9a,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for X9a
-thumbnail: https://www.lifewire.com/thmb/xgo6tGI-HONOfys81EHMpcUqTKU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-970157966-65f3dd434f3e4dc98e28a635b8cacc87.jpg
+thumbnail: https://thmb.techidaily.com/77006c539bf1ddb2e2b5e84e1f174870218883325d71d7edbcfdaf185bcde8ae.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Honor X9a?
@@ -51,6 +51,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **9\. Cresselia:** Cresselia is the Level 50 Pokemon that roams Sinnoh after you communicate with it on Fullmoon Island. So, you must reach the Full Moon Island to heal the Sailor’s child, and after that you will meet Cresselia. After you interact with it, the Pokemon runs and roams Sinnoh’s grass.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
 
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
@@ -85,6 +88,18 @@ There are many action replay codes available on the Internet. Using these codes,
 
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -216,6 +231,9 @@ Plus, with this, you also do not need to jailbreak your device. It doesn’t bre
 
 ### Spoof Your Location to a Certain Place
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 With the Dr.Fone virtual location iOS, you can set your location to the desired place. You only need to choose the location on the map interface and click on the move here button. It is very easy-to-use app that a novice can also operate it easily.
@@ -305,6 +323,9 @@ Go Battle League features a total of 24 ranks starting from Rank 1. The last fou
 
 For your information, the Pokemon PvP ranking in the Go Battle League refreshes every season. That means the participants will all go back to Rank 1 once the new season approaches and sets in. Don’t worry. It’s not a big deal. If you’re able to make it last season, you can absolutely do it again one more time. Just stick to your original strategy and be patient at every turn. That’s how you do it.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tips For Winning Pokemon Go PvP Rank Battles
 
 Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check out the expert tips listed below. Implement each of them on your next trainer duel.
@@ -313,7 +334,10 @@ Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check o
 - Your priority during the Pokemon Go PvP rank battle is to cause damage to your opponent. It’s a tough job unless you’re aware of the Pokemon’s weaknesses and strengths. Study the type advantages of Pokemon so that you can intelligently strategize during the match.
 - Deploy Charged Attacks as often as possible during the battle. As for your defense, make sure to utilize Protect Shield for the most valuable member of your team.
 
-## Part 4. Win Pokemon Go PvP Rank Battles With [<u>Wondershare Dr.Fone</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 4. Win Pokemon Go PvP Rank Battles With <u>Wondershare Dr.Fone</u>
 
 It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on how well you prepare. That’s why you should catch as many strong Pokemon as possible beforehand. Sure. Catching Pokemon in the wild is not as easy as falling off a log. You have to travel a distance and wander aimlessly until you come across your target. But did you know that there’s actually a tool that can help you do all this stuff without going outdoors? Yes. Wondershare Dr.Fone has a potent Virtual Location feature capable of modifying your current whereabouts and simulating GPS movements. Do you want to try it out? Here’s a short guide to get you started.
 
@@ -357,3 +381,48 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/streamlining-video-logging-on-periscope-platforms/"><u>Streamlining Video Logging on Periscope Platforms</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-background-screen-video-recording-full-guide/"><u>[New] Background Screen Video Recording Full Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-the-honest-guide-to-getting-filmora-for-free-no-illegal-downloads/"><u>In 2024, The Honest Guide to Getting Filmora for Free (No Illegal Downloads)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-x7b-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-safe-mp3-extraction-three-methods-for-youtube-audio-conversion/"><u>[New] In 2024, Safe MP3 Extraction  Three Methods for YouTube Audio Conversion</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-creating-captivating-podcast-launch-screens/"><u>[Updated] Creating Captivating Podcast Launch Screens</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-capture-the-moment-a-guide-to-superior-webcam-recorders-for-2024/"><u>[New] Capture the Moment - A Guide to Superior WebCam Recorders for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-standard-to-stunning-applying-filters-in-zoom-step-by-step/"><u>2024 Approved  From Standard to Stunning  Applying Filters in Zoom Step-by-Step</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-vivo-x100-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Vivo X100 Phones with/without a PC</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/resolve-your-iphone-12-pro-keeps-asking-for-outlook-password-by-drfone-ios/"><u>Resolve Your iPhone 12 Pro Keeps Asking for Outlook Password</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-a-world-of-videos-made-easy-with-vidas-aid-for-2024/"><u>Navigating a World of Videos Made Easy with Vida's Aid for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-honor-x7b-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-x7b-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-your-portal-to-creative-inspiration-mastering-pexels/"><u>[Updated] In 2024, Your Portal to Creative Inspiration  Mastering Pexels</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-x7b-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor X7b? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-vocal-variance-for-visuals-dynamic-voiceover-strategies-on-slides/"><u>[Updated] In 2024, Vocal Variance for Visuals  Dynamic Voiceover Strategies on Slides</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Best Pokemons for PVP Matches in Pokemon Go For Realme V30 | Dr.fone
-date: 2024-03-25 23:50:54
-updated: 2024-03-27 15:41:47
+date: 2024-07-14T10:21:27.276Z
+updated: 2024-07-15T10:21:27.276Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Best Pokemons for PVP Matches in Pokemon Go For Realme V30
 excerpt: This article describes Best Pokemons for PVP Matches in Pokemon Go For Realme V30
 keywords: Pokemon Go Joystick for V30,Pokemon Go Joystick Without Walking,Pokemon Go for V30,Pokemon Go Without Walking,Pokémon Go for V30,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/-k7XQuYCtDIqaSG0zopRVuv3liM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-unveils-new-products-at-its-annual-unpacked-event-1200186175-0a17180ae84e47f488f43d3afbb7daa6.jpg
+thumbnail: https://thmb.techidaily.com/ef75e54c89ead83bf0af102804bf50f616e622b6f296003a4995fda9891371fd.jpg
 ---
 
 ## Best Pokemons for PVP Matches in Pokemon Go For Realme V30
@@ -95,6 +95,9 @@ This **is the best Pokémon in Pokémon GO PvP** and is known for its unique pre
 | --- | --- | --- |
 | Normal | Ghost | Fighting |
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Eternatus
 
 ![eternatus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-7.jpg)
@@ -133,6 +136,9 @@ Gligar uses its clawed hind legs and large pincers to grab onto its prey's face,
 
 ### 8\. Carbink
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![carbink pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-10.jpg)
 
 Carbink is a Rock and Fairy-type Pokémon in Pokémon GO, originating from the Kalos region. It's weak against Steel, Grass, Ground, and Water-type moves and has a max CP of 1658. The weather conditions that boost this Pokémon include partly cloudy and cloudy. This **best PvP Pokémon** is also known as Jewel Pokémon due to its ability to create diamonds within its body.
@@ -270,6 +276,9 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 
 **Step 1 -** Download the Dr. Fone Virtual Location by official Wondershare website. Connect your phone to the computer in to execute the changes. Click on the “Virtual Location” option.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 **Step 2 –** Now, on the next screen, you will see “Get Started” option. Click on it to proceed.
@@ -306,6 +315,9 @@ The notice looks like this -
 
 The cool-down period between two locations is based on distance and you can refer to the table below to understand the time you need to wait before logging in again.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cooldown time](https://images.wondershare.com/drfone/2020/2020/cooldown-time.jpg)
 
 Most gamers wait for the standard 2 hours before logging in again. This gives them access to all the game’s features like before.
@@ -398,6 +410,9 @@ You can use the faux location of [Dr. Fone](https://tools.techidaily.com/wonders
 
 Install the ‘Dr. Fone toolkit’ from the official website after downloading it. After installation, launch the toolkit and select the ‘Virtual Location’ tab.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 **Step 2: Connect:**
@@ -461,3 +476,73 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-nokia-c210-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Nokia C210 for Free? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-discord-nitro-demystified-the-ultimate-vip-service-for-gamers-for-2024/"><u>[New] Discord Nitro Demystified  The Ultimate VIP Service for Gamers for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-apple-iphone-14-pro-max-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From Apple iPhone 14 Pro Max? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-best-free-video-shrinking-software-for-windows-10-users/"><u>New In 2024, Best Free Video Shrinking Software for Windows 10 Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-youtube-experience-tips-on-channel-art-and-sizes-for-2024/"><u>[Updated] Elevating Your YouTube Experience  Tips on Channel Art and Sizes for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-the-best-of-the-best-free-vob-video-editing-software-for-2024/"><u>Updated The Best of the Best Free VOB Video Editing Software for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-top-9-free-tv-streaming-services-or-sites-to-use-for-2024/"><u>New Top 9 Free TV Streaming Services or Sites To Use for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-discovering-your-lately-watched-fb-movies-made-simple-for-2024/"><u>[Updated] Discovering Your Lately Watched Fb Movies Made Simple for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quick-corrections-for-iphone-shot-blur-issues/"><u>[Updated] Quick Corrections for iPhone Shot Blur Issues</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-navigating-the-landscape-of-color-correction-innovative-uses-of-luts-in-video-editing/"><u>[Updated] Navigating the Landscape of Color Correction  Innovative Uses of LUTs in Video Editing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-nokia-105-classic-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Nokia 105 Classic FRP Bypass</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-poco-c50-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Poco C50? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-12-pro-max-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 Pro Max To Other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-mastering-slow-motion-top-10-video-editing-tools-for-professionals/"><u>New In 2024, Mastering Slow Motion Top 10 Video Editing Tools for Professionals</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-simplifying-the-process-of-creating-time-lapses-with-gopro/"><u>[Updated] Simplifying the Process of Creating Time Lapses with GoPro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-simplified-srt-transformation-from-ttml-xml-and-ssa/"><u>[New] In 2024, Simplified SRT Transformation From TTML, XML & SSA</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/top-5-best-audio-video-mixers-for-2024/"><u>Top 5 Best Audio Video Mixers for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pro-photo-expertise-at-your-fingertips-with-these-tips/"><u>[New] Pro Photo Expertise at Your Fingertips with These Tips</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-instagram-antithesis-video-reversal-explained/"><u>The Instagram Antithesis  Video Reversal Explained</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hdmi-display-showdown-the-creme-de-la-creme-monitors/"><u>[Updated] HDMI Display Showdown  The Crème De La Crème Monitors</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-in-this-article-we-are-going-to-take-you-through-some-of-the-best-online-photo-and-video-collage-makers-you-can-find-on-the-internet/"><u>Updated In 2024, In This Article We Are Going to Take You Through some of the Best Online Photo and Video Collage Makers You Can Find on the Internet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-adding-visuals-on-instagram-quickly/"><u>[Updated] 2024 Approved  Adding Visuals on Instagram Quickly</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-learn-the-solution-to-instagram-video-issues/"><u>[New] 2024 Approved  Learn the Solution to Instagram Video Issues</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-unlocking-maximum-potential-screen-recording-on-anymac/"><u>In 2024, Unlocking Maximum Potential  Screen Recording on AnyMac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-optimize-logitech-footage-background-free-method/"><u>[New] In 2024, Optimize Logitech Footage - Background-Free Method</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-ways-to-adjust-speed-on-snapchat-videos-and-the-best-alternative/"><u>[Updated] Best Ways to Adjust Speed on Snapchat Videos (And the Best Alternative</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-master-igtv-edits-top-10-tools-ranked/"><u>[New] 2024 Approved  Master IGTV Edits  Top 10 Tools Ranked</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Poco C50 | Dr.fone</u></a></li>
+</ul></div>

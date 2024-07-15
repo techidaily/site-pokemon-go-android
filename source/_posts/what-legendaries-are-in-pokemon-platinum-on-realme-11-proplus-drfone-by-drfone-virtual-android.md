@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Realme 11 Pro+? | Dr.fone
-date: 2024-03-26 23:51:31
-updated: 2024-03-27 18:42:18
+date: 2024-07-14T10:42:23.525Z
+updated: 2024-07-15T10:42:23.525Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Realme 11 Pro+?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Realme 11 Pro+?
 keywords: Pokemon Go for 11 Pro+,Pokemon Go Joystick for 11 Pro+,Pokémon Go for 11 Pro+,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/ADwMZAl5AjJaezwcgc229Y2W9FU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1558254975-0a8ae81a4cd04f3eba064dd56ba8b030.jpg
+thumbnail: https://thmb.techidaily.com/633e4476d735dff824b3250c253c09c234e7613f83678c9c2635006dd72b341f.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Realme 11 Pro+?
@@ -75,6 +75,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -87,6 +90,9 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
 [Dr.Fone - Virtual Location (iOS/Android)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With this tool, you can teleport your iPhone GPS to any other desired place worldwide with only a few clicks. This reliable application sets up a virtual GPS location. Therefore, all other location-based apps, including Pokemon Platinum Version, installed on your device, believe that you are actually there. Use this tool to capture platinum legendaries.
@@ -105,6 +111,9 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
@@ -273,14 +282,14 @@ Trading in Pokemon go is quite complex. This is because the needed Stardust poin
 - Ultra Friends: 8
 - Best friend: 4
 
-**Shiny or legendary ( caught by you)**
+**Shiny or legendary (caught by you)**
 
 - Good Friend: 20,000
 - Great Friend: 16,000
 - Ultra Friend: 1,600
 - Best Friend: 800
 
-**Shiny or Legendary ( not caught by you)**
+**Shiny or Legendary (not caught by you)**
 
 - Good Friend: 1,000,000
 - Great Friend: 800,000
@@ -291,6 +300,9 @@ However, this Stardust trade cost may vary according to the friendship levels! B
 
 ## Part 3: Ways to increase stardust in pokemon go?
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Use Dr.Fone – Virtual Location (iOS/Android)
 
 Do you want to increase your Stardust trade cost in Pokemon go? There is no better way for doing so other than using [Dr.Fone - Virtual location (iOS/Android)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Using this will easily help you to catch more Pokemon, as you can fake your location using this app. You can change your location to any given location on the map and catch Pokemons from different regions without having to move around. Doesn't it sound fun? Catching the rarest Pokemon all by sitting at home!
@@ -313,6 +325,9 @@ Teleport to anywhere in the world
 
 ![enter location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Exchange the gift with friends to level up a friendship
 
 Pokemon go also allows you to send gifts to your game friends and receive gifts from your game friends. Well, this can help both of you grow and progress in the game and can be a helpful trick to increase Stardust!
@@ -323,7 +338,7 @@ Investing more and more time on the game will lead you to catching more pokemons
 
 ## Conclusion
 
-Well, the article did give us a lot of idea about stardust trade cost and how to increase Stardust trade points in Pokemon go. We dwelled more into major facts about the game and learned a lot about it. We also explored what is drfone-Virtual location ( iOS) and how it can help you to teleport from one place to another! Using the app will help you a lot in improving the game and wouldn't require you to do much! All you've to do is teleport from one place to another, catch more and more pokemons and get more stardust! As a player, it shall improve your stats by a huge margin!
+Well, the article did give us a lot of idea about stardust trade cost and how to increase Stardust trade points in Pokemon go. We dwelled more into major facts about the game and learned a lot about it. We also explored what is drfone-Virtual location (iOS) and how it can help you to teleport from one place to another! Using the app will help you a lot in improving the game and wouldn't require you to do much! All you've to do is teleport from one place to another, catch more and more pokemons and get more stardust! As a player, it shall improve your stats by a huge margin!
 
 
 <ins class="adsbygoogle"
@@ -340,3 +355,46 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-notes-from-iphone-15-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Notes from iPhone 15 Plus? | Stellar</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-v30-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-exclusive-pc-sound-recording-with-x-recorder-tool/"><u>[Updated] 2024 Approved  Exclusive PC Sound Recording with X-Recorder Tool</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-xiaomi-redmi-note-13-proplus-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Xiaomi Redmi Note 13 Pro+ 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-v30-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-creative-music-videos-a-list-of-15-youtube-projects/"><u>In 2024, Creative Music Videos  A List of 15 YouTube Projects</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-v30-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/prime-commercial-sky-storage-choices/"><u>Prime Commercial Sky-Storage Choices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-v30-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-high-definition-video-made-easy-a-beginners-guide-to-pixels-for-2024/"><u>Updated High-Definition Video Made Easy A Beginners Guide to Pixels for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-v30-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-perfect-posts-every-time-mastering-instagram-video-uploads-on-desktop/"><u>2024 Approved  Perfect Posts Every Time  Mastering Instagram Video Uploads on Desktop</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-select-guide-17-chosen-software-for-smooth-image-cleanup/"><u>[New] Select Guide  17 Chosen Software for Smooth Image Cleanup</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-exploring-archives-for-articulated-grunt-effects/"><u>New In 2024, Exploring Archives for Articulated Grunt Effects</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-from-import-to-export-working-with-xml-files-in-fcpx/"><u>New In 2024, From Import to Export Working with XML Files in FCPX</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-pioneering-video-structuring-methods-on-youtube/"><u>[New] 2024 Approved  Pioneering Video Structuring Methods on YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-capture-clarity-comprehensive-free-pcmac-recording-apps/"><u>[New] In 2024, Capture Clarity  Comprehensive Free PC/Mac Recording Apps</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-realme-v30-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-free-voice-enhancers-for-discord-your-guide-to-the-best/"><u>In 2024, Free Voice Enhancers for Discord - Your Guide to the Best</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unveil-the-leading-10-hidden-story-viewers/"><u>[New] In 2024, Unveil the Leading 10 Hidden Story Viewers</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-top-5-free-video-watermark-software-for-2024/"><u>New Top 5 Free Video Watermark Software for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-alter-default-store-place-for-mac-images-for-2024/"><u>[New] Alter Default Store Place for Mac Images for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/audiovisual-conjuring-apples-artistic-blend-for-2024/"><u>Audiovisual Conjuring  Apple's Artistic Blend for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-v30-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-video-recording-rumble-obs-versus-shadowreplay/"><u>[New] 2024 Approved  Video Recording Rumble  OBS Versus ShadowReplay</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-v30-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme V30? Fixed | Dr.fone</u></a></li>
+</ul></div>

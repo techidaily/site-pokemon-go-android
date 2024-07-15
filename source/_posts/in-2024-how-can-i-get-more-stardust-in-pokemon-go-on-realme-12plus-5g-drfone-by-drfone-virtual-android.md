@@ -1,7 +1,7 @@
 ---
 title: In 2024, How can I get more stardust in pokemon go On Realme 12+ 5G? | Dr.fone
-date: 2024-03-25 22:35:23
-updated: 2024-03-27 19:50:45
+date: 2024-07-14T11:21:41.194Z
+updated: 2024-07-15T11:21:41.194Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How can I get more stardust in pokemon go On Realme 12+ 5G?
 excerpt: This article describes How can I get more stardust in pokemon go On Realme 12+ 5G?
 keywords: Pokémon Go for 12+ 5G,Pokémon Go Without Walking,Pokemon Go for 12+ 5G,Pokemon Go Joystick for 12+ 5G,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/CJ67ETb2O4uuEo78S2gUHwX4efQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TheWolfAmongUsBigby-793544cded2749488ae1d20113d8d73a.jpg
+thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8f5029c9276b28fff4f6f7be.jpg
 ---
 
 ## How can I get more stardust in pokemon go On Realme 12+ 5G?
@@ -41,6 +41,9 @@ As you can see, Stardust is crucial for numerous gameplay experiences, so you sh
 
 Since having Stardust is crucial for your Pokemon Go experience, you may be looking for the best ways to accumulate as many consumables as possible. We’ll present a couple of ways to reach your goals below.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Through Pvp Rewards
 
 One of the best ways to earn Stardust is through Player versus Player features. When you’re playing with other users, you can earn Stardust based on the number of your previous wins, your game level, and the PVP outcome.
@@ -75,6 +78,9 @@ You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### By Catching Pokemon
 
 Catching Pokemon is one of the most efficient ways of earning Stardust points. Each Pokemon has a base rate of 100 Stardust points, but you can earn more points depending on the Pokemon’s evolution stage. For instance, if the Pokemon is in the second stage, you’ll earn an additional 500 Stardust points.
@@ -143,6 +149,9 @@ Virtual Location will allow you to head to any city in the world, collect the ra
 
 4. You can also click on the Joystick feature to control your movements.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![joystick mode](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
 Once you turn the virtual location on, you’ll become an unbeatable Pokemon Go player.
@@ -201,6 +210,9 @@ This coupon is your golden chance to save extra on your purchase of Dr.Fone - Vi
 
 New Pokémon are being added to Pokémon Go every day. These include regionals, time-limited encounters, and a lot more. Let’s find out the different ways you can use to find and catch these rare Pokémon!
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select the teleport mode](https://images.wondershare.com/drfone/virtual-loaction/catch-croagunk-pokemongo.jpg)
 
 ### How to find rare Pokémon or complete your Pokédex?
@@ -293,6 +305,9 @@ Now, your location has changed successfully, and you can see it on your screen. 
 
 Get better control over your [GPS movement on your iPhone](https://drfone.wondershare.com/virtual-location/fake-gps-location-ios.html) by using the joystick feature of Dr.Fone - Virtual Location. This feature can be easily accessed on the main screen of the map. You can either access it from the toolbar located near the top right corner or the lower left side of the screen. 360-degree directions are available. You can move forward or backward by clicking the Up or Down arrows. Keyboard shortcuts W, A, S, and D can be used to control GPS movements, as can Up, Down, Left, and Right keys.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select and use the joystick to move along the map](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
 Dr.Fone - Virtual Location offers two ways to use the joystick for seamless GPS movement. You can use the Automatic or Manual GPS movement. Here’s how you can use both ways.
@@ -529,3 +544,72 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/gleaming-graphics-the-art-of-crafting-insta-highlights-3-ways/"><u>Gleaming Graphics  The Art of Crafting Insta Highlights (3 Ways)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-nexus-development-summary-pinnacle-studio-audit-2023/"><u>[Updated] Nexus Development Summary  Pinnacle Studio Audit, 2023</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/understanding-and-applying-luts-to-ae-projects/"><u>Understanding and Applying LUTs to AE Projects</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-fifas-favorite-footage-charted-on-youtube-for-2024/"><u>[New] FIFA's Favorite Footage  Charted on YouTube for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-11-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone 11 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-diving-deep-youtubes-best-immersive-experiences-for-2024/"><u>[Updated] Diving Deep  YouTube's Best Immersive Experiences for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/glow-up-guide-3-masterful-instagram-highlight-tricks-for-2024/"><u>Glow-Up Guide  3 Masterful Instagram Highlight Tricks for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-time-is-money-speedy-guide-to-convert-srt-files-into-text/"><u>[Updated] Time Is Money  Speedy Guide to Convert SRT Files Into Text</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-rundown-top-8-exceptional-free-online-translation-platforms/"><u>In 2024, A Rundown  Top 8 Exceptional Free Online Translation Platforms</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-pioneering-linux-audio-capture-discovering-the-five-most-loved-recorders-and-tips-for-excellence/"><u>In 2024, Pioneering Linux Audio Capture Discovering the Five Most-Loved Recorders and Tips for Excellence</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/remove-filmora-logo-from-your-videos-easy-solutions-for-2024/"><u>Remove Filmora Logo From Your Videos Easy Solutions for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/blending-beats-posting-tunes-on-digital-diaries/"><u>Blending Beats  Posting Tunes on Digital Diaries</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/remedying-windows-hello-authentication-compatibility-issue/"><u>Remedying Windows Hello Authentication Compatibility Issue</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/seamless-setup-direct-installation-of-asus-bt400-drivers/"><u>Seamless Setup: Direct Installation of Asus BT400 Drivers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-viral-eats-top-10-tiktok-cooking-challenges/"><u>[New] 2024 Approved  Viral Eats  Top 10 TikTok Cooking Challenges</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-8-plus-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 8 Plus To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-protocols-for-preserving-instagram-footage-on-windowsmacos-platforms/"><u>[New] Protocols for Preserving Instagram Footage on Windows/macOS Platforms</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-poco-f5-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Poco F5 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-studio-screening-shorts/"><u>[New] Top Studio Screening Shorts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-mastering-live-streams-from-obs-to-fb/"><u>[Updated] 2024 Approved  Mastering Live Streams From OBS to FB</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-premier-microphone-picks-for-blogging-pros/"><u>2024 Approved  Premier Microphone Picks for Blogging Pros</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-realme-11-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Realme 11 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-zero-cost-techniques-for-video-and-text-combination/"><u>In 2024, Zero-Cost Techniques for Video and Text Combination</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-are-scalping-subscribers-a-viable-strategy/"><u>[Updated] In 2024, Are Scalping Subscribers a Viable Strategy?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quick-quirks-lasting-impact-fast-track-to-fame-with-9gag-memes/"><u>[New] Quick Quirks, Lasting Impact  Fast Track to Fame with 9GAG Memes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/dive-into-windows-11-sound-capture-a-step-by-step-guide/"><u>Dive Into Windows 11 Sound Capture  A Step-by-Step Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-immersive-escapes-how-to-choose-between-rift-vive-ps-vr-in-2024/"><u>[New] Immersive Escapes  How to Choose Between Rift, Vive, PS VR, In 2024</u></a></li>
+</ul></div>

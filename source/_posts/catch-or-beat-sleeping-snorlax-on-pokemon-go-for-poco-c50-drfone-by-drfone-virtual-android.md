@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Poco C50 | Dr.fone
-date: 2024-05-19T04:24:50.694Z
-updated: 2024-05-20T04:24:50.694Z
+date: 2024-07-14T09:50:55.189Z
+updated: 2024-07-15T09:50:55.189Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Poco C50
 excerpt: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Poco C50
 keywords: Pokémon Go for C50,Pokemon Go Joystick for C50,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go for C50,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/__rERyiFiVgLZNIfMljI1DDoPFE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tropical-beach-wallpaper-beach-backgrounds-587fbb765f9b584db3241860.jpg
+thumbnail: https://thmb.techidaily.com/238e2de8d5663845563adee13d68f244664dc4975f435870883240d8e13b1f76.jpg
 ---
 
 ## Catch or Beat Sleeping Snorlax on Pokemon Go For Poco C50
@@ -291,6 +291,9 @@ Go to the Google Play Store and download Fake GPS Location to your Poco C50. Ins
 
 **Step 3. Allow mock location**
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![wa stickers](https://images.wondershare.com/drfone/article/2019/09/pokekom-go-teleport-safely-12.jpg)
 
 To get the Mock Location option, you go back to the **‘Settings’** menu. Scroll down search for **‘Allow Mock Locations’** and turn it on when you find it. Allow mocking of the Fake GPS app.
@@ -330,6 +333,9 @@ However, Pokemon go also has levels of friendship and you can trade pokemon of d
 
 The levels of your friendship with a player on Pokemon go increase with the increase in the number of days you stay friends with them. Within a month of friendship, you can become best friends with a player on Pokemon go! You also need stardust points on Pokemon go. So what is stardust trade cost? Before you trade any pokemon you must spend stardust coins. Not having enough stardust trade coins will not allow the trade of pokemon to happen. Hence, you must have enough stardust trade costs.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How much stardust do you need in pokemon trading costs?
 
 Trading in Pokemon go is quite complex. This is because the needed Stardust points will be different in every case and will depend on several factors. Factors such as whether you already half got that Pokemon in your pokedesk or not, the friendship level of you and your friend who are interested in trading, or whether the Pokemon is rare or common. Given below are the Stardust trade costs for each Pokemon.
@@ -341,14 +347,14 @@ Trading in Pokemon go is quite complex. This is because the needed Stardust poin
 - Ultra Friends: 8
 - Best friend: 4
 
-**Shiny or legendary ( caught by you)**
+**Shiny or legendary (caught by you)**
 
 - Good Friend: 20,000
 - Great Friend: 16,000
 - Ultra Friend: 1,600
 - Best Friend: 800
 
-**Shiny or Legendary ( not caught by you)**
+**Shiny or Legendary (not caught by you)**
 
 - Good Friend: 1,000,000
 - Great Friend: 800,000
@@ -357,6 +363,9 @@ Trading in Pokemon go is quite complex. This is because the needed Stardust poin
 
 However, this Stardust trade cost may vary according to the friendship levels! Before trading, you must think of the friendship level between you and your friend and also if the Pokemon which has been traded can be evolved through trading. Evolving Pokemon through trading is another beneficial tactic that could benefit you as a player of Pokemon go.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Ways to increase stardust in pokemon go?
 
 ### 1\. Use Dr.Fone – Virtual Location (iOS/Android)
@@ -375,12 +384,27 @@ Teleport to anywhere in the world
 
 **Step 3:** A new window would now pop up where you can see your current location. If you are unable to see your current location, then click on "center on" icon at the bottom. Doing so will lead you to show your location on the map.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![map screen](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 **Step 4:** Now click on "Teleport mode" using the button on the top right corner of the window. Enter the place you want your location to be set to and then click on "Go". Once done the click on "Move Here". Well, that's it! We're done with changing our location to the desired location!
 
 ![enter location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Exchange the gift with friends to level up a friendship
 
 Pokemon go also allows you to send gifts to your game friends and receive gifts from your game friends. Well, this can help both of you grow and progress in the game and can be a helpful trick to increase Stardust!
@@ -391,7 +415,7 @@ Investing more and more time on the game will lead you to catching more pokemons
 
 ## Conclusion
 
-Well, the article did give us a lot of idea about stardust trade cost and how to increase Stardust trade points in Pokemon go. We dwelled more into major facts about the game and learned a lot about it. We also explored what is drfone-Virtual location ( iOS) and how it can help you to teleport from one place to another! Using the app will help you a lot in improving the game and wouldn't require you to do much! All you've to do is teleport from one place to another, catch more and more pokemons and get more stardust! As a player, it shall improve your stats by a huge margin!
+Well, the article did give us a lot of idea about stardust trade cost and how to increase Stardust trade points in Pokemon go. We dwelled more into major facts about the game and learned a lot about it. We also explored what is drfone-Virtual location (iOS) and how it can help you to teleport from one place to another! Using the app will help you a lot in improving the game and wouldn't require you to do much! All you've to do is teleport from one place to another, catch more and more pokemons and get more stardust! As a player, it shall improve your stats by a huge margin!
 
 
 <ins class="adsbygoogle"
@@ -410,3 +434,46 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/your-guide-to-the-best-budget-friendly-editors-for-2024/"><u>Your Guide to the Best Budget-Friendly Editors for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audience-appeal-the-ultimate-guide-to-youtube-video-formats/"><u>[New] In 2024, Audience Appeal  The Ultimate Guide to YouTube Video Formats</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-the-insiders-guide-to-clearer-communication-via-voicemod-on-discord/"><u>[New] In 2024, The Insider's Guide to Clearer Communication via VoiceMod on Discord</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-official-4-best-ways-to-get-filmora-discount-codes-2022-update/"><u>New In 2024, Official 4 Best Ways to Get Filmora Discount Codes - 2022 Update</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-audio-solutions-for-creators-for-2024/"><u>Prime Audio Solutions for Creators for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-high-end-drones-expert-buyers-choices-top-5/"><u>[New] 2024 Approved  High-End Drones - Expert Buyers' Choices, Top 5</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-your-quick-path-to-multimedia-tweeting/"><u>[Updated] In 2024, Your Quick Path to Multimedia Tweeting</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-list-of-3d-animation-and-modelling-programs/"><u>In 2024, The Ultimate List of 3D Animation and Modelling Programs</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-canons-lut-collection-maximize-image-impact-free-and-paid-choices/"><u>[Updated] Canon’s LUT Collection  Maximize Image Impact - FREE & Paid Choices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-a-friendly-how-to-participating-in-tiktok-livestreams-for-2024/"><u>[New] A Friendly How-To  Participating in TikTok Livestreams for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-top-5-free-avi-video-editing-programs-for-beginners/"><u>New In 2024, Top 5 Free AVI Video Editing Programs for Beginners</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/learn-how-to-record-your-calls-with-google-voice-for-2024/"><u>Learn How to Record Your Calls with Google Voice for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-simplified-transfer-tactics-from-iphone-to-computer/"><u>2024 Approved  Simplified Transfer Tactics From iPhone to Computer</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-12-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme 12 Pro 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/learning-with-legends-top-history-youtube-content-for-learners/"><u>Learning with Legends  Top History YouTube Content for Learners</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-capturecrafter-chronicles-your-2023-software-digest/"><u>[New] 2024 Approved  CaptureCrafter Chronicles  Your 2023 Software Digest</u></a></li>
+</ul></div>

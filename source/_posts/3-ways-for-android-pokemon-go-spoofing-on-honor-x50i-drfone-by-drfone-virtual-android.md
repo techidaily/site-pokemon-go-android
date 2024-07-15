@@ -1,7 +1,7 @@
 ---
 title: 3 Ways for Android Pokemon Go Spoofing On Honor X50i | Dr.fone
-date: 2024-05-19T04:24:06.800Z
-updated: 2024-05-20T04:24:06.800Z
+date: 2024-07-14T08:49:03.348Z
+updated: 2024-07-15T08:49:03.348Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 3 Ways for Android Pokemon Go Spoofing On Honor X50i
 excerpt: This article describes 3 Ways for Android Pokemon Go Spoofing On Honor X50i
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for X50i,Pokémon Go Without Walking,Pokemon Go for X50i,Pokémon Go for X50i
-thumbnail: https://www.lifewire.com/thmb/YiNkR1XmMF85fjzS0zFQ4X75o4Q=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/coffeecup-free-html-editor-profile-3467555-8876645f89c444c8b94addcf4307b22d.png
+thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895e91d61d746d246092f66e50.png
 ---
 
 ## 3 Ways for Android Pokemon Go Spoofing On Honor X50i
@@ -53,6 +53,9 @@ Some of the Virtual Private Networks that I have tried are Express VPN, Nord VPN
 
 **Step 3.** Once the VPN has started working, it will automatically spoof your location. Now, launch Pokemon Go on the Honor X50i device again and access the new location.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![vpn for android](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-3.jpg)
 
 ### 3.2 Use Fake GPS Go
@@ -115,6 +118,9 @@ Before I list some reliable sources for PoGo friend codes, let’s take a look a
 - Discord Servers
 - Selective apps and website dedicated to Pokemon Go
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Find Pokemon go Friend Codes on Discord?
 
 Discord is ideally one of the best places for gamers to play together and find friends. There are tons of Discord servers to find new friends in Pokemon Go. While some Discord servers are solely dedicated to exchanging Pokemon friend codes, others would also provide tons of other game-related details.
@@ -166,6 +172,9 @@ Ideally, there are tons of pages and groups that are solely dedicated to Pokemon
 
 Poke Friends is one of the most popular mobile apps, listing thousands of PoGo friend codes. You can register on the app for free and enter your Pokemon Go trainer code. On the app, you can search for thousands of other Pokemon Go friend codes. There are also different filters to find friends from any particular area or of a certain team to play with.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![poke friends mobile app](https://images.wondershare.com/drfone/2020/202009/poke-friends-mobile-app.jpg)
 
 - **PoGo Trainer Club**
@@ -221,6 +230,9 @@ Evolution items play a significant role in evolving certain species in the Poké
 
 Moon Stone is an evolution stone introduced in generation I. This peculiar stone is used to evolve certain species of Pokémon. In terms of appearance, Moon Stone Pokémon is elliptical and black as the night sky.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![moon stone](https://images.wondershare.com/drfone/2020/moon-stone.jpg)
 
 The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to Lake of Outrage in the Wild area. You will see a body of water on your left and a watt trader standing near it. To cross this water body, you will have to unlock the Rotom Bike from Route 9. When you manage this, check under the eight stones and you might be lucky that one of them might yield a Moon Stone. Also, you can navigate to the Dusty Bowl in the Wild Area. Here, you will find barren stones between a grassy rock and wheat field.
@@ -269,6 +281,9 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 
 **Step 2.** Click the "Get Started" on the subsequent page to access the teleport options.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 **Step 3.** The program will display a new page with three icons at the top-right. Click the third icon to take you to the teleport mode. Again enter the place you want to teleport to in the text field at the top-left of this same window and then hit "Go."
@@ -304,3 +319,72 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/broadcasting-podcasts-on-instagram-features/"><u>Broadcasting Podcasts on Instagram Features</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-oppo-reno-10-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Oppo Reno 10 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/simplify-your-reaction-videos-a-step-by-step-guide-with-filmora/"><u>Simplify Your Reaction Videos A Step-by-Step Guide with Filmora</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/advanced-tips-for-blending-modes-in-vfx/"><u>Advanced Tips for Blending Modes in VFX</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-7-cost-effective-user-friendly-movie-software-for-2024/"><u>[Updated] Top 7 Cost-Effective, User-Friendly Movie Software for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-samsung-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Samsung Phone Forgot Password</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-screen-record-wizard-for-win11-enthusiasts/"><u>[Updated] 2024 Approved  Screen Record Wizard for Win11 Enthusiasts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-direct-audio-streaming-from-spotify-in-discord/"><u>[New] Direct Audio Streaming From Spotify in Discord</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nsuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings-for-2024/"><u>[New] Ensuring Correct Ad Revenue  A Comprehensive Guide to YT Channel Earnings for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-deciphering-your-social-media-shadows-privacy-on-facebook/"><u>2024 Approved  Deciphering Your Social Media Shadows  Privacy on Facebook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-chucklecanvas-jokesinframes/"><u>2024 Approved  ChuckleCanvas  JokesInFrames</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-bring-your-vision-to-life-7-best-movie-intro-design-software/"><u>New In 2024, Bring Your Vision to Life 7 Best Movie Intro Design Software</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-best-assortment-professional-webcam-platforms/"><u>[New] Best Assortment  Professional Webcam Platforms</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-comprehensive-guide-to-creating-viral-youtube-shorts-videos/"><u>[Updated] In 2024, A Comprehensive Guide to Creating Viral YouTube Shorts Videos</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-top-voice-harmonizing-tools-to-enhance-live-performances-online/"><u>New In 2024, Top Voice Harmonizing Tools to Enhance Live Performances Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-xperia-10-v-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Xperia 10 V</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-13-pro-sim-lock-by-drfone-ios/"><u>How to Remove Apple iPhone 13 Pro SIM Lock?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/understanding-the-mechanics-of-vsdc-vs-leading-alternatives-for-2024/"><u>Understanding the Mechanics of VSDC vs Leading Alternatives for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-11-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone 11 In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-twitter-video-dimensions-a-quick-guide-to-getting-it-right/"><u>Updated 2024 Approved Twitter Video Dimensions A Quick Guide to Getting It Right</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-step-by-step-guide-to-captivating-youtube-live-thumbnails/"><u>In 2024, Step-By-Step Guide to Captivating YouTube Live Thumbnails</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-premium-lecture-transcribers-for-learning-institutions/"><u>2024 Approved  Premium Lecture Transcribers for Learning Institutions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-11x-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme 11X 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-ideas-that-will-help-you-out-in-making-transparent-image/"><u>Updated In 2024, Ideas That Will Help You Out in Making Transparent Image</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-switching-onoff-comment-functionality-on-youtube/"><u>2024 Approved  Switching On/Off Comment Functionality on YouTube</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-poco-m6-pro-4g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Poco M6 Pro 4G Through Google Earth?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-webcam-techniques-for-live-recording-powerpoint-for-2024/"><u>[Updated] Webcam Techniques for Live Recording PowerPoint for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-free-video-stabilizer-software-for-windows-and-macos-a-review/"><u>2024 Approved Free Video Stabilizer Software for Windows and macOS A Review</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Honor X9a | Dr.fone
-date: 2024-05-19T04:23:54.014Z
-updated: 2024-05-20T04:23:54.014Z
+date: 2024-07-14T08:31:41.087Z
+updated: 2024-07-15T08:31:41.087Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Honor X9a
 excerpt: This article describes Pokémon Go Cooldown Chart On Honor X9a
 keywords: Pokémon Go for X9a,Pokemon Go Without Walking,Pokemon Go for X9a,Pokemon Go Joystick for X9a,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/EcB--O002zUEaSk7QJHgsZsgFyA=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1198110246-e12a30f2b10645edb984dc66113911c9.jpg
+thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd5201c33fd6a45fd74bf88fe0d.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Honor X9a
@@ -19,6 +19,9 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -223,6 +226,9 @@ Plus, it displays Low Sweep, Rock Tomb, and Brick Break as charged moves. The sp
 
 ### 4\. Oddish
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![oddish pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-5.jpg)
 
 In search of the **best PvP Pokemon Go Great League**, choose Oddish, which has 1389 CP at level 50. Its special moves are Acid and Sludge Bomb, which stand on 9.54 damage per second. It originated in the Kanto region and stands best in Sunny and Cloudy weather.
@@ -277,6 +283,9 @@ Xatu uses Air Slash and Faint Attack in fast moves while using Future Sight, Aer
 | **Weaknesses** | Dark, Electric, Ghost, Ice, Rock |
 | **Resistance** | Fighting, Ground, Grass, Psychic |
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Orbeetle
 
 ![orbeetle pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-9.jpg)
@@ -316,6 +325,9 @@ Notably, it comes up with a max of 2488 CP under level 50 with 198 attack, 146 d
 | **Weaknesses** | Fire, Flying, Poison, Rock, Steel |
 | **Resistance** | Fighting, Dragon, Ground, Bug, Dark, Grass |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4. 5 Strongest Pokémon for Pokémon GO Master League
 
 The Master League allows players to play without any CP limit. It is suitable for trainers in the league to trend all over in PvP battles with high CP. Some Pokemon characters are not popular, but they have the potential to compete in the Master League. Let's uncover them in this section and move one step ahead at your intended rank:
@@ -407,6 +419,9 @@ To use the powerful Pokemon for the PvP league, you should remove the region lim
 
 Establish the connection of your phone to the PC or MacBook upon launching Wondershare Dr.Fone - Virtual Location. Then, move ahead by choosing “Teleport Mode” in the upper right section. This option is the first icon from left to right within that section.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![navigate teleport mode dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 - Step 2. Find the Location To Spoof Using the Search Bar
@@ -537,3 +552,74 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://audio-shaping.techidaily.com/updated-vault-of-unrestricted-guitar-resources-background-sounds-and-artwork-for-2024/"><u>Updated Vault of Unrestricted Guitar Resources Background Sounds and Artwork for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-on-apple-iphone-13-by-drfone-ios/"><u>How To Create an Apple Developer Account On Apple iPhone 13</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-social-media-impact-tiktoks-viral-tweets-at-the-forefront/"><u>[New] Social Media Impact  TikTok's Viral Tweets at the Forefront</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-add-camera-shake-to-video-in-adobe-after-effects/"><u>Updated 2024 Approved Add Camera Shake to Video in Adobe After Effects</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transforming-drones-into-cinematic-experiences-with-editing/"><u>In 2024, Transforming Drones Into Cinematic Experiences with Editing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-zte-nubia-z60-ultra-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on ZTE Nubia Z60 Ultra Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-skyrocket-engagement-optimizing-videos-for-peak-views/"><u>In 2024, Skyrocket Engagement  Optimizing Videos for Peak Views</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-screen-scrapers-companion-easy-steps-to-save-tweets-visuals/"><u>In 2024, Screen Scrapers' Companion  Easy Steps to Save Tweets' Visuals</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/in-2024-top-10-sketch-animation-video-makers/"><u>In 2024, Top 10 Sketch Animation Video Makers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-how-to-harness-googles-potential-for-your-podcasts/"><u>[Updated] How to Harness Google’s Potential for Your Podcasts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-revealing-the-invisible-sounds-in-visual-media-the-pinnacle-of-technology/"><u>Updated 2024 Approved Revealing the Invisible Sounds in Visual Media The Pinnacle of Technology</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/livestream-lifelines-combatting-common-interruption-issues-on-fb-for-2024/"><u>Livestream Lifelines  Combatting Common Interruption Issues on FB for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-ultimate-non-timebound-screen-recording-selection/"><u>[Updated] 2024 Approved  Ultimate Non-Timebound Screen Recording Selection</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-oppo-a38-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-key-10-acoustic-amplifiers-for-android-ios/"><u>[Updated] In 2024, Key 10 Acoustic Amplifiers for Android, iOS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-elevate-your-social-media-hd-1080p-live-videos/"><u>2024 Approved  Elevate Your Social Media  HD (1080P) Live Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-revamp-your-tiktok-videos-insightful-strategies-for-backdrop-changes-for-2024/"><u>[New] Revamp Your TikTok Videos  Insightful Strategies for Backdrop Changes for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-iphone-se-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On iPhone SE?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-vivo-v27-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Vivo V27 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pro-tips-crafting-amazing-time-lapse-on-android-2024/"><u>[New] Pro Tips  Crafting Amazing Time-Lapse on Android 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y78t-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y78t Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-itel-p40-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Itel P40 is off? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-art-of-memetics-a-9gag-creators-manual/"><u>2024 Approved  Mastering the Art of Memetics  A 9GAG Creator's Manual</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-enhance-photo-clarity-with-snapchats-zoom-function/"><u>In 2024, Enhance Photo Clarity with Snapchat's Zoom Function</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-understanding-adobe-storage-alternatives-explained/"><u>2024 Approved  Understanding Adobe Storage, Alternatives Explained</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/best-10-ai-music-composers-for-2024/"><u>Best 10 AI Music Composers for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-migrating-from-spotify-to-a-personalized-youtube-music-list/"><u>[New] 2024 Approved  Migrating From Spotify to a Personalized YouTube Music List</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/top-ranked-windows-10-harmony-conductor-for-2024/"><u>Top-Ranked Windows 10 Harmony Conductor for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-top-10-love-focused-discord-communities/"><u>[New] Top 10 Love-Focused Discord Communities</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-to-snapchat-video-opposites/"><u>2024 Approved  The Ultimate Guide to Snapchat Video Opposites</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-motorola-moto-g23-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Motorola Moto G23 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-realme-v30t-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Realme V30T?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor X50i+ | Dr.fone</u></a></li>
+</ul></div>

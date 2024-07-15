@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Poco C50? | Dr.fone
-date: 2024-05-19T04:24:51.376Z
-updated: 2024-05-20T04:24:51.376Z
+date: 2024-07-14T09:51:54.699Z
+updated: 2024-07-15T09:51:54.699Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Poco C50?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Poco C50?
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick for C50,Pokemon Go for C50,Pokémon Go Without Walking,Pokémon Go for C50,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/znoWsXihZpXFxhbw3VKHAcQ2O3s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1443716794-411cf2c5404b4f35b2a1153826e5a280.jpg
+thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534149e5bce6ee9984dd257b98.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Poco C50?
@@ -109,6 +109,9 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
@@ -147,6 +150,9 @@ One of the most convenient ways for Pokemon go trading without having to travel 
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to use Dr.Fone - Virtual Location to teleport to any location
 
 Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any arbitrary location according to your choice. Suppose, you have a friend in London and you want to trade pokemon with him, you can simply change your location to London and then trade pokemon easily! It's that simple to use!
@@ -161,6 +167,9 @@ Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any
 
 Firstly you need to install the Dr.Fone - Virtual Location setter on your phone. Now on the interface click on "Virtual Location" from the options that you'd see on your screen. Then click on "get started"
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 **Step 2: Connect Device**
@@ -260,6 +269,9 @@ Firstly, you can just connect your iOS device to the computer and launch Dr.Fone
 
 Once your iPhone is connected, its present location would automatically be displayed on the screen. To spoof the Pokemon Go location on iOS, select the “Teleport Mode” option and enter the target location’s address/name/coordinates on the search bar.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
@@ -322,6 +334,9 @@ At first, make sure that your Poco C50 is rooted before you install this Pokemon
 
 You can now launch the application and go to its Settings to enable the Root Mode. Also, make it the default mock location app by visiting the Developer Option on your phone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![FGL Pro Root Mode](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-8.jpg)
 
 **Step 2: Start Simulating the movement of your Poco C50**
@@ -362,3 +377,62 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://voice-adjusting.techidaily.com/revolutionizing-sound-a-list-of-the-11-most-advanced-voice-changers-for-2024/"><u>Revolutionizing Sound A List of the 11 Most Advanced Voice Changers for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-virtualdub-weighing-the-pros-and-cons-against-top-video-editing-alternatives/"><u>Updated In 2024, Virtualdub Weighing the Pros and Cons Against Top Video Editing Alternatives</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-no-budget-no-problem-best-free-mod-video-editors-for-2024/"><u>Updated No Budget, No Problem Best Free MOD Video Editors for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-keep-the-conversation-going-essential-fixes-for-live-video-pauses/"><u>[Updated] Keep the Conversation Going  Essential Fixes for Live Video Pauses</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-building-your-own-youtube-auto-subscribe-url/"><u>[Updated] Building Your Own YouTube Auto-Subscribe URL</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/deciphering-voip-prowess-discord-vs-skype-showdown-for-2024/"><u>Deciphering VoIP Prowess  Discord Vs. Skype Showdown for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-the-potential-of-time-extension/"><u>[New] Unlocking the Potential of Time Extension</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/undo-motion-recapturing-video-from-mobile-devices-for-2024/"><u>Undo Motion  Recapturing Video From Mobile Devices for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-network-transmission-power-with-vlc/"><u>In 2024, Unlocking Network Transmission Power with VLC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-ultimate-path-to-perfecting-adobe-capture-screen-recordings/"><u>[New] 2024 Approved  The Ultimate Path to Perfecting Adobe Capture Screen Recordings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-top-2-ios-video-editors-compared-cameo-versus-filmorago/"><u>[Updated] Top 2 iOS Video Editors Compared  Cameo Versus FilmoraGo</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tailor-made-melodies-your-roadmap-for-playlists/"><u>[New] Tailor-Made Melodies  Your Roadmap for Playlists</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/composing-captivating-cinema-trailers-for-2024/"><u>Composing Captivating Cinema Trailers for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-innovative-shots-with-purpose-top-20-ideas-for-inspiration/"><u>2024 Approved  Innovative Shots with Purpose  Top 20 Ideas for Inspiration</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-full-review-of-logitechs-ultimate-4k-professional-cam/"><u>[New] Full Review of Logitech's Ultimate 4K Professional Cam</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-redirect-mac-images-to-custom-folder-for-2024/"><u>[New] Redirect Mac Images to Custom Folder for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/sky-high-selfies-made-easy-dji-spark-reviewed/"><u>Sky High Selfies Made Easy  DJI Spark Reviewed</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-lava-blaze-curve-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Lava Blaze Curve 5G Phone that is Locked?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Google Pixel 8 Pro | Dr.fone</u></a></li>
+</ul></div>

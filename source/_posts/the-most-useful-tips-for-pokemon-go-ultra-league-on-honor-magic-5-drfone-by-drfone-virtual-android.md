@@ -1,7 +1,7 @@
 ---
 title: The Most Useful Tips for Pokemon Go Ultra League On Honor Magic 5 | Dr.fone
-date: 2024-05-19T04:23:58.241Z
-updated: 2024-05-20T04:23:58.241Z
+date: 2024-07-14T08:37:41.727Z
+updated: 2024-07-15T08:37:41.727Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Most Useful Tips for Pokemon Go Ultra League On Honor Magic 5
 excerpt: This article describes The Most Useful Tips for Pokemon Go Ultra League On Honor Magic 5
 keywords: Pokémon Go for Magic 5,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Magic 5,Pokemon Go for Magic 5
-thumbnail: https://www.lifewire.com/thmb/3UFOh7_Yk35mO3BSnykTStwc6K4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tclsclass-0185b3ecd41d454589d2a9984629b919.jpg
+thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f4891dd7a8e040210befb5bf6c.jpg
 ---
 
 ## The Most Useful Tips for Pokemon Go Ultra League On Honor Magic 5
@@ -115,6 +115,9 @@ However, it’s perhaps safe to say that Pokemon Go Routes is still far from per
 
 In this article, we will discuss how Pokemon Go Routes basically work. We will also talk about the main reasons why **Pokemon Go Routes is not showing up** sometimes. Lastly, we will provide some helpful tips to fix this kind of problem. Continue reading below to learn more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1. How Do Routes in Pokemon Go Work?
 
 The logic behind the Pokemon Go Routes is very simple. There are only two things you need to remember about it. First, you can record a walking path anywhere and submit it for review. Your Route will immediately appear on the Pokemon Go map once it receives approval from the game developer. Of course, the quality and safety of the Route must be checked thoroughly before it becomes available to the public. Another thing about the Route is that you can use it to discover and explore new walking paths near you. All you need to do is pick your preferred Route and finish the entire trail. Afterward, you can obtain special rewards and extra bonus points upon its completion.
@@ -144,6 +147,9 @@ As previously mentioned, the root causes of the Pokemon Go Routes glitch vary fr
 
 It’s possible that the Pokemon Routes are not showing up because you’re too far from them. Try to move around and see if the walking paths will finally appear on your radar. In this case, all you need to do is find the perfect spot where Routes are recorded.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The Pokemon Go application has no adequate location access on your smartphone
 
 ![pokemon go location access](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-5.JPG)
@@ -164,6 +170,9 @@ Keep in mind that the Pokemon Go Routes is an additional game feature. That’s 
 
 Android 6.0 and iOS 14 or higher are the main system requirements of the Pokemon Go application. The Pokemon Go Routes are not working, or perhaps the whole application malfunctions because your software version is too old. Don’t worry. A simple OS update might resolve this problem once and for all.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3. Tips on How to Fix Pokemon Go Routes Not Showing Up
 
 Is Pokemon Go Route not working on your mobile device? Don’t sweat it. There are lots of troubleshooting methods you can try to fix this issue with just the snap of a finger. Check out the list below and find the best solution that works in your current situation.
@@ -174,7 +183,7 @@ Is Pokemon Go Route not working on your mobile device? Don’t sweat it. There a
 - Try to use a newer mobile device when playing Pokemon Go. It’s possible that the Pokemon Go Route is not working because your old smartphone is not compatible with the feature.
 - Visit other locations near you. Who knows? Pokemon Go Routes might finally show up when you travel to a different neighborhood.
 
-## Part 4. [<u>Wondershare Dr.Fone</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/): The Best Alternative When Pokemon Go DeFit is Not Working
+## Part 4. <u>Wondershare Dr.Fone</u>
 
 In simple terms, DeFit is a third-party application that allows trainers to play Pokemon Go without moving physically. You can walk the required distance for egg hatching or explore Routes from the comfort of your own home. However, there have been reports recently about Pokemon Go DeFit not working. Is there a substitute for this software? The short answer is absolutely yes. Wondershare Dr.Fone has a powerful Virtual Location feature that works exactly like DeFit. It can also simulate GPD movement to complete Pokemon Go Routes without going outdoors. Do you want to try it? Here’s a short guide for you.
 
@@ -207,6 +216,9 @@ Pokemon Go is probably one of the most popular location-based augmented reality 
 
 ![Pokemon Go Joystick Banner](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 1: Pokemon Go Joystick 101: Things to Know**
 
 Before we get into the details, it is important to know the basics of this fake GPS Pokemon Go hack. Ideally, Pokemon Go joysticks are dedicated mobile or desktop applications that let us simulate the movement of our device. In most of the spoofing tools for Pokemon Go, the following features are offered.
@@ -255,6 +267,9 @@ While there are numerous benefits of using a Pokemon Go joystick, its constant u
 
     To avoid the banning of your Pokemon Go account, you can consider a “cooldown duration”. This simply suggests waiting for a specific duration before changing your location in the game.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
     ![Pokemon Go Cooldown Duration](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-4.jpg)
 
 - Software Hack on Jailbroken Devices
@@ -300,3 +315,66 @@ I hope that after following this guide, you would be able to know more about the
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-70-lite-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor 70 Lite 5G Without PUK Codes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-which-software-is-best-for-video-stabilization-without-any-cost-in-this-article-i-will-share-some-of-the-best-free-software-for-stabilizin/"><u>New 2024 Approved Which Software Is Best for Video Stabilization without Any Cost? In This Article, I Will Share some of the Best Free Software for Stabilizing Videos After Recording on Windows and Mac Computers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-assessing-if-sns-hdr-deserves-your-investment-time/"><u>2024 Approved  Assessing If SNS HDR Deserves Your Investment Time</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-flare-up-your-content-top-10-trending-tiktok-filters/"><u>In 2024, Flare Up Your Content  Top 10 Trending TikTok Filters</u></a></li>
+<li><a href="https://windows11.techidaily.com/avoidance-of-expiring-notification-in-windows-11-devices/"><u>Avoidance of ‘Expiring’ Notification in Windows 11 Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-realme-12-pro-5g-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Realme 12 Pro 5G Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-atandt-apple-iphone-11-with-3-methods-by-drfone-ios/"><u>How to Unlock AT&T Apple iPhone 11 with 3 Methods</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-5-snipers-essential-windows-cutting-software-for-2024/"><u>Top 5 Snipers  Essential Windows Cutting Software for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-iphone-hdr-photography-tips-and-tricks/"><u>[Updated] IPhone HDR Photography  Tips & Tricks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/8-digital-hubs-offering-free-green-screen-elements-and-scenes-for-2024/"><u>Find 8 Digital Hubs Offering Free Green-Screen Elements & Scenes for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-oppo-reno-11-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-x50i-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor X50i? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-samsung-galaxy-xcover-7-by-drfone-android/"><u>In 2024, How to Bypass FRP on Samsung Galaxy XCover 7?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-screenflow-for-mac-a-full-featured-deep-dive/"><u>[New] ScreenFlow for Mac - A Full Featured Deep Dive</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6s-plus-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6s Plus To Other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-2023-free-music-samples-for-dreaming-up-your-next-visual-project/"><u>Updated 2024 Approved 2023 Free Music Samples for Dreaming Up Your Next Visual Project</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-pioneering-quests-and-thrills-top-10-game-wonders-top-10-for-2024/"><u>[New] Pioneering Quests & Thrills – Top 10 Game Wonders (Top 10) for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-mute-media-magic-a-how-to-guide-for-quieting-soundtracks-in-mov-files-across-operating-systems/"><u>2024 Approved Mute Media Magic A How-To Guide for Quieting Soundtracks in MOV Files Across Operating Systems</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gopro-hero5-black-vs-hero5-standard-for-2024/"><u>GoPro Hero5 Black vs Hero5 Standard for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/gamers-guide-to-enhancing-performance-and-fun/"><u>Gamers' Guide to Enhancing Performance and Fun</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 11 Pro Max</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-mp4-reviews-essential-guidebook/"><u>In 2024, Best MP4 Reviews – Essential Guidebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-focus-on-the-essentials-mastering-close-up-in-videoleap-videos/"><u>[New] Focus on the Essentials  Mastering Close-Up in Videoleap Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/reinitiating-your-gpus-spinning-fans/"><u>Reinitiating Your GPU's Spinning Fans</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-get-noticed-on-social-media-the-power-of-optimized-aspect-ratios/"><u>New 2024 Approved Get Noticed on Social Media The Power of Optimized Aspect Ratios</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-designing-dynamic-podcast-engagements/"><u>[Updated] 2024 Approved  Designing Dynamic Podcast Engagements</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor Play 7T? | Dr.fone</u></a></li>
+</ul></div>

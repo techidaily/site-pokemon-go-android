@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Google Pixel 8 Pro? | Dr.fone
-date: 2024-05-19T04:23:52.481Z
-updated: 2024-05-20T04:23:52.481Z
+date: 2024-07-14T08:29:27.776Z
+updated: 2024-07-15T08:29:27.776Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Google Pixel 8 Pro?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Google Pixel 8 Pro?
 keywords: Pokémon Go for Pixel 8 Pro,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Pixel 8 Pro,Pokemon Go Joystick Without Walking,Pokemon Go for Pixel 8 Pro
-thumbnail: https://www.lifewire.com/thmb/U4MhHoz9AdQJe4tEoeV-ONBuCas=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/sony-ps5-d3975e63d2ff47e6ac4e81768b79801c.jpg
+thumbnail: https://thmb.techidaily.com/0aeedb6f0e08290ddfa4945f77d0426cb986cac7f0c8ef179d1c62c13237705d.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Google Pixel 8 Pro?
@@ -78,6 +78,9 @@ This might seems weird but this trick has been working to quiet some time now an
 
 Just long-press the power button and choose the reboot option from the menu that appears to complete the process in full.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
@@ -88,6 +91,9 @@ Just long-press the power button and choose the reboot option from the menu that
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The Process
 
 **Step 1: Program Installation**
@@ -142,6 +148,9 @@ _**“All that just to hatch a pidgey?”**_
 
 Here comes the Pokemon Go Ultra League! Now you can battle other strangers, friends, and trainers alike to lift the ranks and win exciting prizes. Though the official season has already arrived, it’s not too late to be a part of the fun! Without any doubt, the coming of the best Ultra League Pokemon is now offering you a chance to battle out your sets of Pokemon against players across the globe. This game of regions and countries needs effective strategies so that players pick out the best collection of Pokemon, representing your team against other nations.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Pokemon Go Ultra League](https://drfone.wondershare.com/2020/Pokemon-Go-Ultra-League.jpg)
 
 Isn’t it getting too enticing to dive in? What’s next? Before you set yourself on the ground, gear up for knowing the most useful tips for Pokemon Go Ultra League. You will be thankful for these tips later!
@@ -226,6 +235,9 @@ Now, you can easily view your position moving on the map with the cycle’s spee
 
 Who has given a thought to the involvement of a navigation app for experiencing the best ultra league PVP pokemon go? Experience the game and have fun!
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do You Get Sun Stone Evolutions in Pokémon For Google Pixel 8 Pro?
 
 ![pokémon go sun stone](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions.jpg)
@@ -256,6 +268,9 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
@@ -382,3 +397,74 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-360-degree-panoramic-shot-systems/"><u>2024 Approved  360 Degree Panoramic Shot Systems</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/master-the-art-of-instagram-looped-footage/"><u>Master the Art of Instagram Looped Footage</u></a></li>
+<li><a href="https://extra-information.techidaily.com/massive-popularity-in-stock-imagery-tales-of-success/"><u>Massive Popularity in Stock Imagery  Tales of Success</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fortnite-thumbnail-blitz-a-30-second-guide/"><u>[New] 2024 Approved  Fortnite Thumbnail Blitz  A 30-Second Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-illusions-with-video-edits/"><u>[Updated] Crafting Illusions with Video Edits</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-infinix-gt-10-pro-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-mp3-to-mp4-conversion-checklist-dont-forget-these-crucial-steps/"><u>Updated MP3 to MP4 Conversion Checklist Dont Forget These Crucial Steps</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-chroma-key-on-a-budget-top-free-green-screen-apps-for-android-and-ios/"><u>2024 Approved Chroma Key on a Budget Top Free Green Screen Apps for Android and iOS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-a-step-by-step-roadmap-for-masterful-instagram-photos/"><u>[New] A Step-by-Step Roadmap for Masterful Instagram Photos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-photo-and-video-size-adjustment-guide-for-2024/"><u>Instagram Photo and Video Size Adjustment Guide for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/total-byte-requirement-for-24-hours-of-movie-viewing/"><u>Total Byte Requirement for 24 Hours of Movie Viewing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-uncomplicated-tutorial-for-capturing-mac-screenshots-for-2024/"><u>[Updated] Uncomplicated Tutorial for Capturing Mac Screenshots for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-motorola-edge-40-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Motorola Edge 40</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-cut-to-the-chase-leading-video-editors-for-android-and-windows/"><u>[New] Cut to the Chase  Leading Video Editors for Android and Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/app-analysis-vll-perspective/"><u>App Analysis  VLL Perspective</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-reversing-the-fortunes-of-zero-views-on-your-youtube-videos/"><u>[New] Reversing the Fortunes of ZERO Views on Your YouTube Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-11-strategies-for-boosting-your-youtube-videos-visibility/"><u>In 2024, Top 11 Strategies for Boosting Your YouTube Videos' Visibility</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-amplify-your-anonymity-on-skype-with-essential-voice-alteration-utilities-for-2024/"><u>Updated Amplify Your Anonymity on Skype with Essential Voice Alteration Utilities for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-nokia-g310-lock-screen-password-by-drfone-android/"><u>How To Change Nokia G310 Lock Screen Password?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/your-macs-screen-in-hd-zero-price-for-2024/"><u>Your Mac's Screen in HD - Zero Price for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-12-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme 12 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-unlock-tiktoks-full-potential-understanding-aspect-ratio/"><u>2024 Approved Unlock TikToks Full Potential Understanding Aspect Ratio</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-discovering-the-magic-filmora-editors-top-10-highlights/"><u>In 2024, Discovering the Magic  Filmora Editor's Top 10 Highlights</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/perfect-your-content-with-top-tier-title-tactics/"><u>Perfect Your Content with Top-Tier Title Tactics</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/what-lies-beneath-the-surface-of-instagrams-reels/"><u>What Lies Beneath the Surface of Instagram's Reels</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-no-budget-maximum-fun-best-free-tiktok-editors-for-macos/"><u>[New] No Budget, Maximum Fun  Best FREE TikTok Editors for MacOS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme 12 5G | Dr.fone</u></a></li>
+</ul></div>

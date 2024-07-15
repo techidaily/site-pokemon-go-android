@@ -1,7 +1,7 @@
 ---
 title: In 2024, What is the best Pokemon for pokemon pvp ranking On Tecno Spark 20 Pro? | Dr.fone
-date: 2024-05-19T04:23:41.100Z
-updated: 2024-05-20T04:23:41.100Z
+date: 2024-07-14T08:13:53.393Z
+updated: 2024-07-15T08:13:53.393Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What is the best Pokemon for pokemon pvp ranking On Tecno Spark 20 Pro?
 excerpt: This article describes What is the best Pokemon for pokemon pvp ranking On Tecno Spark 20 Pro?
 keywords: Pokemon Go for Spark 20 Pro,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for Spark 20 Pro,Pokemon Go Joystick for Spark 20 Pro
-thumbnail: https://www.lifewire.com/thmb/UgZFn1LjdiPD7yj2MRRWCGpAQWY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/d-link-default-password-list-2619152-d6281a924f45426f879c8707220ce92d.png
+thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01fc1cf31d37490fb679a3c33d.png
 ---
 
 ## What is the best Pokemon for pokemon pvp ranking On Tecno Spark 20 Pro?
@@ -35,6 +35,9 @@ There are lots of sensible reasons why you should engage in the Pokemon Go PvP r
 
 Doing the same thing over and over sometimes frustrates us. Therefore, playing Pokemon Go PvP rank battles for a change of scenery is great. It somehow gives us a perfect dose of distraction at times when we feel bored and unmotivated.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### It allows players to learn new gaming skills and improve their techniques
 
 Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly fun activities. However, these tasks are not enough to give players a very constructive gaming training. You must participate in certain undertakings like the Pokemon Go PvP rank battles to hone your gaming skills efficiently. Don’t worry. You can take it slowly and try to work your way up one step at a time.
@@ -84,7 +87,7 @@ Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check o
 - Your priority during the Pokemon Go PvP rank battle is to cause damage to your opponent. It’s a tough job unless you’re aware of the Pokemon’s weaknesses and strengths. Study the type advantages of Pokemon so that you can intelligently strategize during the match.
 - Deploy Charged Attacks as often as possible during the battle. As for your defense, make sure to utilize Protect Shield for the most valuable member of your team.
 
-## Part 4. Win Pokemon Go PvP Rank Battles With [<u>Wondershare Dr.Fone</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
+## Part 4. Win Pokemon Go PvP Rank Battles With <u>Wondershare Dr.Fone</u>
 
 It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on how well you prepare. That’s why you should catch as many strong Pokemon as possible beforehand. Sure. Catching Pokemon in the wild is not as easy as falling off a log. You have to travel a distance and wander aimlessly until you come across your target. But did you know that there’s actually a tool that can help you do all this stuff without going outdoors? Yes. Wondershare Dr.Fone has a potent Virtual Location feature capable of modifying your current whereabouts and simulating GPS movements. Do you want to try it out? Here’s a short guide to get you started.
 
@@ -99,6 +102,9 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 
 - **Step 5:** Configure the settings according to your liking. Start by specifying your preferred number and type of trips. Then, adjust the movement speed by dragging the slider from left to right. After that, it’s time to commence the simulation. Click **Move Here** to proceed. If you wish to reset your inputs, click **Clear** instead.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![simulation settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
 - **Step 6:** The simulation will begin in a second. Use the details on the map to monitor the real-time progress. If you wish to halt the movement for a little while, click **Pause.** Should you wish to start all over again, click **Clear** instead and repeat the entire process one more time.
@@ -149,6 +155,9 @@ The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physi
 
 ### Check your mobile device and internet connection very well
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![smartphone and internet power](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-3.JPG)
 
 It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
@@ -193,6 +202,9 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 - **Step 3:** Go to the left-side panel and then click **Toolbox.** On the main dashboard, click **Virtual Location.** Let Wondershare Dr.Fone download additional resources if it’s your first time accessing this feature.
 - **Step 4:** After the download process has been completed, Wondershare Dr.Fone - Virtual Location will then open in a separate window. From there, go to the top-right menu bar and then click **One-Stop Route.** The starting point for this simulation will be automatically determined based on your current location. If you wish to change it, simply click **Teleport Mode** on the menu bar and then choose your desired replacement. As for the destination, search for your preferred location or tap anywhere around the map on the screen.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
 - **Step 5:** Calibrate the provided settings according to your liking. Start by specifying your preferred type and number of trips. After that, adjust the movement speed by dragging the slider from left to right. Once you’re done, commence the simulation immediately. Click **Move Here.** If you wish to reset your inputs, click **Clear** instead.
@@ -201,6 +213,9 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 - **Step 6:** Use the map on the screen as your guide to track down the real-time progress of the simulation. If you wish to put the movement on hold for a little while, click **Pause.** On the other hand, click **Clear** if you want to start all over again.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 ## Conclusion
@@ -365,3 +380,67 @@ In conclusion, the pursuit of capturing a **Snorlax Pokémon sleeping** in Poké
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tap-into-tagging-techniques-for-6kplus-youtube-vistas/"><u>Tap Into #Tagging Techniques for $6K+ YouTube Vistas</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-efficiently-achieving-color-background-separation/"><u>[New] 2024 Approved  Efficiently Achieving Color Background Separation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-guidelines-for-responsible-content-disclosure-in-online-spaces-like-fb/"><u>[Updated] In 2024, Guidelines for Responsible Content Disclosure in Online Spaces Like FB</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/selective-picture-smoothing-made-simple/"><u>Selective Picture Smoothing Made Simple</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-v30-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-v30-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/pitch-perfect-how-to-add-songs-to-your-snapchat-content-for-2024/"><u>Pitch Perfect  How to Add Songs to Your Snapchat Content for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-driving-traffic-and-likes-a-guide-for-instagram-pros-for-2024/"><u>[Updated] Driving Traffic & Likes  A Guide for Instagram Pros for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-v30-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-v30-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme V30? Fixed | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-mastering-the-art-of-speech-to-text-with-google-ai-for-2024/"><u>[New] Mastering the Art of Speech-to-Text with Google AI for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-separation-to-symbiosis-logic-pro-x-audio-blending/"><u>2024 Approved  From Separation To Symbiosis  Logic Pro X Audio Blending</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-v30-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-on-your-iphone-xs-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID on Your iPhone XS?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-v30-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-y02t-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-vivo-v27-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Vivo V27 Device</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-realme-v30-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-v30-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-v30-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-v30-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-v30-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-elite-after-effects-plugins-compendium-for-2024/"><u>Unveiling the Elite After Effects Plugins Compendium for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-word-2016-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign Word 2016 electronically</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-add-text-in-after-effects-for-2024/"><u>New How To Add Text In After Effects for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/isual-description-programmer-for-2024/"><u>[New] Visual Description Programmer for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-how-to-nail-your-tweets-with-correct-videos-for-2024/"><u>[New] How to Nail Your Tweets with Correct Videos for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevating-your-channels-profits-with-impactful-and-effective-trailers/"><u>In 2024, Elevating Your Channels' Profits with Impactful and Effective Trailers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-samsung-galaxy-s23-fe-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Samsung Galaxy S23 FE Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-v30-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-ultimate-guide-to-your-first-adobe-presenter-video/"><u>[Updated] In 2024, The Ultimate Guide to Your First Adobe Presenter Video</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-simple-guide-sharing-tweets-with-imagesvideos-directly-to-twitter-for-2024/"><u>[Updated] Simple Guide  Sharing Tweets with Images/Videos Directly to Twitter for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boost-online-presence-innovative-youtube-channel-names/"><u>2024 Approved  Boost Online Presence  Innovative YouTube Channel Names</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-crafting-perfect-lines-in-digital-imagery/"><u>[Updated] In 2024, Crafting Perfect Lines in Digital Imagery</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-shutter-societys-top-six-elite-4k-dslr-picks/"><u>[Updated] 2024 Approved  Shutter Society's Top Six  Elite 4K DSLR Picks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-maximize-mobile-video-quality-top-4-strategies-to-brighten-iphone-hdr-in-adobe/"><u>[Updated] Maximize Mobile Video Quality  Top 4 Strategies to Brighten iPhone HDR in Adobe</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-influencers-utopia-summit/"><u>[Updated] In 2024, Influencers' Utopia Summit</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-v30-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme V30 | Dr.fone</u></a></li>
+</ul></div>

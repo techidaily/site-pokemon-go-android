@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic 5 | Dr.fone
-date: 2024-05-19T04:23:58.776Z
-updated: 2024-05-20T04:23:58.776Z
+date: 2024-07-14T08:38:25.783Z
+updated: 2024-07-15T08:38:25.783Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic 5
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic 5
 keywords: Pokémon Go Without Walking,Pokémon Go for Magic 5,Pokemon Go Without Walking,Pokemon Go Joystick for Magic 5,Pokemon Go Joystick Without Walking,Pokemon Go for Magic 5
-thumbnail: https://www.lifewire.com/thmb/s_49EdazIwlAKelLWFU8LSaOlMk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-585151372-a659baf0c7b441b9b7e7896716b12784.jpg
+thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326cf6eb9f144fb267795cd5a9a.jpg
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic 5
@@ -61,6 +61,9 @@ With Dr.Fone - Virtual Location launched on your computer, connect your smartpho
 
 The cursor on the map screen will move to the location you have entered on the map. If you want to move there when spoofing your location, click "Move Here." It will change the location on the map screen and on your device to the location you entered. You can confirm it by accessing your smartphone and opening a map application.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![move to location virtually](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 **Step 3: Simulate Movement and Configure Route**
@@ -176,10 +179,16 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Actions that Do trigger cooldown?
 
 The main reasons for a soft ban are GPS spoofing, changing your location to a distant place in a short time, and traveling too fast to combat playing while driving. Sharing accounts is another reason.
@@ -226,6 +235,18 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -327,6 +348,9 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
@@ -439,3 +463,69 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-how-to-innovate-transforming-raw-footage-into-youtube-thumbnails-via-smartphones/"><u>[New] In 2024, How to Innovate  Transforming Raw Footage Into YouTube Thumbnails via Smartphones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-best-youtube-video-trimmers-online-for-2024/"><u>[Updated] 10 Best YouTube Video Trimmers Online for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-game-on-the-leading-12-youtube-videographers-for-opening-tutorials-freepaid/"><u>[Updated] Game On  The Leading 12 YouTube Videographers for Opening Tutorials (Free/Paid)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/cam-division-is-splitcam-the-1-choice-for-2024/"><u>Cam Division  Is SplitCam the #1 Choice for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-text-preset-mastery/"><u>2024 Approved  The Ultimate Guide to Text Preset Mastery</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-driving-social-media-success-with-smart-fb-ad-production-for-2024/"><u>[Updated] Driving Social Media Success with Smart FB Ad Production for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-demystifying-the-process-a-comprehensive-guide-to-pc-tiktok-streams/"><u>In 2024, Demystifying the Process  A Comprehensive Guide to PC TikTok Streams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-break-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion/"><u>[Updated] In 2024, Break Down Long-Form Videos  The Insider's Guide to YouTube Chapter Inclusion</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/elite-cameras-for-windows-11-pro-review-of-the-latest-gear-for-2024/"><u>Elite Cameras for Windows 11 - Pro Review of the Latest Gear for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-how-to-add-subtitlescaptions-in-final-cut-pro-x/"><u>2024 Approved How to Add Subtitles/Captions in Final Cut Pro X?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-fbx-techniques-for-capturing-games-for-2024/"><u>Essential FBX Techniques for Capturing Games for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-immersive-inventory-visualization/"><u>2024 Approved  Immersive Inventory Visualization</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-create-stunning-video-invitations-for-free-top-tools-for-2024/"><u>New Create Stunning Video Invitations for Free Top Tools for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-ultimate-filmmaking-journey-via-youtube-channels/"><u>2024 Approved  Ultimate Filmmaking Journey via YouTube Channels</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-lengthy-iphone-photo-captures/"><u>2024 Approved  Mastering Lengthy iPhone Photo Captures</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/premium-pfr-rate-for-easy-going-footage-for-2024/"><u>Premium PFR Rate for Easy-Going Footage for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expertly-edit-extravagant-tiktoks-your-key-to-less-overloaded-drafts-for-2024/"><u>Expertly Edit Extravagant TikToks  Your Key to Less Overloaded Drafts for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-apple-iphone-se-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from Apple iPhone SE iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-master-your-craft-best-drawing-tools-on-the-chromebook-spectrum/"><u>[New] 2024 Approved  Master Your Craft  Best Drawing Tools on the Chromebook Spectrum</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fast-forward-your-twitch-experience/"><u>[Updated] Fast-Forward Your Twitch Experience</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-best-way-to-perform-obs-streaming/"><u>[New] In 2024, Best Way to Perform OBS Streaming</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transforming-ordinary-sessions-into-visual-extravaganzas-in-zoom/"><u>[Updated] Transforming Ordinary Sessions Into Visual Extravaganzas in Zoom</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-oneplus-ace-2v-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On OnePlus Ace 2V Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-top-10-customizable-tikfilters-for-unique-content-for-2024/"><u>[Updated] Top 10 Customizable TikFilters for Unique Content for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-skin-care-secrets-unveiled/"><u>2024 Approved  Skin Care Secrets Unveiled</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-motorola-edge-40-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Motorola Edge 40 Pro Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-realme-narzo-60-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Realme Narzo 60 5G Fingerprint Lock</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-easy-speech-alteration-for-sony-playstation-devices/"><u>2024 Approved  Easy Speech Alteration for Sony PlayStation Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-a-detailed-exploration-into-sourcing-high-quality-backdrops/"><u>2024 Approved  A Detailed Exploration Into Sourcing High-Quality Backdrops</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/digital-tales-fundamentals-the-core-principles/"><u>Digital Tales Fundamentals  The Core Principles</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor Play 8T? | Dr.fone</u></a></li>
+</ul></div>

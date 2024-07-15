@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Realme 11 Pro | Dr.fone
-date: 2024-03-26 13:36:45
-updated: 2024-03-27 21:48:30
+date: 2024-07-14T10:39:50.858Z
+updated: 2024-07-15T10:39:50.858Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Realme 11 Pro
 excerpt: This article describes Pokémon Go Cooldown Chart On Realme 11 Pro
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for 11 Pro,Pokémon Go Without Walking,Pokémon Go for 11 Pro,Pokemon Go Without Walking,Pokemon Go for 11 Pro
-thumbnail: https://www.lifewire.com/thmb/_atXbVpqt-bBP3NhxI9aFSkiOqU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1305200685-e977d0ca4e9a47e2b006e5b32a9922fd.jpg
+thumbnail: https://thmb.techidaily.com/d0c9b7047797b18daa1e1aa41be92c363eb13ba8f8bfa2b570a90a8bfa430bd1.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Realme 11 Pro
@@ -51,6 +51,9 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -140,6 +143,9 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Voila! You have teleported your location to the desired place.
@@ -177,6 +183,9 @@ You can evolve it into Mega Pachirisu with mega gems, but more evolution isn’t
 
 <table><tbody><tr><td><b>Pokemon No</b></td><td>417</td></tr><tr><td><b>Maximum CP</b></td><td>1372</td></tr><tr><td><b>Attack</b></td><td>94</td></tr><tr><td><b>Stamin</b>a</td><td>155</td></tr><tr><td><b>Defense</b></td><td>172</td></tr><tr><td><b>Height</b></td><td>0.4m</td></tr><tr><td><b>Weight</b></td><td>3.9kg</td></tr></tbody></table>
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Where to catch Pachirisu?
 
 As you know, some Pokemons like Pachirisu can be region-specific. Mostly, it is observed that Pachirisu is spawned in the northern regions of Canada, Alaska, and Russia. You can find it in the wildering, electric hubs, parks, and even some colder regions. Since it can hide pretty well, you would have to keep a keen eye to look for it. A Pokemon Go regional map for Pachirisu can further help you.
@@ -219,6 +228,9 @@ PokeHunter is a well-known Pokemon GO tracker that provides exact information on
 
 ![pokehunter pokemon go map](https://images.wondershare.com/drfone/article/2024/01/pachirisu-pokemon-go-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## Part 3: How to Catch Pachirisu on Pokemon Go from Home?
 
 If you don’t live in Canada, Alaska, or Russia, where Pachirisu is naturally spawned, then catching it can be tough. To make things easier, you can just use a location spoofer application. While there are plenty of mock GPS apps for Android devices, iPhone users often find it hard to spoof their device location. Well, in this case, I would suggest [Dr.Fone – Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) that can spoof your iPhone location without jailbreaking it.
@@ -305,14 +317,14 @@ Trading in Pokemon go is quite complex. This is because the needed Stardust poin
 - Ultra Friends: 8
 - Best friend: 4
 
-**Shiny or legendary ( caught by you)**
+**Shiny or legendary (caught by you)**
 
 - Good Friend: 20,000
 - Great Friend: 16,000
 - Ultra Friend: 1,600
 - Best Friend: 800
 
-**Shiny or Legendary ( not caught by you)**
+**Shiny or Legendary (not caught by you)**
 
 - Good Friend: 1,000,000
 - Great Friend: 800,000
@@ -353,9 +365,12 @@ Pokemon go also allows you to send gifts to your game friends and receive gifts 
 
 Investing more and more time on the game will lead you to catching more pokemons which will, in turn, lead to getting more stardust! Hence play it regularly with continuity!
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
-Well, the article did give us a lot of idea about stardust trade cost and how to increase Stardust trade points in Pokemon go. We dwelled more into major facts about the game and learned a lot about it. We also explored what is drfone-Virtual location ( iOS) and how it can help you to teleport from one place to another! Using the app will help you a lot in improving the game and wouldn't require you to do much! All you've to do is teleport from one place to another, catch more and more pokemons and get more stardust! As a player, it shall improve your stats by a huge margin!
+Well, the article did give us a lot of idea about stardust trade cost and how to increase Stardust trade points in Pokemon go. We dwelled more into major facts about the game and learned a lot about it. We also explored what is drfone-Virtual location (iOS) and how it can help you to teleport from one place to another! Using the app will help you a lot in improving the game and wouldn't require you to do much! All you've to do is teleport from one place to another, catch more and more pokemons and get more stardust! As a player, it shall improve your stats by a huge margin!
 
 
 <ins class="adsbygoogle"
@@ -372,3 +387,60 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-guide-to-top-12-free-and-paid-gaming-introduction-creators-for-2024/"><u>[Updated] Essential Guide to Top 12 Free and Paid Gaming Introduction Creators for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-spoofing-success-the-path-to-parody-proficiency/"><u>In 2024, Spoofing Success  The Path to Parody Proficiency</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-top-10-heavy-lift-drones-you-should-know/"><u>[New] Top 10 Heavy Lift Drones You Should Know</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-a-user-friendly-guide-to-board-integration-in-desktopiosandroid-zoom-meetings/"><u>2024 Approved  A User-Friendly Guide to Board Integration in Desktop/iOS/Android Zoom Meetings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/wave-goodbye-to-dullness-the-ultimate-list-of-funny-youtubers/"><u>Wave Goodbye to Dullness  The Ultimate List of Funny YouTubers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-colors-unleashed-practical-application-of-color-theory/"><u>In 2024, Colors Unleashed  Practical Application of Color Theory</u></a></li>
+<li><a href="https://network-issues.techidaily.com/guaranteed-straighten-out-for-monitors/"><u>Guaranteed Straighten-Out for Monitors</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-honor-v-purse-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Honor V Purse? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-pc-guide-extract-twitters-funny-images/"><u>[New] In 2024, PC Guide  Extract Twitter's Funny Images</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/s-best-video-editors-for-4k-proxy-footage-expert-recommendations-for-2024/"><u>S Best Video Editors for 4K Proxy Footage Expert Recommendations for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/dissecting-video-ranking-algorithms-on-youtube-for-2024/"><u>Dissecting Video Ranking Algorithms on YouTube for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-soundsreview-summary/"><u>In 2024, SoundsReview Summary</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-spark-10-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Spark 10 Pro</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-earning-blueprint-achieving-bank-balances/"><u>[New] YouTube Earning Blueprint  Achieving Bank Balances</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-these-titles-emphasize-the-process-or-techniques-involved-in-removing-or-isolating-audio-from-video-content-maintaining-a-similar-meaning-and-focus-as-h/"><u>New These Titles Emphasize the Process or Techniques Involved in Removing or Isolating Audio From Video Content, Maintaining a Similar Meaning and Focus as How to Remove Audio From Video.</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-selecting-the-best-ten-spotify-recording-software/"><u>In 2024, Selecting the Best Ten Spotify Recording Software</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-11-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone 11 Data From iCloud? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-ultimate-sound-guide-for-your-android-devices-customization/"><u>[Updated] The Ultimate Sound Guide for Your Android Device's Customization</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-boost-your-conversation-style-with-free-emoji-treasures-online-for-2024/"><u>[New] Boost Your Conversation Style with FREE Emoji Treasures Online for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/free-your-movies-how-to-convert-dvds-to-digital-video-formats-for-2024/"><u>Free Your Movies How to Convert DVDs to Digital Video Formats for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/if-you-are-looking-for-an-open-source-cross-platform-video-editor-shotcut-is-a-great-choice-for-2024-but-is-it-truly-the-best-video-editor-or-is-there-a-bet/"><u>If You Are Looking for an Open-Source, Cross-Platform Video Editor, Shotcut Is a Great Choice for 2024 But Is It Truly the Best Video Editor or Is There a Better Alternative Available?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-showtime-media-centre-all-media-in-one-app/"><u>2024 Approved  SHOWTIME Media Centre  All Media in One App</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor V Purse | Dr.fone</u></a></li>
+</ul></div>

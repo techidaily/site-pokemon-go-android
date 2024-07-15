@@ -1,7 +1,7 @@
 ---
 title: In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Play 8T | Dr.fone
-date: 2024-05-19T04:24:22.133Z
-updated: 2024-05-20T04:24:22.133Z
+date: 2024-07-14T09:10:41.502Z
+updated: 2024-07-15T09:10:41.502Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Play 8T
 excerpt: This article describes Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Play 8T
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go for Play 8T,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Play 8T,Pokémon Go for Play 8T
-thumbnail: https://www.lifewire.com/thmb/44IYkFUfRU4h-daoi0uxZYAKRhI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lifewire_Windows_Update_2624595-9da08302ecc44539b8f0fa484a81227e.jpg
+thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c32a9023581f934b16334c5a.jpg
 ---
 
 ## Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Play 8T
@@ -19,6 +19,9 @@ _**“How to plan the PvP Pokemon matches and are there some strategies that I n
 
 Ever since the Pokemon Go PvP mode has been introduced by Nintendo, there has been a lot of confusion among the players. Ideally, you can partake in a Pokemon PvP battle locally or remotely. It is a 3 vs. 3 battle in which you have to select your best Pokemons to fight with other trainers. To help you become a PvP Poke master, I have come up with this detailed guide that will certainly come in handy.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![pokemon pvp battle tips banner](https://images.wondershare.com/drfone/2020/pokemon-pvp-battle-tips-banner.jpg)
 
 ## Part 1: Pro Strategies to Follow in PvP Pokemon Go Battles
@@ -76,12 +79,18 @@ During any PvP Poke battle, keep a count of your opponent’s moves to calculate
 
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tip 7: Sacrifice Swap
 
 This might sound surprising, but sometimes we have to sacrifice a Pokemon in a fight to win the battle. For instance, you can consider sacrificing a Pokemon that is at low energy and won’t be of much help later.
 
 In this way, you can swap it in the battle and let it take all the charge attack of your opponent. Once the Pokemon is sacrificed and has drained the opponent’s Pokemon, you can place another Pokemon to claim the victory.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: What Changes should be implemented in Pokemon Go PvP?
 
 Even after the much-anticipated release of PoGo PvP, a lot of players are not satisfied with it. If Nintendo wants to improve Pokemon PvP and make their players happy, then the following changes should be made.
@@ -162,6 +171,9 @@ While keeping track of where each regional Pokemon spawns can be pretty confusin
 
 Alternatively, players can use virtual location-changing tools like Wondershare Dr.Fone, and today, we’ll show you how to catch all **Pokemon GO regional exclusives** with this easy-to-use app.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1. What Are Regional Pokemon?
 
 Regional Pokemon are exclusive creatures in Niantic’s Pokemon GO AR game that only live in specific regions across the globe. The area in which a particular Pokemon can be found depends on the nature of that Pokemon. For example, Tropius can only be found in tropical parts of the continent.
@@ -216,7 +228,7 @@ However, there’s also an alternative to traveling and trading, as countless vi
 
 Using Dr.Fone to change your virtual location is remarkably straightforward and can be done in a few steps. Here’s how:
 
-1. Download the app from [<u>the official website</u>](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/)and install it on your computer.
+1. Download the app from [<u>the official website</u>](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/) and install it on your computer.
 
 
 
@@ -352,7 +364,7 @@ Is Pokemon Go Route not working on your mobile device? Don’t sweat it. There a
 - Try to use a newer mobile device when playing Pokemon Go. It’s possible that the Pokemon Go Route is not working because your old smartphone is not compatible with the feature.
 - Visit other locations near you. Who knows? Pokemon Go Routes might finally show up when you travel to a different neighborhood.
 
-## Part 4. [<u>Wondershare Dr.Fone</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/): The Best Alternative When Pokemon Go DeFit is Not Working
+## Part 4. <u>Wondershare Dr.Fone</u>
 
 In simple terms, DeFit is a third-party application that allows trainers to play Pokemon Go without moving physically. You can walk the required distance for egg hatching or explore Routes from the comfort of your own home. However, there have been reports recently about Pokemon Go DeFit not working. Is there a substitute for this software? The short answer is absolutely yes. Wondershare Dr.Fone has a powerful Virtual Location feature that works exactly like DeFit. It can also simulate GPD movement to complete Pokemon Go Routes without going outdoors. Do you want to try it? Here’s a short guide for you.
 
@@ -367,6 +379,9 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 - **Step 5:** Calibrate the necessary settings according to your liking. Start by choosing your preferred type and number of trips. Right after, adjust the movement speed by moving the slider from left to write. Then, click **Move Here** to commence the simulation. If you wish to reset your inputs, click **Clear** instead.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
 - **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
@@ -396,3 +411,67 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-in-depth-review-of-splitcam-leading-camera-tech/"><u>[Updated] In 2024, In-Depth Review of SplitCam  Leading Camera Tech?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-telltale-signs-your-chat-is-hidden/"><u>[New] 2024 Approved  Telltale Signs Your Chat Is Hidden</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-top-voice-changer-app-magic-call-and-its-alternatives/"><u>[New] Top Voice Changer App  Magic Call and Its Alternatives</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-a-little-over-a-decade-later-whiteboard-animations-are-used-for-a-wide-array-of-purposes-that-range-from-explainer-to-educational-vide/"><u>Updated 2024 Approved A Little over a Decade Later, Whiteboard Animations Are Used for a Wide Array of Purposes that Range From Explainer to Educational Videos. Weve Combed the Internet to Find the Best Whiteboard Animati</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevating-your-vlogs-a-list-of-the-top-12-professional-cameras/"><u>In 2024, Elevating Your Vlogs  A List of the Top 12 Professional Cameras</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-charting-success-with-these-top-15-youtube-introduction-techniques-for-2024/"><u>[New] Charting Success with These Top 15 YouTube Introduction Techniques for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-google-pixel-fold-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Google Pixel Fold? Fixed | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-windows-1087-video-editing-tutorial-master-microsoft-video-editor/"><u>2024 Approved Windows 10/8/7 Video Editing Tutorial Master Microsoft Video Editor</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-angles-unleashed-dive-into-our-11-best-bridge-cameras-review/"><u>[New] Angles Unleashed  Dive Into Our 11 Best Bridge Cameras Review</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-ultimate-guide-to-navigating-tiktok-with-top-7-emojis/"><u>[New] The Ultimate Guide to Navigating TikTok with Top 7 Emojis</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-on-your-iphone-xr-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID on Your iPhone XR?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-seamless-screens-and-cameras-recording-methods-for-2024/"><u>[Updated] Seamless Screens & Cameras Recording Methods for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quick-tips-modifying-snapchat-video-velocity-for-2024/"><u>Quick Tips  Modifying Snapchat Video Velocity for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-the-art-of-dividing-sounds-from-videos-in-imovie-for-mac-enthusiasts/"><u>Updated 2024 Approved The Art of Dividing Sounds From Videos in iMovie for Mac Enthusiasts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-decoding-youtube-income-how-much-does-each-1000-viewer-earn/"><u>[New] Decoding YouTube Income  How Much Does Each 1,000 Viewer Earn?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-breaking-free-from-tiktoks-hidden-bans-a-roadmap/"><u>In 2024, Breaking Free From TikTok's Hidden Bans  A Roadmap</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-authenticity-focused-tiktok-followers-buying-guide/"><u>[New] 2024 Approved  Authenticity-Focused TikTok Followers Buying Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-pixel-realms-unique-alarm-rhythms/"><u>[Updated] Ultimate Pixel Realms  Unique Alarm Rhythms</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-rx-memory-revamp/"><u>[New] 2024 Approved  RX Memory Revamp</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-leading-tools-to-uncover-trending-tags-on-fb-twt-and-ig-sites/"><u>[New] 2024 Approved  Leading Tools to Uncover Trending Tags on FB, Twt & IG Sites</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-tips-for-filming-without-the-hindrance-of-sounds/"><u>[New] Tips for Filming Without the Hindrance of Sounds</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-samsung-galaxy-s24-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Samsung Galaxy S24 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-tecno-phantom-v-fold-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Tecno Phantom V Fold Location Settings | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-capturing-landscapes-with-mi-drone-4k-analysis/"><u>In 2024, Capturing Landscapes with MI Drone 4K Analysis</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-your-own-youtube-subscribe-shortcut/"><u>[New] Crafting Your Own YouTube Subscribe Shortcut</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-tecno-spark-20-pro-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Tecno Spark 20 Pro Quickly? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-dodge-disruptive-fb-video-promotions/"><u>[New] Dodge Disruptive FB Video Promotions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/delving-deep-into-ios-video-recording-capabilities/"><u>Delving Deep Into IO's Video Recording Capabilities</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-infinix-hot-30i-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Infinix Hot 30i to PC- Detailed Steps | Dr.fone</u></a></li>
+</ul></div>

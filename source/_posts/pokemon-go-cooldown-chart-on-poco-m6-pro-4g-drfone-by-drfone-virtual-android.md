@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco M6 Pro 4G | Dr.fone
-date: 2024-06-15T13:49:32.366Z
-updated: 2024-06-16T13:49:32.366Z
+date: 2024-07-14T10:17:25.429Z
+updated: 2024-07-15T10:17:25.429Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,6 +25,9 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
@@ -134,6 +137,9 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 3:** Teleport your location on Pokémon Go
@@ -158,6 +164,9 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco M6 Pro 4G
 
 Hey, Pokémon trainers!
@@ -241,6 +250,9 @@ Dr.Fone-Virtual Location
 
 Available on:
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Here’s why Dr.Fone Virtual Location is an ideal solution for Pokémon Go spoofing
 
 - Access rare locations, catch more Pokémon, and complete your Pokédex.
@@ -321,6 +333,9 @@ When it comes to safe location spoofing apps, Dr.Fone by Wondershare is at the t
 
 Unlike most other location-faking apps, Dr.Fone - Virtual Location works without jailbreaking your device. This means all of your phone data is secure when using the app. So wave those worries goodbye! Get ready to celebrate this year’s Pokémon Day better than ever before with Dr.Fone - Virtual Location.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Use Pokémon Emerald Master Ball Cheat On Poco M6 Pro 4G
 
 One of the main goals of playing Pokémon is getting as many Pokémon as you can, training and evolving them so you can defeat any opposing trainers, and get to the top of the winning charts.
@@ -446,7 +461,7 @@ This is where teleporting tools such as [Dr.Fone - Virtual Location](https://too
 
 
 
-### [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
+### Dr.Fone - Virtual Location
 
 1-click location changer to catch as many Pokémon as possible!
 
@@ -489,3 +504,67 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-apple-iphone-14-pro-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing Apple iPhone 14 Pro iCloud Activation Lock</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-zero-to-hero-in-youtube-traffic-for-2024/"><u>[Updated] From Zero to Hero in YouTube Traffic for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-narzo-60x-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme Narzo 60x 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/urning-your-youtube-views-into-a-screen-capture-made-simple-and-free-for-2024/"><u>[New] Turning Your YouTube Views Into a Screen Capture Made Simple and Free for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/flipping-through-frames-instagrams-video-reversal-wizardry-for-2024/"><u>Flipping Through Frames  Instagram's Video Reversal Wizardry for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-gamers-signature-look-essential-template-tips-for-channels-for-2024/"><u>[New] Gamers' Signature Look  Essential Template Tips for Channels for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/from-novice-to-virtuoso-your-guide-to-windows-8-movie-maker/"><u>From Novice to Virtuoso  Your Guide to Windows 8 Movie Maker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discovering-your-dream-makeup-routine-with-youtubes-leaders/"><u>[New] 2024 Approved  Discovering Your Dream Makeup Routine with YouTube's Leaders</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-chucklechamber-a-universe-of-comedy-creation-online/"><u>[New] ChuckleChamber  A Universe of Comedy Creation Online</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-remove-audio-from-video-on-mac-free-and-official-solutions-for-2024/"><u>How to Remove Audio From Video on Mac? Free and Official Solutions for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-thorough-examination-straightforward-dynamic-range-methods/"><u>2024 Approved  Thorough Examination  Straightforward Dynamic Range Methods</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unpacking-youtubes-income-distribution-from-1m-viewers/"><u>[Updated] Unpacking YouTube's Income Distribution From 1M Viewers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-deciphering-digital-dominance-youtube-content-strategy-comparison-for-2024/"><u>[New] Deciphering Digital Dominance  YouTube Content Strategy Comparison for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/premier-open-source-tech-for-live-streaming-recordings-for-2024/"><u>Premier Open-Source Tech for Live Streaming Recordings for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-from-written-to-spoken-effective-text-to-mp3-conversion-methods/"><u>New In 2024, From Written to Spoken Effective Text-to-MP3 Conversion Methods</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-samsung-galaxy-f34-5g-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Samsung Galaxy F34 5G?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-premium-gopro-enhancements-guide/"><u>[New] 2024 Approved  Premium Gopro Enhancements Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/navigating-through-this-years-top-ten-budget-friendly-browser-based-daw-solutions-for-2024/"><u>Navigating Through This Years Top Ten Budget-Friendly Browser-Based DAW Solutions for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-ranked-best-ipad-speech-to-text-programs-3-for-2024/"><u>[Updated] Ranked Best iPad Speech-to-Text Programs #3 for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-are-ai-tools/"><u>Updated What Are AI Tools?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-excellent-free-online-audio-calibration-alternatives-for-2024/"><u>New Excellent Free Online Audio Calibration Alternatives for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/eradicated-muted-video-entries-shorts-for-2024/"><u>Eradicated  Muted Video Entries (Shorts) for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-srt-openedit-manual-for-mac-users/"><u>Ultimate SRT Open/Edit Manual for Mac Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-breathe-life-into-your-reels-adding-drama-with-slow-motion/"><u>In 2024, Breathe Life Into Your Reels  Adding Drama with Slow Motion</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-the-ultimate-list-top-10-free-online-video-editors-without-watermarks-for-2024/"><u>New The Ultimate List Top 10 Free Online Video Editors Without Watermarks for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-infinix-note-30-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Infinix Note 30? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-secrets-top-strategies-for-advanced-srt-tweaks-on-apple/"><u>2024 Approved  Unveiling Secrets  Top Strategies for Advanced SRT Tweaks on Apple</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+</ul></div>

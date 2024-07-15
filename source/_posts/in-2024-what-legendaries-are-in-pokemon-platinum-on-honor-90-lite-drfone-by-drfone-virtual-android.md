@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Honor 90 Lite? | Dr.fone
-date: 2024-05-19T04:24:12.494Z
-updated: 2024-05-20T04:24:12.494Z
+date: 2024-07-14T08:57:05.238Z
+updated: 2024-07-15T08:57:05.238Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Honor 90 Lite?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Honor 90 Lite?
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokémon Go for 90 Lite,Pokemon Go Joystick for 90 Lite,Pokemon Go for 90 Lite,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/x5hFLtVYVUkR-_nqhbxS_f11j5E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/netgear-default-password-list-2619154-b581fdcf136848d29e944638cd2ad444.png
+thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe2bd45f2ec6f3eb305fb3d58.png
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Honor 90 Lite?
@@ -61,6 +61,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **13\. Regirock:** Located in Rock Peak Ruins, Regirock is a level 30 legendary Pokemon in the Platinum version. Transfer the Regigigas obtained from the 11th movie and team up with it. After that, you can access a special cave in Route 228, where you will find another cave. Go there with Regigigas Platinum and enter a new cave. You will find a status in the cave. Go up to it and Regirock will attack you.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
@@ -109,6 +112,9 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
@@ -177,7 +183,10 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 
 
-### [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Dr.Fone - Virtual Location
 
 1-Click Location Changer for both iOS and Android
 
@@ -203,6 +212,9 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 **Step 4** \- Your location change will happen automatically and within a few minutes, the new location will be registered on every site that you go to. So, you are covered!
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![New-Location-on-map-drfone-pic-9](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 ## Part 3 - Tips to avoid being Banned
@@ -345,6 +357,9 @@ To simulate movement, navigate to the top-right section and click “One-Stop Ro
 
 If you want to visit more than one stop, enable the Multi-Stop Route mode. You can do it by accessing the top-right section adjacent to the One-Stop Route mode. Once activated, designate multiple locations on the map by selecting your desired points. Specify the number of trips and speed settings. Initiate the process by clicking on "Start Moving." During the simulation, you can "Pause" the sequence at any point.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![begin moving with multi-route stop](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
 ## Conclusion
@@ -370,3 +385,47 @@ In conclusion, the pursuit of capturing a **Snorlax Pokémon sleeping** in Poké
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-revamp-your-footage-top-rated-free-online-video-enhancers/"><u>In 2024, Revamp Your Footage Top-Rated Free Online Video Enhancers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-smirk-spawners-identifying-premium-meme-tools-for-2024/"><u>[Updated] Smirk Spawners  Identifying Premium Meme Tools for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-convert-text-to-mp3-on-windows-mac-android-and-iphone/"><u>In 2024, Convert Text to MP3 on Windows, Mac, Android and iPhone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/elevate-visuals-download-gtx-1050-ti-driver-updates/"><u>Elevate Visuals: Download GTX 1050 Ti Driver Updates</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/subtle-sound-reduction-tactics-with-garageband/"><u>Subtle Sound Reduction Tactics with Garageband</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-swinging-sparrow-suites/"><u>[New] Swinging Sparrow Suites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harness-high-quality-banners-free-for-content-developers/"><u>[Updated] Harness High-Quality Banners – Free for Content Developers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/superior-transmitters-and-decoders-for-livestreams/"><u>Superior Transmitters and Decoders for Livestreams</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-guide-to-selecting-and-using-the-best-braw-luts/"><u>New Guide To Selecting and Using the Best Braw Luts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-techniques-for-youtube-mp4-creation/"><u>In 2024, Ultimate Techniques for YouTube MP4 Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-from-concept-to-measurement-configuring-and-assessing-facebooks-in-stream-ads/"><u>In 2024, From Concept to Measurement  Configuring and Assessing Facebook's In-Stream Ads</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-v29-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo V29 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-master-emoji-artistry-with-these-tools-on-discord/"><u>[New] 2024 Approved  Master Emoji Artistry with These Tools on Discord</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-resolve-non-playing-facebook-video-issues-androidios-for-2024/"><u>[Updated] Resolve Non-Playing Facebook Video Issues (Android/iOS) for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleashing-potential-the-easy-path-to-blending-linktree-with-tiktok-bios-for-2024/"><u>Unleashing Potential  The Easy Path to Blending Linktree with TikTok Bios for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-on-iphone-8-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID on iPhone 8</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-tecno-camon-30-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Tecno Camon 30 Pro 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-unveiling-sources-of-a-distressed-dogs-loud-call/"><u>In 2024, Unveiling Sources of a Distressed Dogs Loud Call</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-your-complete-macootd-filmmaking-handbook/"><u>[New] 2024 Approved  Your Complete MacOOTD Filmmaking Handbook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ranking-the-best-free-passport-picture-services-worldwide/"><u>[New] In 2024, Ranking the Best Free Passport Picture Services Worldwide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+</ul></div>

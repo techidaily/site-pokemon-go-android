@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Poco X6 Pro? | Dr.fone
-date: 2024-06-08T06:27:07.043Z
-updated: 2024-06-09T06:27:07.043Z
+date: 2024-07-14T10:13:41.439Z
+updated: 2024-07-15T10:13:41.439Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -168,6 +168,9 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -240,6 +243,9 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -259,6 +265,9 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
@@ -273,6 +282,9 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 3:** Teleport your location on Pokémon Go
@@ -378,6 +390,9 @@ This is another popular online directory to add friends in Pokemon Go. You can e
 
 Pokemon Go Friend Code is a dedicated online directory having thousands of trainer codes. Once you visit the website, you can also submit your PoGo friend code to its directory so that other players can find it. Besides that, there is also a provision to look for other players and filter results based on their teams and location.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon go friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes.jpg)
 
 - **Other sources**
@@ -428,3 +443,50 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://phone-solutions.techidaily.com/cant-view-mov-movies-content-on-samsung-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can’t view MOV movies content on Samsung</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-epic-visual-storyteller-suite-top-tier/"><u>2024 Approved  Epic Visual Storyteller Suite - Top Tier</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-harmonious-social-media-incorporating-soundtracks-into-fb-videos/"><u>[New] Harmonious Social Media  Incorporating Soundtracks Into FB Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-the-prosperous-path-share-tiktok-via-twitter/"><u>[New] In 2024, The Prosperous Path  Share TikTok via Twitter</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-motorola-razr-40-ultra-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Motorola Razr 40 Ultra.</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/frosty-feats-celebrating-the-beijing-olympics-2022/"><u>Frosty Feats  Celebrating the Beijing Olympics, 2022</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/iconic-video-titles-youtubes-most-watched-lore-for-2024/"><u>Iconic Video Titles  YouTube's Most-Watched Lore for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effortlessly-stream-mp3-to-youtube-with-3-key-steps-for-2024/"><u>Effortlessly Stream  MP3 to YouTube with 3 Key Steps for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-exclusive-discord-matchmaking-groups-for-2024/"><u>[New] Exclusive Discord Matchmaking Groups for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-6-best-text-to-speech-generators-for-youtube-videos-windows-mac-android-iphone-and-online/"><u>New 6 Best Text to Speech Generators for YouTube Videos Windows, Mac, Android, iPhone & Online</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/excellent-phones-apps-for-masterful-gopro-edits/"><u>Excellent Phones' Apps for Masterful GoPro Edits</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-promotion-in-the-metaverse/"><u>2024 Approved  Pioneering Promotion in the Metaverse</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-undead-uncovered-ranking-the-best-zombie-game-clusters/"><u>[New] In 2024, Undead Uncovered  Ranking the Best Zombie Game Clusters</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tailoring-your-content-to-perfection-youtube-edits-in-sony-vegas-style/"><u>[New] Tailoring Your Content to Perfection  YouTube Edits in Sony Vegas Style</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-instagram-reels-a-comprehensive-guide/"><u>[New] Navigating Instagram Reels  A Comprehensive Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-free-up-your-time-with-these-5-chrome-plugins-for-fb-video-downloads/"><u>[New] In 2024, Free Up Your Time with These 5 Chrome Plugins for FB Video Downloads</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagrams-latest-trend-adding-gifs-in-4-simple-stages/"><u>[Updated] Instagram's Latest Trend  Adding GIFs in 4 Simple Stages</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-up-to-date-tips-for-purchasing-top-360-imagers/"><u>[Updated] Up-to-Date Tips for Purchasing Top 360 Imagers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor 100 Pro? | Dr.fone</u></a></li>
+</ul></div>

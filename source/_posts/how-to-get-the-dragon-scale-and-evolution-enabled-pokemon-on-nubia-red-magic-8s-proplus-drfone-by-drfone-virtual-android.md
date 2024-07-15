@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+? | Dr.fone
-date: 2024-05-19T04:24:42.127Z
-updated: 2024-05-20T04:24:42.127Z
+date: 2024-07-14T09:39:02.602Z
+updated: 2024-07-15T09:39:02.602Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+?
 keywords: Pokemon Go for Red Magic 8S Pro+,Pokémon Go Without Walking,Pokémon Go for Red Magic 8S Pro+,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Red Magic 8S Pro+
-thumbnail: https://www.lifewire.com/thmb/U3vDiQ7GsjPng-Yja5bpNwc079s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-527847020-5b9edc17c9e77c0050ff9045.jpg
+thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5e7d77e30ca04d5bf449b804.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+?
@@ -38,6 +38,9 @@ The pokemon go dragon scale is one of the new evolution objects that can be empl
 
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2：Fast way to get the exclusive Pokémon?
 
 You can make use of the artificial locality of [Dr. Fone](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to imitate your position without any motion and acquire exclusive Pokémon. The duplicate point of Dr. Fone lets you phony your orientation and permits your mobile application to presume that you are chosen in the app interface of Dr. Fone without being banned from the game or getting detected by the developers of Pokemon Go. To seize the pokemon, you can trail the instructions below with one click without having to go anywhere else.
@@ -144,6 +147,14 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 3: Some Popular Pokemon Discord Servers to Join**
 
 By exploring the Discord Server directories I have listed, you can find hundreds of Pokemon Go Discord servers. Though, here are some common Discord Pokemon Go servers that you can consider joining.
@@ -234,12 +245,18 @@ The ability of this Pokemon to use the charged move sludge bomb prevents any tro
 
 ### 2\. Charizard
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![Pokemon go ultra league meta](https://drfone.wondershare.com/2020/Pokemon-go-ultra-league-meta.jpg)
 
 Charizard among the Pokemon Go ultra league tier list shines as it balances effortlessly to hold off. With its second move on, it remains strong. There is a need to have such an iconic Pokemon of all the time in your team. What do you think?
 
 ### 3\. Machamp
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![best Pokemon for the ultra league](https://drfone.wondershare.com/2020/best-Pokemon-for%20the-ultra-league.jpg)
 
 Neglecting the fighting, which is not as prevalent in the ultra League Pokemon Go as it was in the Great League, Machamp is still strong enough, especially when you are looking for something to round off some of the powerful picks as a counter option.
@@ -276,6 +293,9 @@ Before playing best ultra league pokemon game, users should connect to the desk 
 
 **Step 3.** Further, drag the slider downwards to manage how fast you can walk. For instance, use the cycling speed and then click “move here,” especially when asked to search for the best Pokemon for the ultra league.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![best PVP pokemon go ultra league](https://drfone.wondershare.com/2020/best-PVP-pokemon-go-ultra-league.jpg)
 
 **Step 4.** Enter a number in the new popup box to describe the number of times you want to move back and forth amid the two places. Then, finally, click “March” to begin simulating the movement.
@@ -303,3 +323,67 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-adding-depth-with-3d-text-in-photoshop-workflows/"><u>[New] Adding Depth with 3D Text in Photoshop Workflows</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-from-iphone-14-pro-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock from iPhone 14 Pro or iPad?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-expert-guide-to-skype-recordings-the-most-effective-free-and-paid-ways-for-2024/"><u>[New] Expert Guide to Skype Recordings - The Most Effective Free & Paid Ways for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mobile-broadcasting-share-videos-without-a-retweet/"><u>[Updated] Mobile Broadcasting  Share Videos without a Retweet</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/restoring-full-volume-on-hindered-facebook-videos-for-2024/"><u>Restoring Full Volume on Hindered Facebook Videos for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-transform-your-twitter-usage-best-unfollower-tools-reviewed/"><u>[New] Transform Your Twitter Usage  Best Unfollower Tools Reviewed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-itel-p55t-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Itel P55T to Roku | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/androidiphones-best-free-imagery-modification-apps-ranked/"><u>Android/iPhone's Best FREE Imagery Modification Apps Ranked</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-strategic-podcast-drop-dates/"><u>[Updated] Strategic Podcast Drop Dates</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-space-requirements-for-hd-video-on-64gb/"><u>In 2024, Space Requirements for HD Video on 64GB?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-lava-blaze-pro-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Lava Blaze Pro 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-iphone-6s-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On iPhone 6s? Heres the Best Fixes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-securing-your-social-media-visuals-instagram-edition-for-2024/"><u>[Updated] Securing Your Social Media Visuals  Instagram Edition for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-download-youtube-videos-on-android-9-powerful-apps-compared/"><u>2024 Approved  Download YouTube Videos on Android  9 Powerful Apps Compared</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/vrecorder-ez-instal-your-step-by-step/"><u>VRecorder EZ-Instal  Your Step-by-Step</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-how-to-fix-the-facebook-story-not-uploading-problem-for-2024/"><u>[New] How to Fix the Facebook Story Not Uploading Problem for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/capturing-life-in-high-res-chromatic-shades-with-4k-for-2024/"><u>Capturing Life in High-Res Chromatic Shades with 4K for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-discord-for-music-lovers-adding-spotify-support/"><u>2024 Approved  Discord for Music Lovers  Adding Spotify Support</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-roadmap-for-joining-a-youtube-media-company-mcn/"><u>[Updated] The Roadmap for Joining a YouTube Media Company (MCN)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-xperia-1-v-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Xperia 1 V.</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/navigating-and-solving-black-screen-anomalies-on-twitch/"><u>Navigating and Solving Black Screen Anomalies on Twitch</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-starlight-moment-capture-analysis/"><u>[New] Starlight Moment Capture Analysis</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamlessly-saving-and-showcasing-gifs-on-your-iphone-device-for-2024/"><u>Seamlessly Saving and Showcasing GIFs on Your iPhone Device for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/real-time-tracking-for-insta-unfollower-score-for-2024/"><u>Real-Time Tracking for Insta Unfollower Score for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-s-top-picks-movie-trailer-editors-for-mac-and-windows/"><u>Updated 2024 Approved S Top Picks Movie Trailer Editors for Mac and Windows</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-monetary-reality-of-being-a-podcaster/"><u>2024 Approved  The Monetary Reality of Being a Podcaster</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-lava-blaze-2-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Lava Blaze 2 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pajama-plots-reviewed-analyzing-childrens-video-stories/"><u>[Updated] Pajama Plots Reviewed  Analyzing Children's Video Stories</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-potential-of-wide-angle-360-photos/"><u>[Updated] Unlocking the Potential of Wide Angle 360 Photos</u></a></li>
+</ul></div>

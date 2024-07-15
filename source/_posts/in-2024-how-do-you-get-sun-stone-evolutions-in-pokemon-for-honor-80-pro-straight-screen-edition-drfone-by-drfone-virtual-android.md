@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition? | Dr.fone
-date: 2024-05-19T04:23:55.455Z
-updated: 2024-05-20T04:23:55.455Z
+date: 2024-07-14T08:33:33.995Z
+updated: 2024-07-15T08:33:33.995Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition?
 keywords: Pokemon Go Without Walking,Pokemon Go for 80 Pro Straight Screen Edition,Pokemon Go Joystick for 80 Pro Straight Screen Edition,Pokémon Go for 80 Pro Straight Screen Edition,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/VhWXwk4rULRvURLd-ts4rpfPSxw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1250476440-2ff779100e984029aa752236f9791b11.jpg
+thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653067a4110ec11928ef11818a.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition?
@@ -43,6 +43,9 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
@@ -136,6 +139,9 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![set up mock location on your phone](https://images.wondershare.com/drfone/guide/vl-connect-android-3.png)
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
@@ -191,6 +197,9 @@ After that, you can restart the app and check if it would fix the GPS Pokemon Go
 
 Turning on the location services on your iPhone is not enough and you need to grant the GPS access to the Pokemon Go app. To fix the Pokemon Go GPS problem on your iPhone, simply visit its Settings > Privacy > Location Services. Now, from the list of the installed apps, select Pokemon Go and make sure it can access the GPS on your iPhone while running (or always).
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon go location services](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-services.jpg)
 
 ### Fix 3: Set Precise Location for Pokemon Go
@@ -205,6 +214,9 @@ To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Priv
 
 If you're currently in an area with poor GPS reception due to buildings or trees, try moving to an open area with a clear view of the sky. This can significantly improve your GPS signal strength.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Fix 5: Restart the App and the Honor 80 Pro Straight Screen Edition device
 
 Lastly, you can just reload the Pokemon Go app or restart your iPhone if you still get the Pokemon Go no GPS signal. You can just go to the app drawer and swipe up the Pokemon Go card to close the app.
@@ -302,6 +314,9 @@ The Sinnoh Stone is a new evolution item, and all eighteen-4th generation Pokém
 | Swinub | Mamoswine |
 | Kirlia | Gallade |
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Obtaining Sinnoh Stones to Level Up
 
 Sinnoh Stone can be obtained during the battle against the three leaders on Community Day, on the completion of the final day of your 7-day Research Task, and During PVP. You won't be finding them at Poke Stops. Main places where you can find Sinnoh Stones are on the 7th Day of your Research Task and award for taking part in PVP. Another place that is not popular but odds to find Sinnoh Stone is present includes the introduction to PVP when you're new to it. Players can obtain up to 10 Sinnoh Stones during the February Community Day and when the month is Pokemon Go Community Day. 5 Sinnoh Stones can be obtained by beating the three leaders in the battles and another 5 from winning PVP battles against friends. Defeating a Team Go Rocket Leader and Go Battle Reward is Sinnoh Stone.
@@ -369,3 +384,59 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-video-editing.techidaily.com/2024-approved-guide-to-cropping-and-combining-content-in-wondershare-filmora-latest/"><u>2024 Approved Guide To Cropping and Combining Content in Wondershare Filmora Latest</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/action-shooting-basics-buying-guide-for-new-film-enthusiasts-for-2024/"><u>Action Shooting Basics – Buying Guide for New Film Enthusiasts for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-secure-tiktok-follower-expansion-companies/"><u>[Updated] Secure TikTok Follower Expansion Companies</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-poco-f5-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Poco F5 Pro 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-fireshadow-video-recording-for-2024/"><u>[New] Fireshadow Video Recording for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-ultimate-clarity-choosing-the-perfect-4k-screen-for-2024/"><u>Unlock Ultimate Clarity  Choosing the Perfect 4K Screen for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-secrets-unveiled-expert-adobe-captive-screen-recording-tips/"><u>[New] 2024 Approved  Secrets Unveiled  Expert Adobe Captive Screen Recording Tips</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-top-rated-free-wmv-video-editing-tools-expert-recommendations/"><u>Updated Top-Rated Free WMV Video Editing Tools Expert Recommendations</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-3dr-a-solo-traverse-into-future-tech-world-for-2024/"><u>[Updated] '3DR'  A Solo Traverse Into Future Tech World for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-overcome-video-loading-failure-chrome/"><u>In 2024, Overcome Video Loading Failure  Chrome</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-x100-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo X100 Pro Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-mastering-the-craft-of-in-depth-and-impactful-interviews/"><u>[Updated] Mastering the Craft of In-Depth and Impactful Interviews</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-looking-for-love-animated-gifs-here-are-5-free-sources-for-you/"><u>Updated Looking for Love Animated GIFs? Here Are 5 Free Sources For You</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-iphone-filming-software-catalog/"><u>2024 Approved  Top iPhone Filming Software Catalog</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/essential-tips-streamline-mac-screen-captures-using-keyboard-tricks-for-2024/"><u>Essential Tips  Streamline Mac Screen Captures Using Keyboard Tricks for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-trim-cut-and-edit-videos-online-with-kapwings-free-editor/"><u>In 2024, Trim, Cut, and Edit Videos Online with Kapwings Free Editor</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-navigating-the-undisclosed-terrain-of-youtube-archives/"><u>[New] Navigating the Undisclosed Terrain of YouTube Archives</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-top-10-classical-animated-cartoon-types-with-examples/"><u>Updated Top 10 Classical Animated Cartoon Types With Examples</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-10-best-voice-recording-apps-for-android-devices-free-included-for-2024/"><u>New 10 Best Voice Recording Apps for Android Devices Free Included for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-clearing-focus-techniques-for-blurring-meeting-backdrops/"><u>2024 Approved  Clearing Focus  Techniques for Blurring Meeting Backdrops</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unlocking-seamless-ocean-footage-with-these-7-hacks-for-2024/"><u>Unlocking Seamless Ocean Footage with These 7 Hacks for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/thriving-through-themes-30plus-unique-biographical-techniques-to-triple-your-views-and-following-on-the-tiktok-filmora-platform-for-2024/"><u>Thriving Through Themes  30+ Unique Biographical Techniques to Triple Your Views and Following on the TikTok-Filmora Platform for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Lava Yuva 3 | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 90 | Dr.fone
-date: 2024-05-19T04:24:11.186Z
-updated: 2024-05-20T04:24:11.186Z
+date: 2024-07-14T08:55:04.500Z
+updated: 2024-07-15T08:55:04.500Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 90
 excerpt: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 90
 keywords: Pokemon Go for 90,Pokémon Go for 90,Pokemon Go Joystick for 90,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/DHxaJkZu-_13cCciVcRs3Mq0nj4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/012_how-to-make-video-call-on-android-bd93ab594aa648c7977f4c1ecf42c85b.jpg
+thumbnail: https://thmb.techidaily.com/502b1cdc938497dc65859bd4dea7388cbc83b5388aae8627911832c708fd7626.jpg
 ---
 
 ## Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 90
@@ -21,6 +21,9 @@ Pokémon Go players anticipate new evolutions with much excitement. This is beca
 
 ### What is Unova Stone
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Unova Stone](https://images.wondershare.com/drfone/2020/unova-stone.jpg)
 
 Unova Stone is one of the latest evolutions added in Unova's region to the game of Pokémon. It is a black and white item that is used to evolve certain Pokémon, specifically from Unova. This is akin Sinnoh Stone that was used to evolve Pokémon from Sinnoh Regio. However, Unova Stone is only capable of evolving Generation 5 Pokémon from the Unova region. It means you cannot use Unova Stones to evolve Pokémon from previous generations. Even though there are plenty of emerging Pokémon and Shiny Pokémon worth collecting, there are scores of trainers who understand the real value of adding Unova Stones to their inventory. By accumulating them, they can seamlessly achieve evolution with some Pokémon in the Unova region.
@@ -150,6 +153,9 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Actions that DO NOT trigger cooldown?
 
 On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
@@ -202,6 +208,9 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
@@ -232,6 +241,9 @@ When you want to stop this teleporting, simply click the "Stop Simulation" butto
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
@@ -281,6 +293,9 @@ Another way to fake location on Android is to root your device. Rooting an Andro
 
 PGSharp is one of the best alternatives to **iSpoofer for Android**. It’s a tweaked version of the original Pokemon Go app that comes with a few additional features such as spoofing and GPS Joystick. The best part about using PGSharp is that it’s compatible with all Android devices. You won’t have to root your device to install and run PGSharp.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pgsharp](https://images.wondershare.com/drfone/2020/202010/pgsharp.jpg)
 
 You can either choose the free or the paid version of the app. Of course, the latter comes with a few additional features, but if you only want to fake location in Pokemon Go, the free version of PGSharp will get the job done as well.
@@ -344,3 +359,53 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-discovering-friends-the-cross-platform-guide/"><u>In 2024, Discovering Friends  The Cross-Platform Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-demystifying-data-a-beginners-guide-to-facebook-insights/"><u>[New] In 2024, Demystifying Data  A Beginner's Guide to Facebook Insights</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/bring-your-ideas-to-life-top-7-animation-drawing-tools-for-2024/"><u>Bring Your Ideas to Life Top 7 Animation Drawing Tools for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-essential-knowledge-what-to-understand-before-using-an-m4r-converter/"><u>New In 2024, Essential Knowledge What to Understand Before Using an M4R Converter</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-instagram-live-anonymously-a-step-by-step-approach-for-2024/"><u>Navigating Instagram Live Anonymously  A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-encompassing-critique-hero4-black-features/"><u>In 2024, Encompassing Critique  Hero4 Black Features</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essentials-of-expertly-editing-images-at-home-for-2024/"><u>The Essentials of Expertly Editing Images at Home for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amazon-prime-fan-favorites-highest-likes-and-view-counts/"><u>[Updated] Amazon Prime Fan Favorites  Highest Likes & View Counts</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-apple-iphone-7-plus-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase Apple iPhone 7 Plus When Its Locked Within Seconds</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-from-apple-iphone-13-mini-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock From Apple iPhone 13 mini - 4 Easy Ways</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-prime-vision-booster-resolve-any-screen-size/"><u>[Updated] Prime Vision Booster  Resolve Any Screen Size</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-pawprint-echoes-a-collection-of-dognoise-tracks/"><u>New Pawprint Echoes A Collection of Dognoise Tracks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-realme-11-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Realme 11 5G Device SIM</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/a-comprehensive-list-of-the-top-spongebob-voice-generators/"><u>A Comprehensive List of The Top SpongeBob Voice Generators</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-charting-the-financial-landscape-of-youtube-marketing/"><u>2024 Approved  Charting the Financial Landscape of YouTube Marketing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-ditch-premiere-rush-top-alternative-video-editing-software/"><u>Updated In 2024, Ditch Premiere Rush Top Alternative Video Editing Software</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/how-to-replace-the-audio-track-in-videos-with-2-ways-step-by-step/"><u>How To Replace the Audio Track in Videos with 2 Ways Step by Step</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-poco-m6-5g-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Poco M6 5G without backup.</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+</ul></div>

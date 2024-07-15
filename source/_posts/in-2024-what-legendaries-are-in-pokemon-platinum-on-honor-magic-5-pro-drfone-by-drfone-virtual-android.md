@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Honor Magic 5 Pro? | Dr.fone
-date: 2024-05-19T04:24:01.109Z
-updated: 2024-05-20T04:24:01.109Z
+date: 2024-07-14T08:41:07.348Z
+updated: 2024-07-15T08:41:07.348Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Honor Magic 5 Pro?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Honor Magic 5 Pro?
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go for Magic 5 Pro,Pokemon Go Joystick for Magic 5 Pro,Pokemon Go Without Walking,Pokémon Go for Magic 5 Pro
-thumbnail: https://www.lifewire.com/thmb/tytwbqcYgTF7h7x0nLFuA1_IxhI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-515810476-aabe0e5a88b44bb1ae49a5bfa97bec62.jpg
+thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f8eaaf0f310614210c430f98.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Honor Magic 5 Pro?
@@ -61,6 +61,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **13\. Regirock:** Located in Rock Peak Ruins, Regirock is a level 30 legendary Pokemon in the Platinum version. Transfer the Regigigas obtained from the 11th movie and team up with it. After that, you can access a special cave in Route 228, where you will find another cave. Go there with Regigigas Platinum and enter a new cave. You will find a status in the cave. Go up to it and Regirock will attack you.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
@@ -225,6 +228,9 @@ While changing your location, make sure that you do it tactfully. For instance, 
 
 3. That’s it! Now you can just launch the fake GPS app and manually change your location to a few meters away to trick Pokemon Go. Do the same a few times to cover a prominent distance.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
     ![change your location to a few meters away](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-4.jpg)
 
 Just be sure that Pokemon Go won’t detect that you are using a GPS spoofer to hatch eggs. The regular use of an app like this might result in your account ban.
@@ -248,6 +254,9 @@ A while back, Pokemon Go enabled the option to add friends on the app and send t
 
 1. Firstly, Launch Pokemon Go on your phone and go to your profile. Adjacent to the “Me” section, tap on the “Friends” section instead.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
     ![go to your profile](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-6.jpg)
 
 2. Here, you can see a list of your friends and an option to add more friends on Pokemon Go. To add a friend, you need to enter their code which can be obtained from any dedicated forum or even Reddit.
@@ -266,6 +275,9 @@ You might already know that Pokecoins is the official currency of Pokemon Go. Us
 1. Firstly, make sure that you have enough Pokecoins with you. If not, launch the app and tap on the Pokeball from its home to visit its shop.
 2. From here, you can buy as many Pokecoins as you want. For instance, $0.99 would let you purchase 100 Pokecoins.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
     ![get Pokecoins](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-8.jpeg)
 
 3. Great! Once you have enough Pokecoins, go to the Shop again and choose to buy eggs and incubators.
@@ -328,6 +340,9 @@ Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield
 
 ## Part 1. Shiny Stone Pokémon
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What is Shiny Stone Evolution?
 
 A Shiny Stone is an item in Pokémon Go that is used to evolve certain Pokémon. Shiny Stone was introduced in Generation IV and is no different from other evolution stones such as dusk stones, dawn stone, and ice stone, to mention but a few. The major differences could be their location as well as the type of Pokémon they help to evolve. You can identify this peculiar stone by its dazzling, shining light.
@@ -403,3 +418,39 @@ Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A goo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://audio-editing.techidaily.com/expert-recommendations-for-high-quality-music-video-designs-for-2024/"><u>Expert Recommendations for High-Quality Music Video Designs for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/elevate-your-productivity-io-screen-capture-secrets/"><u>Elevate Your Productivity  IO Screen Capture Secrets</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unlock-kinemasters-full-potential-techniques-and-10plus-superior-online-services-for-2024/"><u>[Updated] Unlock KineMaster's Full Potential  Techniques & 10+ Superior Online Services for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-samsung-galaxy-a25-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Samsung Galaxy A25 5G?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/how-to-use-voicemod-on-discord-desktop-and-mobile-for-2024/"><u>How To Use Voicemod On Discord [Desktop and Mobile] for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-realme-gt-5-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-y78-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo Y78 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/detailed-review-on-vlcs-screenshotting/"><u>Detailed Review on VLC's Screenshotting</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-samsung-galaxy-m14-4g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Samsung Galaxy M14 4G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-elite-sound-mixers-for-superior-stream-quality/"><u>New Elite Sound Mixers for Superior Stream Quality</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-discover-efficient-methods-for-compiling-songs-on-youtube/"><u>[New] Discover Efficient Methods for Compiling Songs on YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-gt-3-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme GT 3? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-essential-finds-critical-6-fb-lite-downloads/"><u>[Updated] 2024 Approved  Essential Finds  Critical 6 FB Lite Downloads</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme GT 3? | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor 90 Pro | Dr.fone
-date: 2024-05-19T04:24:08.218Z
-updated: 2024-05-20T04:24:08.218Z
+date: 2024-07-14T08:51:06.028Z
+updated: 2024-07-15T08:51:06.028Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Honor 90 Pro
 excerpt: This article describes Pokémon Go Cooldown Chart On Honor 90 Pro
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go for 90 Pro,Pokémon Go for 90 Pro,Pokemon Go Joystick for 90 Pro,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/cLzdzaXCHQmL2C9Qufq6ZiO1gSQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-642250032-010d3026f565420eac9ac098bced6278.jpg
+thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b59cc59254c5cb25869dff46a.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Honor 90 Pro
@@ -51,6 +51,9 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -97,6 +100,9 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -120,6 +126,9 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
@@ -217,6 +226,9 @@ You want to make a motion, and navigate to the "March" button to start the simul
 
 For the Pokemon Go application, the new position will appear as real and will presume that you are walking between the two selected locations you have selected on the Dr. Fone screen. The walking pace can also be changed at the bottom of the screen using the sliding menu. This way, without knowing it, you can use the fake movement of the desired position, and your application will not be prohibited.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
@@ -309,6 +321,9 @@ There are many action replay codes available on the Internet. Using these codes,
 
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -378,3 +393,71 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-video-appeal-20-premium-thumbnail-fonts/"><u>Enhancing Video Appeal  20 Premium Thumbnail Fonts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-apple-iphone-14-pro-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone 14 Pro Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unparalleled-dramatic-audio-experiences-for-2024/"><u>Unparalleled Dramatic Audio Experiences for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-10-free-manga-sites-to-read-online/"><u>Updated In 2024, Best 10 Free Manga Sites to Read Online</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-expert-insights-into-tunefabs-recording-capabilities/"><u>[Updated] 2024 Approved  Expert Insights Into Tunefab's Recording Capabilities</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-10-innovative-desktopmobile-conferencing-tools/"><u>[Updated] 10 Innovative Desktop/Mobile Conferencing Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-essential-equipment-list-secure-your-zoom-sessions/"><u>[New] 2024 Approved  Essential Equipment List  Secure Your Zoom Sessions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unveiling-the-secrets-of-facebook-video-content-success/"><u>[New] Unveiling the Secrets of Facebook Video Content Success</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-avoiding-unsteady-footage-steady-your-action-cam-videos/"><u>[Updated] Avoiding Unsteady Footage  Steady Your Action Cam Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-have-you-tried-using-a-craig-bot-on-discord-to-record-audio-do-you-have-an-idea-of-using-a-discord-craig-bot-is-safe-get-answers-to-these-questions-/"><u>Updated Have You Tried Using a Craig Bot on Discord to Record Audio? Do You Have an Idea of Using a Discord Craig Bot Is Safe? Get Answers to These Questions and More From This Article as You Continue Reading</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-xiaomi-14-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Xiaomi 14 is off? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-magic5-ultimate-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor Magic5 Ultimate? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-insiders-guide-to-premium-camera-lenses-in-4k/"><u>The Insider's Guide to Premium Camera Lenses in 4K</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprerancial-approach-for-negating-distracting-fb-advertisements/"><u>A Comprerancial Approach for Negating Distracting FB Advertisements</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-the-definitive-12-tycoon-titles-unmissable-gaming-delights/"><u>[New] 2024 Approved  The Definitive 12 Tycoon Titles - Unmissable Gaming Delights</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-examining-mobile-enhancements-with-androids-lightroom-app/"><u>2024 Approved  Examining Mobile Enhancements with Android's Lightroom App</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/essential-guide-to-capturing-vr-gaming-sessions/"><u>Essential Guide to Capturing VR Gaming Sessions</u></a></li>
+<li><a href="https://network-issues.techidaily.com/amd-graphics-support-achieved-post-fix/"><u>AMD Graphics Support Achieved Post-Fix</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-ultimate-guide-to-silencing-sounds-cutting-audio-from-iphonesmac-videos-for-2024/"><u>The Ultimate Guide to Silencing Sounds Cutting Audio From iPhones/Mac Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/0-asmr-apps-on-smart-devices/"><u>Top 10 ASMR Apps on Smart Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-simplify-your-work-the-best-5-mac-snipper-applications/"><u>[New] Simplify Your Work  The Best 5 Mac Snipper Applications</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-quickly-mastering-instagram-written-communication/"><u>[New] 2024 Approved  Quickly Mastering Instagram' Written Communication</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-from-silence-to-symphony-incorporating-music-into-animated-graphics-on-macos-for-2024/"><u>New From Silence to Symphony Incorporating Music Into Animated Graphics on macOS for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-syma-x5c-demystified-the-ideal-drone-for-budding-pilots/"><u>2024 Approved  Syma X5C Demystified  The Ideal Drone for Budding Pilots</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-filter-mastery-essential-skills/"><u>[New] Instagram Filter Mastery - Essential Skills</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-realme-gt-5-240w-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Realme GT 5 (240W)?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+</ul></div>

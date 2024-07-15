@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Honor 80 Pro Straight Screen Edition? | Dr.fone
-date: 2024-05-19T04:23:54.858Z
-updated: 2024-05-20T04:23:54.858Z
+date: 2024-07-14T08:32:53.451Z
+updated: 2024-07-15T08:32:53.451Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Honor 80 Pro Straight Screen Edition?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Honor 80 Pro Straight Screen Edition?
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for 80 Pro Straight Screen Edition,Pokemon Go Without Walking,Pokemon Go for 80 Pro Straight Screen Edition,Pokémon Go Without Walking,Pokémon Go for 80 Pro Straight Screen Edition
-thumbnail: https://www.lifewire.com/thmb/-JO-0dyylsxj3szzMyduNG-Qvig=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-919006240-ee5ef631cb6f4e4997bce403b8bafa77.jpg
+thumbnail: https://thmb.techidaily.com/84ba87eddab3e368851899b58852311f605514d50db5d45ec6de18d3ab0b6cd6.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Honor 80 Pro Straight Screen Edition?
@@ -258,6 +258,9 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 - Always consider the cooldown duration in mind before changing your location. For instance, avoid using the app for a while before moving from one place to another. If you move from London to Tokyo to New York the same day, then your account might get flagged.
 - Try to spoof your location in the same district or state first and wait for a few hours before changing your whereabouts. The following cooldown duration chart would help you determine this in advance.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
     ![Pokemon Go Cooldown Chart](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-10.jpg)
 
 - Make sure that the Pokemon Go joystick you are using is a reliable solution (like the ones listed above).
@@ -286,6 +289,9 @@ Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons
 
 ![pokemon gps signal not found](https://images.wondershare.com/drfone/2020/pokemon/pokemon-gps-signal-not-found.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Fix Pokemon Go No GPS Signal Issue on iOS Devices?
 
 If you own an iOS device and are facing the Pokemon Go GPS bug, then you can follow these troubleshooting tips.
@@ -302,6 +308,9 @@ After that, you can restart the app and check if it would fix the GPS Pokemon Go
 
 Turning on the location services on your iPhone is not enough and you need to grant the GPS access to the Pokemon Go app. To fix the Pokemon Go GPS problem on your iPhone, simply visit its Settings > Privacy > Location Services. Now, from the list of the installed apps, select Pokemon Go and make sure it can access the GPS on your iPhone while running (or always).
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon go location services](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-services.jpg)
 
 ### Fix 3: Set Precise Location for Pokemon Go
@@ -342,10 +351,16 @@ If you have not granted the location services permission to Pokemon Go, then you
 
 ![pokemon go location access](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-access.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Fix 3: Reinstall the Pokemon Go App
 
 As listed above, one of the reasons for this Pokemon Go GPS bug could be a corrupt or outdated app. The easiest way to fix this is by uninstalling Pokemon Go on your phone. Afterward, restart your phone and go to Play Store to install Pokemon Go on your Honor 80 Pro Straight Screen Edition again.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon go update](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-update.jpg)
 
 ### Fix 4: Set GPS on High Accuracy
@@ -401,3 +416,47 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-realme-11-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Realme 11 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-efficient-video-editing-with-timestamps-and-on-screen-text/"><u>[Updated] In 2024, Efficient Video Editing with Timestamps & On-Screen Text</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-get-creative-top-free-mobile-apps-for-adding-video-special-effects/"><u>Updated 2024 Approved Get Creative Top Free Mobile Apps for Adding Video Special Effects</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-best-15-listeners-broadcasting-spaces/"><u>[New] Best 15 Listeners' Broadcasting Spaces</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-visual-voyage-amds-radeon-reborn/"><u>[New] In 2024, Visual Voyage  AMD's Radeon Reborn</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-how-to-erase-photographic-backgrounds/"><u>Step-by-Step  How to Erase Photographic Backgrounds</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-nubia-red-magic-9-pro-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Nubia Red Magic 9 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-strategy-for-collecting-multiple-videos-from-tiktok/"><u>The Ultimate Strategy for Collecting Multiple Videos From TikTok</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigate-metaverse-success-7-crucial-tech-gadgets-for-2024/"><u>Navigate Metaverse Success  7 Crucial Tech Gadgets for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unveiling-my-lost-followers-insta-unfollow-check/"><u>2024 Approved  Unveiling My Lost Followers  Insta Unfollow Check</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlining-presentations-how-to-add-youtube-videos-to-ppt/"><u>Streamlining Presentations  How to Add YouTube Videos to PPT</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/audiophiles-manual-to-volume-control-on-digital-media-updated/"><u>Audiophiles Manual to Volume Control on Digital Media – Updated</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-breakdown-of-12-youtubes-best-in-class-gaming-openings/"><u>[Updated] The Ultimate Breakdown of 12 YouTube's Best-in-Class Gaming Openings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/best-10-anime-websites-to-watch-dubbed-anime-free/"><u>Best 10 Anime Websites to Watch Dubbed Anime Free</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-lava-yuva-2-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Lava Yuva 2 to PC? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-step-by-step-to-silence-zoom-microphones-on-windows-macos-and-android-devices/"><u>Updated In 2024, Step by Step to Silence Zoom Microphones on Windows, macOS, and Android Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-elite-screen-recording-apps-of-2023-expert-picks/"><u>In 2024, Elite Screen Recording Apps of 2023 - Expert Picks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+</ul></div>

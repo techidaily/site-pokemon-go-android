@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Nubia Red Magic 8S Pro? | Dr.fone
-date: 2024-06-15T13:51:29.007Z
-updated: 2024-06-16T13:51:29.007Z
+date: 2024-07-14T09:42:35.082Z
+updated: 2024-07-15T09:42:35.082Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -55,6 +55,9 @@ Besides that, you can also mark any location as favorite or even import/export G
 
 Firstly, you can just connect your iOS device to the computer and launch Dr.Fone – Virtual Location application. You can agree to its terms of services and click on the “Get Started” button now.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 **Step 2: Spoof your iPhone Location to Anywhere you want**
@@ -123,6 +126,9 @@ At first, make sure that your Nubia Red Magic 8S Pro is rooted before you instal
 
 You can now launch the application and go to its Settings to enable the Root Mode. Also, make it the default mock location app by visiting the Developer Option on your phone.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![FGL Pro Root Mode](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-8.jpg)
 
 **Step 2: Start Simulating the movement of your Nubia Red Magic 8S Pro**
@@ -158,6 +164,9 @@ If you have been using iSpoofer for a while to change your iPhone location, you 
 
 Earlier, iSpoofer used to be one of the most popular apps to change our location on Pokemon Go. Sadly, the application is no longer working and you can’t even do iSpoofer download from its website.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### Why did iSpoofer shutdown?
 
 - The use of iSpoofer for Pokemon Go is against the terms of the game (as it doesn’t allow the use of third-party apps).
@@ -193,6 +202,9 @@ You can follow these simple steps to use this iSpoofer alternative to change you
 
 To begin with, you can connect your iPhone to the system and launch the Dr.Fone – Virtual Location on it. Now, agree to its terms and click on the “Get Started” button.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 **Step 2: Enter the target location**
@@ -267,6 +279,9 @@ In this article, we will discuss more PGSharp and ban.
 
 The Niantic, the developer of Pokémon Go, is particular about the safety of the game. The main priority of them with Pokémon GO is to provide a fair game experience to players worldwide. If Niantic finds something wrong with the terms of the game, then it may ban your account.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
 
 The following are the reasons that may cause to ban your account:
@@ -359,3 +374,58 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/thrilling-trials-and-daring-escapades-a-curated-list-of-greatest-games-top-10/"><u>Thrilling Trials & Daring Escapades  A Curated List of Greatest Games (Top 10)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-vivo-y78t-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Vivo Y78t Phone Screen?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/including-a-cover-letter-in-profile-for-2024/"><u>Including a Cover Letter in Profile for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-navigating-the-world-of-digital-sound-capture-a-deep-dive/"><u>[Updated] Navigating the World of Digital Sound Capture  A Deep Dive</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-expert-selections-for-desktop-video-capture/"><u>[New] 2024 Approved  Expert Selections for Desktop Video Capture</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cut-the-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt/"><u>[New] 2024 Approved  Cut the Clutter, Convert Videos  Discover the Best Alternatives for Flv to YT</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-poco-c55-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Poco C55 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-the-lock-screen-on-my-lava-blaze-pro-5g-by-drfone-android-unlock-android-unlock/"><u>How to Unlock the Lock Screen on my Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-nokia-c300-devices-by-drfone-android/"><u>How to Reset Gmail Password on Nokia C300 Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-essential-online-marketing-strategies-for-newcomers/"><u>2024 Approved  Essential Online Marketing Strategies for Newcomers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-zero-cost-film-aids-eco-edition/"><u>[Updated] In 2024, Zero-Cost Film Aids  Eco Edition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-achieving-clarity-in-remote-podcast-recordings/"><u>[New] In 2024, Achieving Clarity in Remote Podcast Recordings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-securely-accessing-insta-stories-anon-pcandroidios-guide/"><u>[New] 2024 Approved  Securely Accessing Insta Stories Anon  PC/Android/iOS Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-honor-play-40c-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Honor Play 40C to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-identifying-and-accessing-your-music-picks-on-youtube/"><u>In 2024, Identifying and Accessing Your Music Picks on Youtube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-digital-discovery-uncovering-popularity-peaks-in-tweets/"><u>[New] In 2024, Digital Discovery  Uncovering Popularity Peaks in Tweets</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-start-to-finish-the-complete-telegram-web-journey/"><u>[New] From Start to Finish  The Complete Telegram Web Journey</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/translated-subtitles-for-global-igtv-audience/"><u>Translated Subtitles for Global IGTV Audience</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-social-media-savants-guide-to-stellar-instagram-posts/"><u>[Updated] The Social Media Savant's Guide to Stellar Instagram Posts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-best-mkv-solvers-on-macos/"><u>[New] 2024 Approved  Best MKV Solvers on macOS</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-cutting-edge-videographer-software-for-vimeo-expertise/"><u>[Updated] 2024 Approved  Cutting Edge Videographer Software for Vimeo Expertise</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-whats-driving-facebook-views-8-hotly-debated-videos/"><u>[New] In 2024, What's Driving Facebook Views  8 Hotly Debated Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-minecraft-community-image-bank-access/"><u>[Updated] Minecraft Community Image Bank Access</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mellow-music-volume-control-for-mac-and-windows/"><u>In 2024, Mellow Music Volume Control for Mac & Windows</u></a></li>
+</ul></div>

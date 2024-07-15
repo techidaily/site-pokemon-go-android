@@ -1,7 +1,7 @@
 ---
 title: In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Magic V2 | Dr.fone
-date: 2024-05-19T04:24:15.998Z
-updated: 2024-05-20T04:24:15.998Z
+date: 2024-07-14T09:01:52.265Z
+updated: 2024-07-15T09:01:52.265Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Magic V2
 excerpt: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Magic V2
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Magic V2,Pokemon Go Without Walking,Pokemon Go for Magic V2,Pokémon Go for Magic V2
-thumbnail: https://www.lifewire.com/thmb/W4WRTJiI80qWQugtfcrcauwLImY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Rearviewofboywithlaptoponsofa-31ba45dfa7fb4553a257c133b352ef64.jpg
+thumbnail: https://thmb.techidaily.com/26dcef27c207b8605e3fcf4585ee0822110eeb8a794c85ff8e27071c7786d452.jpg
 ---
 
 ## Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Magic V2
@@ -101,7 +101,7 @@ A Pokémon Go joystick lets you visit more places or teleport to any place world
 
 ![find the lists of the best Joysticks for Pokemon](https://images.wondershare.com/drfone/pokemon-lists.jpg)
 
-## 1\. [Dr.Fone – Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
+## 1\. Dr.Fone – Virtual Location
 
 iOS users need to enjoy playing Pokémon Go like anybody else. The location-based setting of the app makes it hard to play, especially when you have collected all Pokémon’s near you. However, with Pokémon go spoofing iOS 2020, Dr.Fone has combined the joystick with a virtual area tool to spoof your location. Here are some of the features of the AnyGo from Dr.Fone.
 
@@ -194,7 +194,7 @@ Cons
 
 ## 5\. Fake GPS Location – Routes and Joystick
 
-![Fake any route you wish to with this app. ](https://images.wondershare.com/drfone/fake-gps-routes-and-joysticks.jpg)
+![Fake any route you wish to with this app.](https://images.wondershare.com/drfone/fake-gps-routes-and-joysticks.jpg)
 
 Another useful Pokémon Go GPS spoof app to make your augmented reality game have a better experience. Evvezone developed the GPS spoof joystick app, and it is available for both mobile systems, either android or iOS versions. The app has multiple features helpful in making your experience with Pokémon Go thrilling while seated at home.
 
@@ -217,6 +217,9 @@ Cons
 - To access the joystick option, you have to pay for the premium app
 - There are three modes priced differently with different options
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. iPogo Joystick
 
 ![Use iPogos to fake gps location.](https://images.wondershare.com/drfone/ipogo-joystick.jpg)
@@ -251,6 +254,9 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -263,6 +269,9 @@ When you get a soft ban, its duration is about 12 hours. In this period, any Pok
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
 The cooldown time is proportional to the distance covered by the player. So, when you perform an action marking our location, the cooldown time starts, and you must wait until the cooldown time is over. Here is a quick review of how long the cooldown you can expect.
@@ -283,10 +292,16 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Actions that Do trigger cooldown?
 
 The main reasons for a soft ban are GPS spoofing, changing your location to a distant place in a short time, and traveling too fast to combat playing while driving. Sharing accounts is another reason.
@@ -405,3 +420,63 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-the-difference-is-in-the-details-final-cut-pro-vs-final-cut-express/"><u>In 2024, The Difference Is in the Details Final Cut Pro Vs. Final Cut Express</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-motorola-moto-g24-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Motorola Moto G24 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-art-of-crafting-successful-instagram-posts/"><u>[New] 2024 Approved  The Art of Crafting Successful Instagram Posts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-master-tiktok-snap-enhancers-quickly-and-virally/"><u>[New] Master TikTok Snap Enhancers Quickly & Virally</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-behind-the-screen-tiktoks-10-gaming-visionaries/"><u>[Updated] 2024 Approved  Behind the Screen  TikTok’s 10 Gaming Visionaries</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-pro-photo-framegers-to-polish-pictures-online/"><u>2024 Approved  Pro Photo Framegers to Polish Pictures Online</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-cut-rate-video-upgrade-turning-fb-videos-into-mp4-hd1080p/"><u>[New] In 2024, Cut-Rate Video Upgrade  Turning FB Videos Into MP4 HD/1080P</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-exploring-ios-screenshot-apps-deeply-for-2024/"><u>[New] Exploring iOS Screenshot Apps Deeply for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-realme-gt-5-pro-by-fonelab-android-recover-music/"><u>How To  Restore Missing Music Files from Realme GT 5 Pro</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-poco-m6-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Poco M6 Pro 5G Devices</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-top-ten-online-havens-escaping-stress-through-digital-tranquility/"><u>Updated Top Ten Online Havens Escaping Stress Through Digital Tranquility</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/upcoming-vr-masterpieces-top-5-new-titles-for-playstation-vr-enthusiasts-for-2024/"><u>Upcoming VR Masterpieces  Top 5 New Titles for PlayStation VR Enthusiasts for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-download-premium-quality-designs-at-no-cost-for-youtube-creators-for-2024/"><u>[Updated] Download Premium-Quality Designs at No Cost – For YouTube Creators for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-iphone-xr-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About iPhone XR Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-top-6-video-dubbing-tools-for-pc-free-download-options/"><u>New Top 6 Video Dubbing Tools for PC Free Download Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-brand-explore-these-10-essential-youtube-creators-for-2024/"><u>[New] Elevate Your Brand  Explore These 10 Essential YouTube Creators for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-blending-soundscape-and-silhouettes-a-complete-approach-to-multisensory-imagery/"><u>New In 2024, Blending Soundscape and Silhouettes A Complete Approach to Multisensory Imagery</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-poco-c65-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Poco C65 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-chromatic-shift-strategies-for-skilled-alteration/"><u>In 2024, Chromatic Shift Strategies for Skilled Alteration</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagram-photo-perfection-applying-stylish-borders/"><u>2024 Approved  Instagram Photo Perfection  Applying Stylish Borders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/spotting-the-top-10-covert-story-spectators/"><u>Spotting the Top 10 Covert Story Spectators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/capture-clash-comparing-the-latest-gopro-and-virb-models-for-2024/"><u>Capture Clash  Comparing the Latest GoPro and VIRB Models for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/get-unbranded-tiktok-content-free-full-quality-download/"><u>Get Unbranded TikTok Content  Free, Full Quality Download</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-universal-watcher-exclusive-local-and-live-streaming/"><u>The Universal Watcher  Exclusive Local and Live Streaming</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-presence-setting-up-an-instagram-company-for-2024/"><u>Elevate Your Presence  Setting Up an Instagram Company for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/capture-it-all-the-top-5-sd-cards-for-gopro-hero-footage-for-2024/"><u>Capture It All  The Top 5 SD Cards for GoPro Hero Footage for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/uniform-visual-clarity-in-microsoft-teams-conferences-for-2024/"><u>Uniform Visual Clarity in Microsoft Teams Conferences for 2024</u></a></li>
+</ul></div>

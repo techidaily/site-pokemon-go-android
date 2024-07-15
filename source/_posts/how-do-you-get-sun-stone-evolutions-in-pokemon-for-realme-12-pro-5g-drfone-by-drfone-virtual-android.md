@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 Pro 5G? | Dr.fone
-date: 2024-03-26 18:38:43
-updated: 2024-03-27 23:36:34
+date: 2024-07-14T11:15:12.931Z
+updated: 2024-07-15T11:15:12.931Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 Pro 5G?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 Pro 5G?
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go for 12 Pro 5G,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for 12 Pro 5G,Pokemon Go Joystick for 12 Pro 5G
-thumbnail: https://www.lifewire.com/thmb/ky9dx6TkOY6aQ-Ch6TfW7sMDBu8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/best-free-movies-on-youtube-5114491-12-811d37329347405eab1a368e3018dc54.jpg
+thumbnail: https://thmb.techidaily.com/91d880ab7920ac263b2bbc42f64c84854115542d15d4b0d06e6a3ab502cdbe2d.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 Pro 5G?
@@ -47,6 +47,9 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Pokémon Sun Stone Evolution List
 
 | **Pokémon** | **Items Needed** | **Sun Stone Evolutions** |
@@ -136,6 +139,18 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![set up mock location on your phone](https://images.wondershare.com/drfone/guide/vl-connect-android-3.png)
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
@@ -247,6 +262,9 @@ PvP battles are important for making the game more exciting and having some frie
 
 There are three core leagues in the trainer battles in Pokémon GO, namely Great, Ultra, and Master. Each of these leagues has its own CP limitation and comes in rotation during each season. So, you have to learn to battle in each of them to get seamless rewards. Let's look at each of these leagues individually for a better understanding of the **best Pokémon for PvP**.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon pvp battles](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-2.jpg)
 
 ### 1\. Great League
@@ -271,6 +289,9 @@ As you already must know, there are various Pokémon with their own individual C
 
 ### 1\. Arceus (Fighting)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![arceus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-3.jpg)
 
 Arceus is the strongest one and is known as the God of the Pokémon world. It is a mythical Pokémon that can shift between any type as required for the battle. The most famous moveset of this Pokémon is Shadow Claw and Hyper Beam, which can impact 13.23 damage per second. Arceus possesses a max CP of 4510, which makes it the **best Pokémon for PvP in Pokémon GO**.
@@ -293,6 +314,9 @@ The recommended moves for Zacian (Hero) are Snarl and Play Rough, offering a sol
 | --- | --- | --- |
 | Fairy | Dragon, Bug, Dark, Fighting | Poison, Steel |
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Shadow Machamp
 
 ![shadow machamp pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-5.jpg)
@@ -446,3 +470,68 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-xr-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone XR To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-virtual-speed-best-vr-treadmills-ranked/"><u>In 2024, Exploring Virtual Speed  Best VR Treadmills Ranked</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exceptional-7-dslr-devices-for-expert-video-content-creators-for-2024/"><u>[Updated] Exceptional 7 DSLR Devices For Expert Video Content Creators for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-guide-recording-youtube-videos-on-screencasts-for-2024/"><u>[New] Free Guide  Recording YouTube Videos on Screencasts for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-build-a-loyal-audience-on-facebook-using-effective-growth-methods/"><u>[New] 2024 Approved  Build a Loyal Audience on Facebook Using Effective Growth Methods</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-vivo-y27-4g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Vivo Y27 4G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pendulum-assembly-set/"><u>[Updated] Pendulum Assembly Set</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-realme-12-proplus-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Realme 12 Pro+ 5G Phones with/without a PC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-n53-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo N53 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-excellence-started-with-quality-cameras-and-lenses-for-2024/"><u>Video Excellence Started with Quality Cameras and Lenses for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-2023-dive-into-apeaksofts-video-capture-marvels-for-2024/"><u>[Updated] The 2023 Dive Into Apeaksoft’s Video Capture Marvels for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mastering-aspect-ratio-rules-for-twitter-content/"><u>2024 Approved  Mastering Aspect Ratio Rules for Twitter Content</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-pro-chromebook-record-unmatched-screen-capture/"><u>[New] 2024 Approved  Pro Chromebook Record  Unmatched Screen Capture</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-from-novice-to-expert-your-pathway-in-instagram-reels/"><u>[Updated] From Novice to Expert  Your Pathway in Instagram Reels</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-secure-your-conversations-on-the-go-with-top-10-mobile-chat-apps/"><u>[New] Secure Your Conversations on the Go with Top 10 Mobile Chat Apps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-in-depth-analysis-best-valheim-seeds-for-growth/"><u>In 2024, In-Depth Analysis  Best Valheim Seeds for Growth</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-the-ultimate-nikon-video-editing-tutorial-for-beginners-and-pros/"><u>Updated The Ultimate Nikon Video Editing Tutorial for Beginners and Pros</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-the-ultimate-fcp-project-saving-cheat-sheet/"><u>New 2024 Approved The Ultimate FCP Project Saving Cheat Sheet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-preventing-photo-glitches-on-windows-10-a-quick-guide/"><u>[New] Preventing Photo Glitches on Windows 10  A Quick Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unveiling-tricky-feed-functions-more-vids-please/"><u>[New] In 2024, Unveiling Tricky Feed Functions  More Vids Please</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-arcadia-elite-seamless-full-hd-multi-touch-desktops/"><u>In 2024, Arcadia Elite  Seamless, Full HD Multi-Touch Desktops</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-optimizing-your-android-experience-with-effective-recordings/"><u>[Updated] Optimizing Your Android Experience with Effective Recordings</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/link-and-paste-song-file-within-imovie-narrative-for-2024/"><u>Link and Paste Song File Within iMovie Narrative for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-top-4-screen-recording-features-for-windows-8-for-2024/"><u>[Updated] Top 4 Screen Recording Features for Windows 8 for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-navigating-through-troubled-waters-instagram-videos-guide/"><u>[Updated] Navigating Through Troubled Waters  Instagram Videos Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-easy-techniques-for-snagging-youtube-songs-and-commentary/"><u>[Updated] 2024 Approved  Easy Techniques for Snagging YouTube Songs and Commentary</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-beyond-reality-comparing-vr-augmented-and-mixed-tech/"><u>[Updated] In 2024, Beyond Reality  Comparing VR, Augmented & Mixed Tech</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-poco-c65-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Poco C65? Fixed | Dr.fone</u></a></li>
+</ul></div>

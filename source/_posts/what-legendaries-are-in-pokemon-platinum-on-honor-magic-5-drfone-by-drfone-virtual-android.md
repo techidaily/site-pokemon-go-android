@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor Magic 5? | Dr.fone
-date: 2024-05-19T04:23:58.260Z
-updated: 2024-05-20T04:23:58.260Z
+date: 2024-07-14T08:37:42.971Z
+updated: 2024-07-15T08:37:42.971Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Honor Magic 5?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Honor Magic 5?
 keywords: Pokémon Go Without Walking,Pokémon Go for Magic 5,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Magic 5,Pokemon Go Without Walking,Pokemon Go for Magic 5
-thumbnail: https://www.lifewire.com/thmb/qiktAkdIlSu9VsdFjM1R46-msZU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/editing-5c8a53d446e0fb0001336621.png
+thumbnail: https://thmb.techidaily.com/dfd36bdece1f9de4c3b950ac0cec685d6ee5d1281721c2dd1a2340c4240b4f62.png
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Honor Magic 5?
@@ -33,6 +33,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **2\. Uxie:** Found in found in Acuity Cavern in the middle of Lake Acuity, Uxie is one of the three legendary Pokemon scattered around Sinnoh after you have battled and qwelled Giratina. The Level 50 Pokemon is reachable by walking or riding up without any fear of attack. This is one of the popular platinum legendaries.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 3](https://images.wondershare.com/drfone/Platinum-legendaries-3.png)
 
 **3\. Azelf:** Located in Valor Cavern, in the middle of Lake Valor, Azelf is the Blue Pokemon in the trio. The Level 50 Pokemon does not attack you as you walk or ride up to it. Spray Super Repels as you move towards the Pokemon and surf onto the rocky island housing a cave to catch it.
@@ -119,6 +122,9 @@ Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level 
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -129,6 +135,9 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
@@ -231,6 +240,9 @@ Just be sure that Pokemon Go won’t detect that you are using a GPS spoofer to 
 
 Apart from a location spoofing app, there are a handful of other ways to learn how to hatch eggs without walking in Pokemon Go. Most of the eggs in Pokemon Go would need you to walk 2, 5, or 10 kilometers. The good news is that an average drone can easily cover this distance. Firstly, get a working drone on which you can easily place your phone. It is recommended to get a lock so that your device won’t fall while it is on a drone. Once your phone is successfully attached to a drone, just use it to cover a substantial distance. Make sure that the speed is minimal so that Pokemon Go would believe that you are walking instead.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Play Pokemon Go with a drone](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-5.jpg)
 
 **Things to Remember**
@@ -289,6 +301,9 @@ If you have a Roomba or any other robotic cleaner in the house, then you can als
 
 If you are already into model railroads, then you won’t face any issues playing Pokemon Go. It would be the replica of a big railroad with miniature trains. Simply place your phone on a miniature train and let it revolve around the railroad to cover the distance. Just keep your phone safe and regulate the speed of the train to make sure that Pokemon Go won’t detect any fast movement. You would have to drive your train for a while to cover the distance, but you don’t have to walk to do it.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Model Railroad](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-12.jpg)
 
 ## Way 9: Use A Turntable to Hatch Eggs without Walking Pokemon Go
@@ -428,3 +443,69 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-samsung-galaxy-a14-4g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Samsung Galaxy A14 4G Devices | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discerning-t-series-profit-mechanisms-from-youtube-views/"><u>2024 Approved  Discerning T-Series' Profit Mechanisms From Youtube Views</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultimate-ios-tutorial-downloading-episodes-effortlessly/"><u>Ultimate iOS Tutorial  Downloading Episodes Effortlessly</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-avs-video-editor-2023-features-pricing-and-performance-review-for-2024/"><u>New AVS Video Editor 2023 Features, Pricing, and Performance Review for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-motorola-razr-40-ultra-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Motorola Razr 40 Ultra in Minutes | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-capture-the-speed-of-life-2-easy-ways-to-create-stunning-time-lapse-videos/"><u>Updated 2024 Approved Capture the Speed of Life 2 Easy Ways to Create Stunning Time Lapse Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ross-platform-strategies-to-boost-youtube-presence/"><u>[New] Cross-Platform Strategies to Boost YouTube Presence</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-essentials-for-successful-google-podcast-upload/"><u>[New] In 2024, Essentials for Successful Google Podcast Upload</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-complete-guide-to-crafting-best-in-class-yt-thumbnails/"><u>2024 Approved  A Complete Guide to Crafting Best-in-Class YT Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cultivating-a-positive-mindset-against-cyberbullying/"><u>[New] In 2024, Cultivating a Positive Mindset Against Cyberbullying</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-from-raw-to-ready-comparing-the-best-digital-audio-processors-on-the-market/"><u>Updated From Raw to Ready Comparing the Best Digital Audio Processors on the Market</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-art-of-replaying-twitch-live-streams/"><u>[Updated] The Art of Replaying Twitch Live Streams</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/essential-drone-motors-guide-for-optimal-flight/"><u>Essential Drone Motors Guide for Optimal Flight</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfecting-iphone-screen-exposure-for-2024/"><u>Perfecting iPhone Screen Exposure for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-7-video-streaming-innovations-excel-on-youtube-with-iphonesandroid-os/"><u>[Updated] Top 7 Video Streaming Innovations  Excel on YouTube with iPhones/Android OS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-video-editing-on-chromebook-top-recommendations/"><u>In 2024, Video Editing on Chromebook Top Recommendations</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-channel-charisma-techniques-for-amplifying-youtube-visibility/"><u>[Updated] In 2024, Channel Charisma  Techniques for Amplifying YouTube Visibility</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-premier-converters-top-8-streamline-your-subtitles-to-srt/"><u>[New] Premier Converters  Top 8 Streamline Your Subtitles to SRT</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-copypaste-dilemma-sudden-vid-deletion/"><u>[New] 2024 Approved  Copypaste Dilemma  Sudden Vid Deletion</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/downloading-ios-tiktok-content-without-watermarks-for-2024/"><u>Downloading iOS TikTok Content Without Watermarks for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-hip-hop-frenzy-top-tiktok-rap-videos-of-today/"><u>[New] 2024 Approved  Hip-Hop Frenzy  Top TikTok Rap Videos of Today</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-best-gif-recorder-for-mac/"><u>[New] In 2024, Best Gif Recorder for Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-se-2022-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-songsync-guide-tamil-ringtones-from-download-to-customize/"><u>In 2024, SongSync Guide  Tamil Ringtones From Download to Customize</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-laughs-teardrops-and-snickers-in-10-best-ig-memes-groups-for-2024/"><u>[Updated] Laughs, Teardrops & Snickers in 10 Best IG Memes Groups for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/the-art-of-video-timing-speeding-up-and-slowing-down-in-camtasia-for-2024/"><u>The Art of Video Timing Speeding Up and Slowing Down in Camtasia for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-mac-video-editing-mastery-adobe-premiere-pro-for-experts/"><u>New Mac Video Editing Mastery Adobe Premiere Pro for Experts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor X50i | Dr.fone</u></a></li>
+</ul></div>
