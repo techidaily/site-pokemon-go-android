@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Realme 10T 5G? | Dr.fone
-date: 2024-07-14T10:33:15.633Z
-updated: 2024-07-15T10:33:15.633Z
+date: 2024-09-11T16:20:46.705Z
+updated: 2024-09-16T16:12:32.866Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,11 +21,6 @@ Pokemon Go is one of the most popular augmented reality location-based games tha
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/qLfCHnwsagk"></iframe>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What’s the Need for a Pokemon Go Joystick?
 
 If you are an avid Pokemon Go player, then you might already know that the game demands us to step outside to catch Pokemons or participate in raids. Sadly, not everyone can travel so much on their own. Therefore, you might consider using a Pokemon Go joystick on iOS/Android under the following circumstances.
@@ -68,9 +63,6 @@ Once your iPhone is connected, its present location would automatically be displ
 
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 **Step 3: Simulate the iPhone Movement with a joystick**
@@ -119,6 +111,13 @@ That’s it! Now, you can just view the GPS Joystick on the map with relevant op
 
 ![GPS Joystick Android](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.3 Pokemon Go Joystick Hack for Rooted Android Phones
 
 Lastly, if you have a rooted Android device, then you can also explore tons of options to fake GPS on Pokemon Go. One of them FGL Pro, which is mostly used by experts for location spoofing and movement simulation. Since the Pokemon Go APK download is available for free, you can use the app without any issue. Here’s how you can use this Pokemon Go APK for rooted devices.
@@ -152,14 +151,11 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 
 There you go! By now, you would be able to implement these spoofing Pokemon Go tips and tricks. As you can see, there can be so many Pokemon Go spoofing iOS/Android solutions that you can explore. While there are plenty of Pokemon Go spoofer APK tools for Android devices, iOS users can try [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking your device, it will let you spoof its location and even simulate its movement to catch Pokemons remotely.
 
-
-
 ## Hacks to do pokemon go trainer battles For Realme 10T 5G
 
 With the launch of the Pokémon Go battle league, the trainer battles are seen as one of the options that can be used to compete and do it the hard way. As the name suggests it is a feature in Pokémon Go that lets you battle as a trainer against the other trainers. Pokémon Go trainer battles are a great way to enhance your skills as the rules are different from the gym and raid battles which are also a great feature of this game. The Pokémon CP limits are granted to each league from which the trainer needs to choose one.
 
 ![Pokemon go hacks 1](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_1.jpg)
-
 
 ## Part 1: What is the Point of Trainer Battles in Pokémon Go?
 
@@ -170,8 +166,12 @@ The best part is that the teams are assembled by the trainers themselves. The po
 Now you want to make sure that the charged attacks are learned and how they can be used as a weapon against the other players. The Pokémon should also be chosen as per the ability as different Pokémon have different charged attack ability overall. The Pokémon is of a different kind as all benefit from the charge attack in different states. It also means that you get to choose Pokémon like Tyranitar which will get you to through the battle with highly advanced skills. Typhlosion is a dual-type Pokémon and the raids which are done using it benefit the trainers as compared to single types.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: What can you get from trainer battles Pokémon go?
 
 This part will deal with the rewards which the trainers will get for the battles which they will fight. There are three different types of rewards that you can win when it comes to trainer battles. These are as follows:
@@ -190,9 +190,6 @@ The rematches that are done in the trainer battles also account for the leveling
 
 ![Pokemon go hacks 3](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Does CP Matter in Trainer Battles?
 
 In Pokémon trainer battle it indeed matters and this is one of the basic phenomena that will take you and your team to the next level. The CP stands for combat power and it means the power of your Pokémon. As a trainer when you battle more and more the XP increases and the CP as well. This CP will also help you to get a step ahead of others in terms of Pokémon that you own. The candies are used to make sure that the CP of the Pokémon is increased. It also means that you get the best Pokémon on the battlefield that will be able to counter offense the other Pokémon on the field. There are two ways to get higher CP. Firstly you can evolve a Pokémon and secondly you can also power up an existing Pokémon. Both are the choices and the result is completely up to you. Use candies and power up your Pokémon to a higher level. It will also ensure that you get the best results on the battlefield. The weight and the size of the Pokémon also affect the CP score so you need a Pokémon that is both agile and lightweight to get the best results.
@@ -227,6 +224,19 @@ Activate the teleport mode by clicking the corresponding icon on the third one o
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5: Move Here**
 
 The system understands the desired place and then you need to click to move here.
@@ -257,6 +267,13 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -266,6 +283,13 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
@@ -289,9 +313,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -389,14 +410,9 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -410,7 +426,23 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-choosing-your-game-capture-tool-obsshadowplay/"><u>[New] Choosing Your Game Capture Tool OBS/ShadowPlay</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-moment-in-time-windows-108-screenshots-explained/"><u>[New] In 2024, Moment in Time Windows 10/8 Screenshots Explained</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-spectacular-lg-ud88w-4k-widescreen-monitor-review/"><u>[Updated] The Spectacular LG UD88W 4K Widescreen Monitor Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-impact-of-weather-on-syma-x8c-performance/"><u>2024 Approved The Impact of Weather on Syma X8C Performance</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/connecting-with-expertise-discover-how-to-reach-out-to-professionals-at-digiarity/"><u>Connecting with Expertise: Discover How to Reach Out to Professionals at Digiarity</u></a></li>
+<li><a href="https://win-able.techidaily.com/detroit-lives-up-how-the-becomes-human-game-survived-a-pc-crash/"><u>Detroit Lives Up: How the 'Becomes Human' Game Survived a PC Crash</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-realme-10t-5g-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Realme 10T 5G</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/strategies-for-apple-listed-podcast-success/"><u>Strategies for Apple-Listed Podcast Success</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor V Purse | Dr.fone</u></a></li>
+</ul></div>
 

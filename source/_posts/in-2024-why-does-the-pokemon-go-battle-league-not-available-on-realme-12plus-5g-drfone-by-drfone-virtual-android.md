@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Realme 12+ 5G | Dr.fone
-date: 2024-09-10T23:40:26.509Z
-updated: 2024-09-11T23:40:26.509Z
+date: 2024-09-12T16:24:14.608Z
+updated: 2024-09-16T18:23:15.776Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,26 +21,6 @@ It’s not the first time trainers have experienced bugs in the game and a long 
 
 The root cause of this disappointing course of events was a major bug in the first season of the Battle League. Some players could simply use “charged moves” repetitively without recharging. Thankfully Niantic is coming up with a fix.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 1: What are the Go battle league known issues?
 
 Pokémon Go as a game, is constantly evolving to improve the trainer’s experience which involves finding issues and resolving them. Like all other games, the publisher always tries their best to make the user experience more enriching and fair for the users.
@@ -54,20 +34,6 @@ Several trainers immediately tweeted this excruciating bug to Niantic requesting
 Players when entering the Battle League are shown – Pokemon Go Battle League Not Available Right Now, and all matches that were in progress were not concluded.
 
 ![pokemon 1](https://images.wondershare.com/drfone/2020/pokemon-1.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Thankfully, the issue has been resolved and trainers can get back into the league without any change in the previous features.
 
@@ -97,20 +63,6 @@ Few players with the assist of Melmetal (ground and steel type) could lodge cons
 
 ![pokemon 2](https://images.wondershare.com/drfone/2020/pokemon-2.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 After this issue was tweeted to the notice of the game publisher, Ninattic temporarily paused Battle League. Trainers while accessing the live tournament event would be notified with – “Pokemon Go Battle League Not Available” by the game.
 
 Although this doesn’t mean that trainers wouldn’t be able to play practice matches or close proximity matches. Battle League presents itself as an event in the game which gives trainers the chance to earn bonuses and stardust.
@@ -125,20 +77,6 @@ Here’s a list of exciting updates that will be included in the upcoming season
 - Season 5 will be completed once you reach rank 7 which will earn you the Elite Charged TM rather than an Elite Fast TM.
 - In Season 5 few Pokémon’s will get new updated move sets which the trainers can use to train and prepare for upcoming tournaments.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 3: Tips you want to level up your pokemon go?
 
 The basics you need to learn to play Pokémon go is catching Pokémon and powering them up. Other than that there are ways you can speed power up your Pokémon to increase CP to higher levels. The overall Pokémon’s collected, evolved or powered up, and battles fought in Battle League will win you points to level up in Pokémon Go.
@@ -147,19 +85,12 @@ Although it might seem like a long and hard journey, it doesn’t need to. You c
 
 Here’s some tips you can put to easy use in Levelling Up in Pokémon Go:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Tip #1: Use dr.fone Virtual Location
 
@@ -185,43 +116,9 @@ There are several adjustments to the program that makes it fun to use. You can a
 - In order to attain a Pokémon who once powered up to its maximum potential can give you a battle worthy breed, you will need to sickle through a couple of them in order find one worth powering up.
 - You can also evolve weaker Pokémon and harvest them for candy which you can use to power up your star Pokémon.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Tip #4
 
 - Use Lucky Egg to double your XPs earned to increase the chances of getting Pokémon which when evolved spews more XP and Candy.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -239,41 +136,7 @@ The Pokémon emerald master ball can do this with no effort on your part. Simply
 
 ![An image of a Pokémon Master Ball](https://images.wondershare.com/drfone/2020/virtual-location/masterball-pokemon.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 _**Tips:** Catch Pokémon like a Pro with Dr.Fone - Virtual Location! Capture as many Pokémon as possible within a short time, no matter where they appear. Explore different locations virtually and become a Pokémon-catching master! Try it now!_
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1: Do you know the Pokémon Emerald Master Ball?
 
@@ -309,20 +172,6 @@ When you are using My Boy, you can use the following code:
 
 You should then set the “cheat type” to “codebreaker”. Now set it to “autodetect” and you will be able to get Pokémon Master Emerald Balls at any time you wish.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 3: How do you get unlimited master balls in Pokémon Emerald?
 
 There are ways in which you can get unlimited Pokémon Master Balls using the Pokémon emerald Master Ball cheat codes available today.
@@ -332,20 +181,6 @@ There are ways in which you can get unlimited Pokémon Master Balls using the Po
 When you are using Pokémon game emulators such as the GameShark, you can take a snapshot of the game and save it. This enables you to quickly come back to this point should anything go wrong when trying to use the cheat codes.
 
 ![Save the game state](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-1.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 2 –** Now hit the "Cheats" menu and then choose the "Cheat List". You will be presented with a new window where you can now enter the cheat codes.
 
@@ -364,20 +199,6 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Enter PokeMart to but Pokémon Emerald Master Balls](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-4.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Only one Master Ball can be bought at a time, but you can do this as many times as you want. If you are already inside the PokeMart when you enter the code, you may have to walk out and walk back in again for it to work.
 
 ![Buy as many Pokémon Emerald Master Balls as you would like using the cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-5.jpg)
@@ -388,25 +209,18 @@ Make sure that you exit the store and go back again to finish the process proper
 
 ![Disable the Pokémon Emerald Master Ball cheat code when you are finished shopping](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-6.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 The best thing about this method is that you do not need to enter another master ball cheat code in the future. All you have to do is go back to your Cheat List and check the box for the code once more.
 
@@ -415,20 +229,6 @@ The best thing about this method is that you do not need to enter another master
 When you need to level up on Pokémon Go, the best and legal way is to get as much XP as possible within the shortest time possible. Now there are very many ways in which you can amass XP but we shall look at some of the best and easiest ways to go about this.
 
 Here are a few of the best ways to go about this:
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Mass Friending
 
@@ -452,20 +252,6 @@ Raiding Gyms can get you a lot of XP. This is more so when you go for Legendary 
 
 Do as many of these Raids as you can.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Mass catching and Mass evolving
 
 You can also catch as many Pokémon as you can and then use a Lucky Egg and their Candies to evolve them at the same time. This requires that you evolve many Similar Pokémon and they should be cheap to evolve. You can get a lot of XP in this way.
@@ -473,8 +259,6 @@ You can also catch as many Pokémon as you can and then use a Lucky Egg and thei
 But how do you catch as many Pokémon as possible within a short time?
 
 This is where teleporting tools such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) comes in. This is a wonderful and powerful tool that allows you to teleport from one area to another without the game realizing that you are spoofing your location.
-
-
 
 ### Dr.Fone - Virtual Location
 
@@ -496,47 +280,22 @@ Use the [tutorial shown on this page](https://drfone.wondershare.com/guide/telep
 
 Once you have enough Pokémon creatures, you may now use your Lucky Egg and evolve them in mass and add your XP.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## In Conclusion
 
 Getting Pokémon Emerald Master Ball cheat codes is important if you want to catch a lot of Pokémon with ease. You need to catch them so you can level up as fast as possible. As you have seen, one of the best ways to do this is to catch a lot of Pokémon, and then evolve them and get XP that will allow you to level up quickly. You may use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to shift to areas where you can catch a lot of Pokémon creatures using the Pokémon Emerald Master Ball; it is much better when you have a cheat code that will allow you to get unlimited Master Balls.
 
-
-
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Pokémon Go Cooldown Chart On Realme 12+ 5G
 
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
@@ -548,41 +307,7 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -604,19 +329,12 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -634,20 +352,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -682,20 +386,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -721,6 +411,13 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
@@ -743,14 +440,9 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -764,71 +456,23 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-visuals-best-practices-for-impactful-ig-video-loops/"><u>[New] Elevate Visuals  Best Practices for Impactful IG Video Loops</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-dslr-broadcast-101-using-facebook-live-from-home-pcs/"><u>[New] In 2024, DSLR Broadcast 101  Using Facebook LIVE From Home PCs</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-how-to-upgrade-your-stream-quality-obs-for-youtube-and-twitch/"><u>[New] In 2024, How to Upgrade Your Stream Quality  OBS for YouTube & Twitch</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-streamlining-your-live-broadcast-ps4-recording-via-obs-studio/"><u>[New] Streamlining Your Live Broadcast  PS4 Recording via OBS Studio</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-unleash-your-inner-tech-wizard-xbox-one-snapshot-secrets-revealed-for-2024/"><u>[New] Unleash Your Inner Tech Wizard  Xbox One Snapshot Secrets Revealed for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-chapter-how-to-add-chapters-to-vimeo-video-in-2024/"><u>[New] Vimeo Chapter  How to Add Chapters to Vimeo Video, In 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-elevating-your-audacity-skills-for-professional-audio-capture-for-2024/"><u>[Updated] Elevating Your Audacity Skills for Professional Audio Capture for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-techniques-to-reformat-macscreenshot-extensions/"><u>[Updated] In 2024, Techniques to Reformat MacScreenshot Extensions</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-art-of-iphone-photography-in-the-dark/"><u>[Updated] The Art of iPhone Photography in the Dark</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-top-scratches-comparative-review-of-recorders-for-2024/"><u>[Updated] Top Scratches  Comparative Review of Recorders for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-unleashing-creativity-with-pro-gopro-guidance-for-2024/"><u>[Updated] Unleashing Creativity with Pro-GoPro Guidance for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-xiaomi-14-ultra-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Xiaomi 14 Ultra to iPhone | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1721939430769-bargain-alert-get-your-new-phone-at-half-price-and-learn-how-to-fight-ransomware-hacks-today/"><u>Bargain Alert! Get Your New Phone at Half-Price & Learn How to Fight Ransomware Hacks Today.</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-marketing-insights-with-8-critical-crowdfire-functions/"><u>Elevate Marketing Insights with 8 Critical Crowdfire Functions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/embracing-whimsy-cartoon-face-magic-in-snapchat/"><u>Embracing Whimsy  Cartoon Face Magic in Snapchat</u></a></li>
-<li><a href="https://network-issues.techidaily.com/hardware-preferences-retained-post-update/"><u>Hardware Preferences Retained Post-Update</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-c51-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme C51? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme C33 2023? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme C55? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-vivo-v30-lite-5g-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Vivo V30 Lite 5G.</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic 6 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme Narzo N53? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme C67 4G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-spearheading-immersive-worlds-top-vr-minds/"><u>In 2024, Spearheading Immersive Worlds  Top VR Minds</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Realme GT 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Poco X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-what-actions-can-i-take-if-my-content-is-swiftly-stripped-by-fb/"><u>In 2024, What Actions Can I Take if My Content Is Swiftly Stripped by FB?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco C65? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-note-50-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme Note 50? Fixed | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-honor-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Honor FRP Without Computer</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/latest-software-for-hp-officejet-4630-installation/"><u>Latest Software for HP Officejet 4630 Installation</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mellowing-the-feed-the-art-of-adding-soundtracks-to-stories/"><u>Mellowing the Feed  The Art of Adding Soundtracks to Stories</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-updating-wifi-card-drivers-for-optimal-performance-on-win10-and-win11/"><u>Step-by-Step Guide: Updating WiFi Card Drivers for Optimal Performance on Win10 & Win11</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-realme-c55-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-poco-c65-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-100-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-video-showcase-the-best-15-youtube-sites-for-flawless-unboxing-2024/"><u>Ultimate Video Showcase  The Best 15 YouTube Sites for Flawless Unboxing, 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme GT 5 (240W)? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-best-screen-capture-apps-a-guide-for-educators/"><u>[New] 2024 Approved The Best Screen Capture Apps A Guide for Educators</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-guide-to-downloading-and-mastering-ez-grabber/"><u>[New] The Ultimate Guide to Downloading & Mastering EZ Grabber</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-a-beginner-friendly-introduction-to-io-screen-recorder/"><u>[Updated] In 2024, A Beginner-Friendly Introduction to IO Screen Recorder</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-c55-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/delving-into-vllo-user-testimonies/"><u>Delving Into VLLO User Testimonies</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/download-kinemaster-for-macstep-by-step-guide/"><u>Download KineMaster for MacStep-by-Step Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-home-visionarys-review-best-devices-for-clips/"><u>In 2024, Home Visionary's Review Best Devices for Clips</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/leading-8-gpt-directives-for-diminishing-online-disturbances/"><u>Leading 8 GPT Directives for Diminishing Online Disturbances</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-guide-unfreezing-stuck-spotify-app-in-win11-pcs/"><u>Quick Guide: Unfreezing Stuck Spotify App in Win11 PCs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revisiting-tech-history-thorough-evaluation-of-the-vintage-netgear-c3000-dual-functional-device-for-internet-connectivity/"><u>Revisiting Tech History: Thorough Evaluation of the Vintage Netgear C3000 Dual-Functional Device for Internet Connectivity</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-c53-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme C53 | Dr.fone</u></a></li>
 </ul></div>
+
