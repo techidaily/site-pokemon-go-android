@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Realme 12 Pro+ 5G? | Dr.fone
-date: 2024-09-23T04:43:19.026Z
-updated: 2024-09-28T00:41:01.843Z
+date: 2024-10-04T17:53:50.150Z
+updated: 2024-10-08T17:04:40.936Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -75,13 +75,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -95,10 +88,10 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -113,6 +106,13 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -120,13 +120,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
@@ -161,10 +154,10 @@ In this guide, I will teach you how to use reliable Android Pokemon Go spoof app
 ![Pokemon Go spoofing apps for Android](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: Why so many people seek Pokemon Go spoofing on Android?
@@ -186,13 +179,6 @@ A while back, Niantic realized that a lot of people are misusing the app by expl
 ## Part 3: 3 Best Methods for Android Pokemon Go Spoofing
 
 As you can see, if you are using any unreliable Pokemon Go spoofing app on Android, then it can even get your account suspended. Not just that, it can also harm your device and make it vulnerable to security threats. To help you pick the best spoofing app for Pokemon Go Android, we have handpicked the 3 most secure options here. Let's explore these Pokemon Go spoofing solutions for Android in 2019.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3.1 Use a VPN
 
@@ -224,6 +210,13 @@ If you have an Android device, you can use tons of fake GPS apps to spoof your l
 
 ![launch Pokemon Go](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you want, you can even close Fake GPS Go so that Pokemon Go won't detect its presence. Don't worry – it will keep running in the background until you would manually launch it and stop the location spoof feature.
 
 ### 3.3 Use Fake GPS Free
@@ -250,6 +243,13 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 
 Evolution items play a significant role in evolving certain species in the Pokémon game. Moon Stone is one of these peculiar items that are worth adding to your Pokedex. However, getting Moon Stone Pokémon is a tough assignment and you have to pull your best bells and whistles. However, there are several hacks and tricks that can reduce your hunting pain. In this article, we shall take you through a complete guide on Moon Stone Pokémon and evolutions.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1. Moon Stone Pokémon
 
 ### What is Moon Stone Pokémon?
@@ -258,24 +258,18 @@ Moon Stone is an evolution stone introduced in generation I. This peculiar stone
 
 ![moon stone](https://images.wondershare.com/drfone/2020/moon-stone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to Lake of Outrage in the Wild area. You will see a body of water on your left and a watt trader standing near it. To cross this water body, you will have to unlock the Rotom Bike from Route 9. When you manage this, check under the eight stones and you might be lucky that one of them might yield a Moon Stone. Also, you can navigate to the Dusty Bowl in the Wild Area. Here, you will find barren stones between a grassy rock and wheat field.
 
 ### Pokémon that Evolve with a Moon Stone
 
 Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Nidorina
 
@@ -294,10 +288,10 @@ This is a fairy-type Pokémon that was introduced in Generation I. It is a small
 This is a normal/fairy type of Pokémon that was also introduced in Generation I. Before Generation VI, this Pokémon was entirely a normal-type Pokémon. Jigglypuff itself is an evolution of Igglybuff and can evolve into Wigglytuff with the help of Moon Stone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Skitty
@@ -308,16 +302,16 @@ This is a normal type Pokémon that was introduced in Generation II. This Pokém
 
 Munna is a psychic-type Pokémon that was introduced in Generation V. It is a small Pokémon with a pink round body having purple flower painting on its back. With the use of Moon Stone, Munna evolves into a Musharna.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2. Tricks and Hacks to Get Moon Stone Pokémon
 
 As you have seen above, getting a Moon Stone is not an easy ride. It involves lots of trials and there is no guarantee to get it. But what tricks and hacks can you incorporate to make your hunt seamless? The following are some of the plausible tricks that you can use to easily grab a Moon Stone and add it to your Pokedex.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Use Dr. Fone Virtual iOS Location
 
@@ -363,15 +357,22 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-the-critical-factors-for-upgrading-your-4k-lens/"><u>[New] In 2024, The Critical Factors for Upgrading Your 4K Lens</u></a></li>
-<li><a href="https://techtrends.techidaily.com/capture-it-all-a-comprehensive-guide-to-pc-screen-capturing-methods/"><u>Capture It All: A Comprehensive Guide to PC Screen Capturing Methods</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-stop-your-game-from-crashing-top-6-troubleshooting-steps/"><u>How to Stop Your Game From Crashing: Top 6 Troubleshooting Steps</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-advanced-recording-strategies-for-effective-ppt-dissemination/"><u>In 2024, Advanced Recording Strategies for Effective PPT Dissemination</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-samsung-galaxy-s23plus-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Samsung Galaxy S23+ FRP</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50i+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/what-is-virtual-reality-video-in-2024/"><u>What Is Virtual Reality Video, In 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhancing-engagement-essential-video-formats-for-youtube-viewers/"><u>[Updated] 2024 Approved Enhancing Engagement Essential Video Formats for YouTube Viewers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-modern-methods-rapidly-turning-srt-into-txt-format/"><u>[Updated] 2024 Approved Modern Methods Rapidly Turning SRT Into TXT Format</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-realme-11-proplus-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Realme 11 Pro+ Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-c55-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/comprehensive-fixes-for-the-launch-problems-in-avatar-frontiers-of-pandora/"><u>Comprehensive Fixes for the Launch Problems in 'Avatar: Frontiers of Pandora'</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-honor-x50-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Honor X50 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-immortalizing-the-epic-sagas-of-pc-gaming-6-pro-tips/"><u>In 2024, Immortalizing the Epic Sagas of PC Gaming 6 Pro Tips</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-iphone-ringtone-alterations/"><u>In 2024, The Ultimate Guide to iPhone Ringtone Alterations</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-ultimate-guide-to-slomo-videography-app-review-update/"><u>In 2024, Ultimate Guide to SloMo Videography App Review Update</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-game-interruptions-ultimate-2-groove-ultimate-strategies-to-fix-dead-by-daylight-crashes/"><u>No More Game Interruptions: Ultimate 2 Groove, Ultimate Strategies to Fix Dead by Daylight Crashes .</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme C67 5G | Dr.fone</u></a></li>
 </ul></div>
 

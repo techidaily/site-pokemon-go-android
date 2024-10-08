@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use iSpoofer on Realme 12 5G? | Dr.fone
-date: 2024-10-01T04:27:33.232Z
-updated: 2024-10-03T00:58:47.943Z
+date: 2024-10-03T21:16:05.497Z
+updated: 2024-10-08T20:45:26.253Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -106,13 +106,6 @@ If you are a Pokemon Go player, then you might already know how crucial it is to
 
 ![Pokemon Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Part 1: Where can I find the Best Pokemon Go Discord Servers?**
 
 Ideally, there are hundreds of Discord servers dedicated to Pokemon Go that you can find. Since it is not possible to join so many servers, I would recommend considering the following options to pick some appropriate Pokemon Discord servers.
@@ -126,19 +119,6 @@ Just go to its website to access the map of various Pokemon Go Discord servers. 
 _Website:_ [_https://thesilphroad.com/map#2/_](https://thesilphroad.com/map#2/)
 
 ![The Silph Road Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-2.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2. **Discord Servers**
 
@@ -168,13 +148,6 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 ![Discord Add a Server](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2. Now, you will be given an option to either create a new server or simply join an existing server. From here, you can select an option to join an existing server instead.
 
 ![Discord Server Options](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-6.jpg)
@@ -182,13 +155,6 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 3. Lastly, you just need to paste the invite link of the Pokemon Go Discord server and click on the “Join” button.
 
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
 
@@ -226,6 +192,13 @@ Pokesnipers is one of the oldest Discord servers for Pokemon Go players. It has 
 
 _Server link:_ [_https://discord.com/invite/T2MakRF_](https://discord.com/invite/T2MakRF)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Pro Tip: Spoof your iPhone Location to Play Pokemon Go Remotely
 
 From these Pokemon Go Discord servers, you can easily know the spawning or raid locations for the game. Later, you can use a tool like Dr.Fone – Virtual Location (iOS) to spoof the GPS of your iOS device. Just connect your iPhone to the computer and enter the target location’s address or its exact coordinates. You can also use it to simulate the movement of your device in a route realistically via a GPS joystick. The best part is that the application is super-easy to use and will not need jailbreak access on your phone.
@@ -233,6 +206,13 @@ From these Pokemon Go Discord servers, you can easily know the spawning or raid 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 ![click on menu](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -256,29 +236,9 @@ Play our special connect-the-dots game within one minute of the designated time,
 
 January 22, 2024, to March 4, 2024.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Exclusive Requirements
 
 The game is as simple as playing connect-the-dots. Participants who successfully complete the game will earn rewards!
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Exclusive Rewards
 
@@ -289,6 +249,13 @@ Winners can enjoy a 33% off coupon on Dr.Fone - Virtual Location to spoof your P
 ## Unlock Exclusive Rewards with Our Connect-the-Dots Game
 
 ![game](https://images.wondershare.com/drfone/images2024/pokemon/game-bg.png) ![play](https://images.wondershare.com/drfone/images2024/pokemon/play-btn.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Coupon Usage Recommendations
 
@@ -308,19 +275,6 @@ New Pokémon are being added to Pokémon Go every day. These include regionals, 
 
 ![select the teleport mode](https://images.wondershare.com/drfone/virtual-loaction/catch-croagunk-pokemongo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to find rare Pokémon or complete your Pokédex?
 
 There are various options you can try to find rare Pokémon and complete your Pokedex.
@@ -339,6 +293,13 @@ Considering time and money, the first few of the above methods are not so easy t
 Dr.Fone Virtual Location is a super useful software when it comes to spoofing the locations of your device. You can use this app to not only change the GPS for Pokémon Go but also simulate the GPS movement with a joystick! On top of that, the software is super easy to use, so you don’t need to be tech-savvy to use it. With Dr.Fone - Virtual Location, you can easily access region-exclusive Pokémon. Whether you want to catch Klefki, which is exclusive to France, or the Hawai’i-exclusive Comfey, Dr.Fone makes it all possible.
 
 ![pic](https://images.wondershare.com/drfone/images2024/pokemon/buy-pic.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Dr.Fone-Virtual Location](https://neveragain.allstatics.com/2019/assets/icon/logo/drfone-virtual-location-square.svg)
 
@@ -395,11 +356,25 @@ Now, click on the search bar and type in the name of the location you want to us
 
 ![type in a location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5. Arrive at your desired location.**
 
 Now, the map will show your desired location, and you will be prompted to confirm the teleport. For this, click on “Move Here.”
 
 ![confirm the teleport](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 6. Location changed.**
 
@@ -408,10 +383,10 @@ Now, your location has changed successfully, and you can see it on your screen. 
 ![location changed successfully](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Play Pokémon Go with a Joystick for iOS trainers
@@ -419,6 +394,13 @@ Now, your location has changed successfully, and you can see it on your screen. 
 Get better control over your [GPS movement on your iPhone](https://drfone.wondershare.com/virtual-location/fake-gps-location-ios.html) by using the joystick feature of Dr.Fone - Virtual Location. This feature can be easily accessed on the main screen of the map. You can either access it from the toolbar located near the top right corner or the lower left side of the screen. 360-degree directions are available. You can move forward or backward by clicking the Up or Down arrows. Keyboard shortcuts W, A, S, and D can be used to control GPS movements, as can Up, Down, Left, and Right keys.
 
 ![select and use the joystick to move along the map](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Dr.Fone - Virtual Location offers two ways to use the joystick for seamless GPS movement. You can use the Automatic or Manual GPS movement. Here’s how you can use both ways.
 
@@ -455,22 +437,20 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-a-deep-dive-into-luts-for-image-enhancement/"><u>[Updated] A Deep Dive Into LUTs for Image Enhancement</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-broadcasting-success-fb-live-on-television-for-2024/"><u>[Updated] Broadcasting Success FB Live on Television for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instatilecraft-create-impressive-androidplusios-vids/"><u>2024 Approved InstaTilecraft Create Impressive Android+iOS Vids</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/decisional-balance/"><u>Decisional Balance</u></a></li>
-<li><a href="https://discover-great.techidaily.com/1725286875750-digiarty-dvd/"><u>Digiarty公式ブログ: DVDコピー専用情報 - 最新ガイド手順解説</u></a></li>
-<li><a href="https://win-web3.techidaily.com/effortlessly-remove-safari-bookmarks-on-your-ipad-a-simple-guide/"><u>Effortlessly Remove Safari Bookmarks on Your iPad: A Simple Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme GT 5 (240W)? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-resolve-cyclic-redundancy-check-failures-in-your-system/"><u>How to Resolve Cyclic Redundancy Check Failures in Your System</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Honor X9a? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-the-fix-overcoming-network-not-registered-on-your-samsung-device/"><u>Mastering the Fix: Overcoming 'Network Not Registered' On Your Samsung Device</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-analysts-toolkit-chatgpts-six-must-have-functions/"><u>The Analyst's Toolkit: ChatGPT’s Six Must-Have Functions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-x50-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-calculating-clickers-contribution-to-youtube-earnings-for-2024/"><u>[New] Calculating Clickers' Contribution to YouTube Earnings for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/isionary-storytelling-for-video-viewers-growth/"><u>[New] Visionary Storytelling for Video Viewers' Growth</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-integrate-soundtracks-with-ppt-visuals/"><u>2024 Approved Integrate Soundtracks with PPT Visuals</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Vivo Y100t? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/iphone-lens-magic-perfecting-close-up-and-macro-shots/"><u>IPhone Lens Magic Perfecting Close-Up and Macro Shots</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/reactivate-your-mouses-right-click-solutions-for-windows-11-users/"><u>Reactivate Your Mouse's Right Click: Solutions for Windows 11 Users</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-10-black-screen-with-cursor-solved/"><u>Windows 10 Black Screen with Cursor [SOLVED]</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Realme 12+ 5G? | Dr.fone
-date: 2024-09-27T05:37:49.619Z
-updated: 2024-10-02T18:41:32.846Z
+date: 2024-10-05T17:01:57.961Z
+updated: 2024-10-08T19:01:17.016Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -79,6 +79,19 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.1 Action Replay Codes
 
 There are many action replay codes available on the Internet. Using these codes, you can easily capture legendary Pokemon available with the Pokemon Platinum Version.
@@ -102,6 +115,13 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
@@ -131,6 +151,13 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Best iSpoofer Alternative to Try On Realme 12+ 5G
 
 _**“Is iSpoofer for Pokemon Go not working anymore? Can someone tell me how to spoof my iPhone X location now when the iSpoofer tool is shut down?”**_
@@ -157,13 +184,6 @@ Earlier, iSpoofer used to be one of the most popular apps to change our location
 Most likely, the chances of iSpoofer working again are pretty bleak. This is because Pokemon Go users were the major target customers of the product. Since Niantic has blocklisted iSpoofer a while back, Pokemon Go players can no longer use it. Therefore, it is better to look for a reliable iSpoofer alternative instead.
 
 ![ispoofer not working](https://drfone.wondershare.com/2020/ispoofer-not-working.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: The Best iSpoofer Alternative to Change your iPhone Location
 
@@ -205,13 +225,6 @@ You can now launch Pokemon Go or any other GPS-based app to check the spoofed lo
 
 ![virtual location 7](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** Keep in mind the cooldown duration before changing your location to ensure your account won’t get banned by Niantic while using the location spoofer. For instance, wait for a few minutes and only change your location realistically.
 
 ## Part 3: How to Spoof your Realme 12+ 5G Device’s Location for Pokemon Go?
@@ -244,6 +257,13 @@ That’s it! Now you can launch the mock location app and enter the address or c
 
 ![fake location on lexa](https://drfone.wondershare.com/2020/fake-location-on-lexa.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your iPhone location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your iPhone anywhere you like and that too without jailbreaking your phone.
 
 ## Which Pokémon can Evolve with a Moon Stone For Realme 12+ 5G?
@@ -253,10 +273,10 @@ Evolution items play a significant role in evolving certain species in the Poké
 ## Part 1. Moon Stone Pokémon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What is Moon Stone Pokémon?
@@ -266,20 +286,13 @@ Moon Stone is an evolution stone introduced in generation I. This peculiar stone
 ![moon stone](https://images.wondershare.com/drfone/2020/moon-stone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to Lake of Outrage in the Wild area. You will see a body of water on your left and a watt trader standing near it. To cross this water body, you will have to unlock the Rotom Bike from Route 9. When you manage this, check under the eight stones and you might be lucky that one of them might yield a Moon Stone. Also, you can navigate to the Dusty Bowl in the Wild Area. Here, you will find barren stones between a grassy rock and wheat field.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Pokémon that Evolve with a Moon Stone
 
@@ -301,13 +314,6 @@ This is a fairy-type Pokémon that was introduced in Generation I. It is a small
 
 This is a normal/fairy type of Pokémon that was also introduced in Generation I. Before Generation VI, this Pokémon was entirely a normal-type Pokémon. Jigglypuff itself is an evolution of Igglybuff and can evolve into Wigglytuff with the help of Moon Stone.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Skitty
 
 This is a normal type Pokémon that was introduced in Generation II. This Pokémon is pink and looks like a cat with a cute charm ability. Skitty can evolve to Delcatty using the Moon Stone.
@@ -315,13 +321,6 @@ This is a normal type Pokémon that was introduced in Generation II. This Pokém
 ### 6\. Munna
 
 Munna is a psychic-type Pokémon that was introduced in Generation V. It is a small Pokémon with a pink round body having purple flower painting on its back. With the use of Moon Stone, Munna evolves into a Musharna.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2. Tricks and Hacks to Get Moon Stone Pokémon
 
@@ -341,13 +340,6 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3.** The program will display a new page with three icons at the top-right. Click the third icon to take you to the teleport mode. Again enter the place you want to teleport to in the text field at the top-left of this same window and then hit "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -356,9 +348,23 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Use Android Spoofing Tool- Pgsharp
 
 Pgsharp is a fake GPS location tool for Android devices and is suitable for playing Pokémon from a fake location with no root. It allows users to teleport in real-time while they are just sited at home. It has a downloadable free version. It has a user-friendly interface, and once you have set the fake GPS location on your Realme 12+ 5G, you can catch rare Pokémon and evolution items with ease.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Use Go-tcha Evolve
 
@@ -378,18 +384,18 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-perfected-pixel-panache-packages/"><u>[New] Perfected Pixel Panache Packages</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-prime-5-filters-elevating-submerged-cinematography/"><u>[Updated] 2024 Approved Prime 5 Filters Elevating Submerged Cinematography</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-picture-perfect-displays-choosing-the-best-photo-editing-screens-2024/"><u>[Updated] Picture Perfect Displays Choosing the Best Photo Editing Screens, 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-best-7-platforms-to-experience-cinematic-trailer-releases/"><u>Explore The Best 7 Platforms to Experience Cinematic Trailer Releases</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-earthy-edits-discover-downloadable-templates-to-amplify-filmmaking/"><u>In 2024, Earthy Edits Discover Downloadable Templates to Amplify Filmmaking</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-remedying-pauses-in-online-video-sessions-fb/"><u>In 2024, Remedying Pauses in Online Video Sessions (FB)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Motorola Moto G14? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-picks-for-novice-gopro-enthusiasts-for-2024/"><u>Top Picks for Novice GoPro Enthusiasts for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transform-your-broadcasts-with-manycam-the-leading-choice-in-live-cam-and-editing-tools/"><u>Transform Your Broadcasts with ManyCam: The Leading Choice in Live Cam and Editing Tools</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/9-leading-live-gaming-services-for-2024/"><u>9 Leading Live Gaming Services for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canon-eos-rebel-t6-review/"><u>Canon EOS Rebel T6 Review</u></a></li>
+<li><a href="https://techidaily.com/crack-the-code-expert-answers-to-nyts-connections-puzzle-for-july-19-40n/"><u>Crack the Code: Expert Answers to NYT's Connections Puzzle for July 19 (#40N)🔍</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/icue-no-device-trouble-heres-how-you-can-fix-it/"><u>ICUE 'No Device' Trouble? Here's How You Can Fix It!</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/performance-insights-on-the-pimoroni-nvme-sata-hybrid-storage-solution-dual-base-model-review/"><u>Performance Insights on the Pimoroni NVMe SATA Hybrid Storage Solution - Dual Base Model Review</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-top-12-free-animation-tools-for-windows-and-macos/"><u>Updated Top 12 Free Animation Tools for Windows and macOS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor 90 Pro | Dr.fone</u></a></li>
 </ul></div>
 

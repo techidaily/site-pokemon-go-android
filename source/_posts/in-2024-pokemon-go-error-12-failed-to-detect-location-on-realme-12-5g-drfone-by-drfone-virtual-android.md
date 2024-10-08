@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme 12 5G? | Dr.fone
-date: 2024-10-01T12:45:50.196Z
-updated: 2024-10-03T01:47:35.024Z
+date: 2024-10-03T17:25:38.448Z
+updated: 2024-10-08T17:16:27.559Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -51,22 +51,15 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 2](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3.** Launch the application and you can easily enjoy Pokémon Go without any hassle and trouble and resolve the Pokémon go failed to detect location 12 fake GPS error.
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Location Activation
@@ -92,6 +85,13 @@ This might seems weird but this trick has been working to quiet some time now an
 Just long-press the power button and choose the reboot option from the menu that appears to complete the process in full.
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
@@ -125,18 +125,24 @@ On the upper right corner click the icon on the third to begin teleportation or 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5: Move to the teleported location**
 
 Click on move here and the system will move you to the location that has been entered.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6: Validate and Completion**
 
@@ -145,10 +151,10 @@ The location will be locked by the program and your iPhone will also show the sa
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -234,6 +240,13 @@ If exposed to neutral weather, it faints out after staying strong in 120.2 damag
 ### 5\. Pawmo
 
 ![pawmo pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Pawma, with 1468 CP, is eligible to play as the **best PvP Pokemon GO Great League**. Its best moves are Spark and Wild Charge, with 11.11 damage per second. This Pokémon has 147 attack, 82 defense, and 155 stamina score rates.
 
@@ -334,13 +347,6 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 
 ![mega charizard pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This Pokémon Go has a maximum of 5037 CP on level 50, which offers Blast Burn and Fire Spin among its best moves. Before fainting, it can deal with 688.4 damage and cause damage of 21.74 per second. When battling in neutral weather, it needs Elite Charge TM to get Blast Burn.
 
 It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For the best combinations in attacking, users prefer going with Fire Spin and Blast Burn or Wing Attack and Blast Burn. This helps them attain the maximum damage out of the opponent Pokemon during showdowns.
@@ -353,13 +359,6 @@ It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For th
 ### 3\. Necrozma (Ultra)
 
 ![necrozma ultra pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Necrozma (Ultra), with a maximum of 5293 CP, is the **best PvP Pokémon GO Master League**. This Pokemon attains this CP value at level 50, and opposingly, at level 1, it accomplishes 66 CP. Uncovering its charged moves shows 35 damage scores in a 2.2-second duration. It is boosted by windy weather and originally belongs to the Alola region.
 
@@ -436,6 +435,13 @@ To use this feature, navigate to the upper-right section and tap the “One-Stop
 
 ![navigate one-stop route option](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - Step 5. Adjust and Start Simulation Parameters
 
 Upon selecting, decide whether you want a "Round Trip" or "Loop Trip," and enter the number of times you want the trip. Now, drag the slider to choose the speed of spoofing and proceed by tapping on the "Move Here" button. Afterward, the simulation will start, so you can witness your movement now. To hold the simulation, click the "Pause" or "Clear" buttons to stop or return to the actual location.
@@ -474,13 +480,6 @@ You can evolve it into Mega Pachirisu with mega gems, but more evolution isn’t
 
 As you know, some Pokemons like Pachirisu can be region-specific. Mostly, it is observed that Pachirisu is spawned in the northern regions of Canada, Alaska, and Russia. You can find it in the wildering, electric hubs, parks, and even some colder regions. Since it can hide pretty well, you would have to keep a keen eye to look for it. A Pokemon Go regional map for Pachirisu can further help you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Are there Pachirisu locations with coordinates?
 
 As introduced before, Pachirisu is primarily found in areas of Alaska, Canada, and certain parts of Russia. If you are in one of these regions, you have a chance to encounter and catch Pachirisu in the wild.
@@ -511,13 +510,6 @@ Earlier, PoGo Map was available as an app, but now you can only use its website 
 
 **Website:** [https://www.pogomap.info/location/](https://www.pogomap.info/location/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. PokeHunter
 
 PokeHunter is a well-known Pokemon GO tracker that provides exact information on PokeStops and gyms. It will inform you about the Pachirisu, ex-Raid battles, and locations of other Pokémon characters. With real-time tracking, it is accessible to all devices, such as PCs and mobile phones. Besides, this map can show the energy level of Pokemon and let you decide which to catch.
@@ -525,6 +517,13 @@ PokeHunter is a well-known Pokemon GO tracker that provides exact information on
 **Website:** [https://pokehunter.co/](https://pokehunter.co/)
 
 ![pokehunter pokemon go map](https://images.wondershare.com/drfone/article/2024/01/pachirisu-pokemon-go-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Pachirisu on Pokemon Go from Home?
 
@@ -547,6 +546,13 @@ After when your device is detected, Dr.Fone will automatically display its exact
 Now, go to the search bar and just enter the address of the target location or its coordinates that you can get from a Pachirisu Pokemon Go map.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Simply adjust the pin on the map so that you can drop it to the desired spot. Click on the “Move Here” button in the end to spoof your iPhone location.
 
@@ -590,21 +596,24 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-all-you-need-to-know-about-bandicam-updated/"><u>[New] In 2024, All You Need to Know About Bandicam (Updated )</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-navigating-links-between-instagram-and-tiktok/"><u>[New] In 2024, Navigating Links Between Instagram and TikTok</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-cut-to-perfection-top-video-editors-for-youtubers/"><u>[Updated] In 2024, Cut to Perfection Top Video Editors for YouTubers</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-superior-tune-makers-for-iphone-users/"><u>2024 Approved Superior Tune Makers for iPhone Users</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Honor X50i+ | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/breaking-down-the-barriers-top-strategies-for-beginners-in-influencer-marketing-on-reddit-for-2024/"><u>Breaking Down the Barriers Top Strategies for Beginners in Influencer Marketing on Reddit for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-nokia-c110-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Nokia C110 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-central-luts-in-action-movie-visuals-enhancement/"><u>In 2024, Central Luts in Action Movie Visuals Enhancement</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme 11 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-matchmaking-in-the-youtube-collaboration-arena-for-2024/"><u>The Art of Matchmaking in the YouTube Collaboration Arena for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-10-password-cracking-tools-for-realme-narzo-60-pro-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Realme Narzo 60 Pro 5G</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-achieving-video-greatness-on-tiktok-with-smart-use-of-pre-made-templates/"><u>[Updated] In 2024, Achieving Video Greatness on TikTok with Smart Use of Pre-Made Templates</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-tech-tutorial-saving-screen-movies-from-your-gadgets-for-2024/"><u>[Updated] Tech Tutorial Saving Screen Movies From Your Gadgets for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/fix-the-mordhau-game-crash-problem-with-these-simple-steps/"><u>Fix the Mordhau Game Crash Problem with These Simple Steps!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-oppo-a1x-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Oppo A1x 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-on-your-iphone-14-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock on your iPhone 14 Pro and iPad?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-photo-retouch-erase-backgrounds-effectively-for-2024/"><u>Mastering Photo Retouch Erase Backgrounds Effectively for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavi-swf-and-m4v/"><u>Movaviで簡単に変換: 無料のオンラインSWF & M4Vファイルコンバート</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://discover-help.techidaily.com/top-twelve-techniques-to-extract-sound-from-youtube-videos-using-a-mac/"><u>Top Twelve Techniques to Extract Sound From YouTube Videos Using a Mac</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-ai-powered-image-editor/"><u>Ultimate AI-Powered Image Editor</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x7b-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor X7b | Dr.fone</u></a></li>
 </ul></div>
 

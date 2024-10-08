@@ -1,7 +1,7 @@
 ---
 title: The Magnificent Art of Pokemon Go Streaming On Realme 12+ 5G? | Dr.fone
-date: 2024-10-01T10:53:09.058Z
-updated: 2024-10-03T12:36:05.004Z
+date: 2024-10-04T16:53:42.814Z
+updated: 2024-10-08T19:17:31.703Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -39,13 +39,6 @@ It’s not impossible to turn the regular viewers of your Pokemon Go Livestream 
 
 It’s true to say that multi-tasking is the core of Pokemon Go streaming. Of course, you have to stay focused on the actual game while engaging with your viewers. That seems like a handful of work. But fret not. Juggling multiple tasks one after another is actually beneficial to your health. As you get exposed to such arrangements over and over, your cognitive performance further improves, too.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### It can make an ordinary Pokemon Go player go global
 
 ![global presence](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-2.JPG)
@@ -66,7 +59,21 @@ It’s fair to say that Pokemon Go streaming is not extremely particular when it
 
 ![streaming platform](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Of course, you can bring a full computer setup outside while exploring around. That’s why you should choose a live-streaming application with features that allow you to broadcast directly on Your Realme 12+ 5G. Don’t worry. There are lots of choices on the internet. Pick the best one, and then create your Pokemon Go streaming account. Optimize your profile and make sure that the details are complete.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Set up the Pokemon Go Livestream
 
@@ -102,6 +109,13 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 5:** Calibrate the provided settings according to your liking. Start by specifying your preferred type and number of trips. After that, adjust the movement speed by dragging the slider from left to right. Once you’re done, commence the simulation immediately. Click **Move Here.** If you wish to reset your inputs, click **Clear** instead.
 
 ![adjust movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -110,16 +124,16 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this mobile game. You go live on the internet streaming platform while catching the Pokemon nearby. If you want to elevate your Pokemon Go experience, start streaming your adventure online. Refer to the tutorial and tips above to help you get the ball rolling. Furthermore, download [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) for free on your computer. It has a potent Virtual Location feature that can help you livestream Pokemon Go from the comfort of your own home. All you have to do is set up Wondershare Dr.Fone on your desktop and let it simulate GPS movements based on your inputs. Yes. You can absolutely do that with just the snap of a finger. Therefore, start a Pokemon Go streaming channel today and enjoy a more exciting journey ahead.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12+ 5G
 
@@ -163,6 +177,13 @@ With Dr.Fone - Virtual Location launched on your computer, connect your smartpho
 
 ![search for the required location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Teleport to Targeted Location**
 
 The cursor on the map screen will move to the location you have entered on the map. If you want to move there when spoofing your location, click "Move Here." It will change the location on the map screen and on your device to the location you entered. You can confirm it by accessing your smartphone and opening a map application.
@@ -174,6 +195,13 @@ The cursor on the map screen will move to the location you have entered on the m
 To simulate movement when spoofing your location, you can select either “One-Stop Route” or “Multi-Stop Route.” Both are the third and fourth options, respectively, on the toolbar near the top right corner. Now, choose the stop points, type of trip, walking speed, and other parameters. Once you are done, tap "Move Here" or "Start Moving" to initiate the movement.
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Getting Pokemon Go Fire Red Rare Candy Normally
 
@@ -242,13 +270,6 @@ Wait for it to be activated and then save it.
 
 Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are not easy to find and they may not be in a location that you can access easily. The article shows you the locations at which you can collect Pokemon Go Fire Red Candy using the normal gameplay. You may also use Pokemon Go GameShark cheat codes and get unlimited Rare Candy to use whenever you need them.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Best Pokemons for PVP Matches in Pokemon Go For Realme 12+ 5G
 
 We all know how much fun Pokémon GO has been, where we get out and catch Pokémon through battle. However, a much more interesting factor is PvP battles, where you can go head-to-head with other trainers. In this article, we are going to talk about why adding PvP battles is not just something we want but something we really need.
@@ -256,13 +277,6 @@ We all know how much fun Pokémon GO has been, where we get out and catch Pokém
 PvP battles are important for making the game more exciting and having some friendly competition. These battles will evaluate your skills and how well you know your Pokémon. We will provide you with some useful tips to win the league with the **best PvP Pokémon**.
 
 ![understanding more about pokemon pvp battles](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1. What Are the Possible Leagues in Pokémon GO PvP
 
@@ -280,6 +294,13 @@ The next league that comes is Ultra League, which raises the CP cap to 2,500. Le
 
 In the same way, Venusaur with Frenzy Plant and Swampert with Hydro Cannon are also popular choices in this league.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Master League
 
 The Master League removes all CP limits, allowing any Pokémon to jump into the action. Here, Trainers tend to lean towards Pokémon with high maximum CP. Pokémon like Groudon and Origin Forme Giratina are notable here, making them fit for any kind of battle.
@@ -289,6 +310,13 @@ Surprisingly, some Pokémon are not commonly picked for Raids, like Dialga and A
 ## Part 2. What Is the Strongest Pokémon To Use in Each Pokémon GO PvP League?
 
 As you already must know, there are various Pokémon with their own individual CP cap. To battle in a PvP league, you must choose Pokémon that fall under the CP cap of that league. In this section, we will discuss the strongest and **best Pokémon for PvP Pokémon GO**:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Arceus (Fighting)
 
@@ -342,13 +370,6 @@ This **is the best Pokémon in Pokémon GO PvP** and is known for its unique pre
 
 ![eternatus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Eternatus is a powerful legendary Pokemon with a type of Poison and Dragon. It is believed to be discovered in the Galar region and is the main antagonist in Pokémon Sword and Shield. Vulnerabilities of this Pokémon are Dragon, Ground, Ice, and Psychic-type moves. With an impressive max CP of 5007, it receives a boost in cloudy and windy weather.
 
 The top moves for Eternatus are Dragon Tail and Dragon Pulse, delivering a strong 16.69 damage per second in neutral weather. In battles, it can deal a hefty 678.7 damage before fainting. Consider adding Eternatus to your team, especially when facing opponents who are weak to its Poison and Dragon-type moves.
@@ -373,13 +394,6 @@ The recommended moveset for Steelix includes Iron Tail and Heavy Slam, providing
 
 ![gligar pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Gligar is a Ground and Flying-type Pokémon in Pokémon GO, originally from the Johto region. Gligar is believed to have a max CP of 2099 and gets boosted in sunny and windy weather. Shiny Gligar is also available for enthusiastic collectors.
 
 Gligar uses its clawed hind legs and large pincers to grab onto its prey's face, injecting it with a poisonous barb. In battles, Gligar's recommended moveset includes Fury Cutter and Aerial Ace, delivering a decent 8.67 damage per second. This **best PvP Pokemon** can deal 213.1 damage before fainting, making it a fine addition to your Pokémon GO team.
@@ -399,13 +413,6 @@ In battles, Carbink's recommended moveset consists of Rock Throw and Rock Slide,
 | **Type** | **Strong Against** | **Weak Against** |
 | --- | --- | --- |
 | Rock and Fairy | Dragon, Bug, Dark, Fire, Flying, Normal | Steel, Grass, Ground, Water |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3. The Best Pokémon GO Location Spoofer To Participate in Pokémon GO PvP Leagues
 
@@ -448,13 +455,6 @@ Once you've set your destination, decide if you want a "Round Trip" or "Loop Tri
 
 ![set parameters before moving](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4. Some Helpful Tips and Tricks To Win Pokémon GO PvP League
 
 In this section, we will help you learn some useful tips and tricks that you can perform to win a PvP league. An important one of them is always choosing the **best PvP Pokémon**, but let's look at some other tips, too.
@@ -490,21 +490,17 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-fast-track-to-fame-masterful-use-of-insta-likes-and-vids/"><u>[Updated] 2024 Approved Fast Track to Fame Masterful Use of Insta Likes and Vids</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-first-steps-in-av1-coders/"><u>2024 Approved First Steps in AV1 Coders</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/6-things-you-can-do-with-chatgpts-code-interpreter/"><u>6 Things You Can Do with ChatGPT's Code Interpreter</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/elevate-video-output-quality-mastering-aiseesoft-screencast-tech-for-2024/"><u>Elevate Video Output Quality Mastering Aiseesoft Screencast Tech for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/explore-the-best-in-class-android-apps-to-revive-ps2-games/"><u>Explore the Best-in-Class Android Apps to Revive PS2 Games</u></a></li>
-<li><a href="https://win-answers.techidaily.com/football-manager-2019-stability-hacks-fixing-persistent-freezing-and-closing-problems/"><u>Football Manager 2019 Stability Hacks: Fixing Persistent Freezing & Closing Problems</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme Narzo N53? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme V30? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-troubleshoot-and-fix-windows-11-when-updates-wont-proceed/"><u>How To Troubleshoot and Fix Windows 11 When Updates Won't Proceed</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Poco X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor X50 GT? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-selection-of-screen-capture-software-for-gaming/"><u>Prime Selection of Screen Capture Software for Gaming</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/syncing-songs-with-your-facebook-chronicles-for-2024/"><u>Syncing Songs with Your Facebook Chronicles for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-lenovo-thinkphone-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Lenovo ThinkPhone FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/frame-your-shot-ultimate-software-guide-image-editors-for-2024/"><u>Frame Your Shot Ultimate Software Guide Image Editors for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-novice-to-pro-transforming-videos-using-vida-for-2024/"><u>From Novice to Pro Transforming Videos Using Vida for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-circle-of-connectivity-spotlighting-instas-top-25-influencers/"><u>In 2024, The Circle of Connectivity Spotlighting Insta's Top 25 Influencers</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/mod-mov-mod/"><u>MOD MOV 영상 강조를 편리하게 만들기: 자연스러운 MOD화에 가장 적합한 무료 온라인 소프트웨어</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Vivo V29 Pro | Dr.fone</u></a></li>
 </ul></div>
 

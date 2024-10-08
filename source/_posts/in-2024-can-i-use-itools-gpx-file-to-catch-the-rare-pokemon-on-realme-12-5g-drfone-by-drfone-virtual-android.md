@@ -1,7 +1,7 @@
 ---
 title: In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme 12 5G | Dr.fone
-date: 2024-09-25T23:09:38.800Z
-updated: 2024-10-03T08:00:22.597Z
+date: 2024-10-03T20:58:43.586Z
+updated: 2024-10-08T19:24:15.797Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -39,13 +39,6 @@ Many games have thronged our screens but not many matches Pokemon. Once you down
 
 Likewise, players are assured of being on the right trail when they use navigation apps with gpx files. And whey they get off track, they can redirect themselves to the path and continue gaming.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2：Where to find the iTools gpx file
 
 You have to import gpx file before opening it. The easiest way is to upload it to the web version of Google Maps.  First, open and sign in to Google Maps then add a gpx file as a new map. Follow these steps.
@@ -65,13 +58,6 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 - Next, copy the coordinates by clicking the ‘Copy to clipboard’ button.
 
 ![click copy to clipboard](https://images.wondershare.com/drfone/2020/2020/copy-to-clipboard.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - Then, confirm group name and click on the ‘Save’ icon. You’ll see it located besides the search bar.
 
@@ -146,6 +132,13 @@ As previously mentioned, the root causes of the Pokemon Go Routes glitch vary fr
 
 It’s possible that the Pokemon Routes are not showing up because you’re too far from them. Try to move around and see if the walking paths will finally appear on your radar. In this case, all you need to do is find the perfect spot where Routes are recorded.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Pokemon Go application has no adequate location access on your smartphone
 
 ![pokemon go location access](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-5.JPG)
@@ -165,13 +158,6 @@ Keep in mind that the Pokemon Go Routes is an additional game feature. That’s 
 ### The current software version of your smartphone is not compatible with the Pokemon Go Routes feature
 
 Android 6.0 and iOS 14 or higher are the main system requirements of the Pokemon Go application. The Pokemon Go Routes are not working, or perhaps the whole application malfunctions because your software version is too old. Don’t worry. A simple OS update might resolve this problem once and for all.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3. Tips on How to Fix Pokemon Go Routes Not Showing Up
 
@@ -194,13 +180,6 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Step 5:** Calibrate the necessary settings according to your liking. Start by choosing your preferred type and number of trips. Right after, adjust the movement speed by moving the slider from left to write. Then, click **Move Here** to commence the simulation. If you wish to reset your inputs, click **Clear** instead.
 
 ![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -208,6 +187,13 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 - **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -221,6 +207,13 @@ PvP battles are important for making the game more exciting and having some frie
 
 ![understanding more about pokemon pvp battles](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1. What Are the Possible Leagues in Pokémon GO PvP
 
 There are three core leagues in the trainer battles in Pokémon GO, namely Great, Ultra, and Master. Each of these leagues has its own CP limitation and comes in rotation during each season. So, you have to learn to battle in each of them to get seamless rewards. Let's look at each of these leagues individually for a better understanding of the **best Pokémon for PvP**.
@@ -232,10 +225,10 @@ There are three core leagues in the trainer battles in Pokémon GO, namely Great
 The Great League is the easiest league to jump into for beginners. Here, only Pokémon with 1,500 CP or less can join the battle. This low CP cap makes Pokémon with lower maximum CP shine, like Azumarill and Altaria. These Pokémon might not stand out in the other leagues, but in the Great League, they can dominate the battlefield.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Ultra League
@@ -243,6 +236,13 @@ The Great League is the easiest league to jump into for beginners. Here, only Po
 The next league that comes is Ultra League, which raises the CP cap to 2,500. Legendary Pokémon start making appearances here, with a focus on defensive power. Pokémon like Registeel and Cresselia excel in this league, but there are also many other Pokémon that hold their own valuable potential.
 
 In the same way, Venusaur with Frenzy Plant and Swampert with Hydro Cannon are also popular choices in this league.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Master League
 
@@ -257,6 +257,13 @@ As you already must know, there are various Pokémon with their own individual C
 ### 1\. Arceus (Fighting)
 
 ![arceus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Arceus is the strongest one and is known as the God of the Pokémon world. It is a mythical Pokémon that can shift between any type as required for the battle. The most famous moveset of this Pokémon is Shadow Claw and Hyper Beam, which can impact 13.23 damage per second. Arceus possesses a max CP of 4510, which makes it the **best Pokémon for PvP in Pokémon GO**.
 
@@ -277,13 +284,6 @@ The recommended moves for Zacian (Hero) are Snarl and Play Rough, offering a sol
 | **Type** | **Strong Against** | **Weak Against** |
 | --- | --- | --- |
 | Fairy | Dragon, Bug, Dark, Fighting | Poison, Steel |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Shadow Machamp
 
@@ -313,13 +313,6 @@ This **is the best Pokémon in Pokémon GO PvP** and is known for its unique pre
 
 ![eternatus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Eternatus is a powerful legendary Pokemon with a type of Poison and Dragon. It is believed to be discovered in the Galar region and is the main antagonist in Pokémon Sword and Shield. Vulnerabilities of this Pokémon are Dragon, Ground, Ice, and Psychic-type moves. With an impressive max CP of 5007, it receives a boost in cloudy and windy weather.
 
 The top moves for Eternatus are Dragon Tail and Dragon Pulse, delivering a strong 16.69 damage per second in neutral weather. In battles, it can deal a hefty 678.7 damage before fainting. Consider adding Eternatus to your team, especially when facing opponents who are weak to its Poison and Dragon-type moves.
@@ -327,6 +320,13 @@ The top moves for Eternatus are Dragon Tail and Dragon Pulse, delivering a stron
 | **Type** | **Strong Against** | **Weak Against** |
 | --- | --- | --- |
 | Poison and Dragon | Grass, Bug, Electric, Fire, Fighting, Poison, Water | Dragon, Ice, Ground, Psychic |
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Steelix
 
@@ -387,6 +387,13 @@ Launch [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/pho
 
 ![access and activate teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - Step 2: Update Your Desired Location Through Teleport Mode
 
 When you enable Teleport Mode, use the search bar at the top left. Here, enter your desired location and press "Enter" to mark it on the map. Afterward, verify the location details on the screen and click "Move Here" to confirm and update your phone's location.
@@ -414,13 +421,6 @@ In this section, we will help you learn some useful tips and tricks that you can
 3. **Unlock a Second Charged Move:**Always try to acquire a second charged move for your Pokémon to gain a strategic advantage. You can use the second move to counter specific threats or bait shields, influencing the outcome of the match.
 4. **Master Switching Strategies:**You must know when to switch Pokémon based on type advantages and the opponent's likely moves. Also, avoid switching unnecessarily to prevent opponents from capitalizing on type advantages.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5. FAQs About Pokémon GO PvP League
 
 Q1. What moves can you use during the PvP Go battle?
@@ -447,22 +447,19 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-the-complete-process-of-video-recording-and-editing-on-adobe-connect-for-2024/"><u>[New] The Complete Process of Video Recording & Editing on Adobe Connect for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-visual-vault-in-depth-recorder-comparisons/"><u>[Updated] In 2024, The Visual Vault In-Depth Recorder Comparisons</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-beauty-on-youtube-gear-makeup-tutorials-and-more-for-2024/"><u>[Updated] The Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-w10-ultimate-screen-replay-suite/"><u>[Updated] W10 Ultimate Screen Replay Suite</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/embracing-the-future-of-computing-new-frameworks-laptop-board-compatible-with-risc-v-architecture-teamed-up-with-deepcomputing-for-revolutionary-starfive-so7/"><u>Embracing the Future of Computing: New Framework's Laptop Board Compatible with RISC-V Architecture, Teamed Up with DeepComputing for Revolutionary StarFive SoC</u></a></li>
-<li><a href="https://driver-download.techidaily.com/experience-smoother-graphics-in-games-with-updated-nvidia-geforce-rtx-2080-ti-driver-software/"><u>Experience Smoother Graphics in Games with Updated Nvidia GeForce RTX 2080 Ti Driver Software</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Honor X9b? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-the-decision-pros-and-cons-of-switching-to-an-rtx-gpu/"><u>Navigating the Decision: Pros and Cons of Switching to an RTX GPU</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-free-mkv-trimming-tools-top-picks/"><u>Updated 2024 Approved Free MKV Trimming Tools Top Picks</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-make-it-shine-professional-video-editing-techniques-for-home-creators/"><u>Updated Make It Shine Professional Video Editing Techniques for Home Creators</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-poco-x6-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Poco X6? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-optimize-your-online-presence-with-linked-fb-stories/"><u>[New] 2024 Approved Optimize Your Online Presence with Linked FB Stories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhancing-your-visual-mark-implementing-neon-edged-youtubes-for-2024/"><u>[Updated] Enhancing Your Visual Mark Implementing Neon-Edged YouTubes for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-the-art-of-sound-alteration-on-sony-games/"><u>[Updated] Master the Art of Sound Alteration on Sony Games</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterclass-in-virtual-reality-critical-oculus-player-insights/"><u>2024 Approved Masterclass in Virtual Reality Critical Oculus Player Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-go-to-car-jolt-starter-kits/"><u>2024'S Go-To Car Jolt Starter Kits</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-x5-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-xiaomi-14-pro-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-immersive-teaching-transformative-learning/"><u>In 2024, Immersive Teaching, Transformative Learning</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oppo-a78-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Oppo A78 Phone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 
