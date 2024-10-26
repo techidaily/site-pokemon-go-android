@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Magnificent Art of Pokemon Go Streaming On Realme 12+ 5G? | Dr.fone
-date: 2024-10-19T17:56:15.906Z
-updated: 2024-10-20T16:54:20.413Z
+date: 2024-10-18T18:35:02.756Z
+updated: 2024-10-26T07:17:25.508Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -59,13 +59,6 @@ It’s fair to say that Pokemon Go streaming is not extremely particular when it
 
 ![streaming platform](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Of course, you can bring a full computer setup outside while exploring around. That’s why you should choose a live-streaming application with features that allow you to broadcast directly on Your Realme 12+ 5G. Don’t worry. There are lots of choices on the internet. Pick the best one, and then create your Pokemon Go streaming account. Optimize your profile and make sure that the details are complete.
 
 ### Set up the Pokemon Go Livestream
@@ -74,16 +67,16 @@ Of course, you can bring a full computer setup outside while exploring around. T
 
 Set up the livestream accordingly. Start by writing a catchy title for your broadcast. Make sure that it clearly states the content and the intent of your Pokemon Go livestream. After that, add some keywords and specify the language of your stream. Yes. It’s very important because it will help interested viewers find you on the internet. Lastly, check the audio output. Adjust the volume clarity if necessary. Once you’re done, it’s time to hit the Go Live button and say “Hi” to the world.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Start playing Pokemon Go
 
 ![play pokemon live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-6.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Play Pokemon Go as if nobody is watching you online. Simply put, carry on with your usual gaming routine. Don’t let the audience distract you from the game. However, make sure that you interact with them as you go along. Try talking while you’re on the ground and catching Pokemon nearby. Respond to the comments once in a while. The point is that you have to extend the actual Pokemon Go experience to them. Trust yourself. You can definitely do that.
 
@@ -98,6 +91,13 @@ The best tip that anyone can give you is to be yourself when you livestream Poke
 - Adhere to the rules and policies implemented not only by Pokemon Go but also by your chosen platform. Don’t break any of them because such actions can affect your progress as a player and streamer.
 - Take constructive feedback positively. Yes. Expect that once you go live on the internet, you will receive various kinds of reactions from other people. But don’t let them get into your head as much as possible. Keep your head high and work on the improvements at your own pace.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can You Livestream Pokemon Go Inside Your Home?
 
 Is it possible to livestream Pokemon Go from the comfort of your own home? The short answer is absolutely yes. Indoor Pokemon Go streaming is feasible with the aid of [Wondershare Dr.Fone.](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It offers a powerful Virtual Location feature capable of simulating GPS movements needed in Pokemon Go. Don’t worry. It’s very easy to use. As a matter of fact, beginners can ace it in no time. Here’s a short guide to help you get started.
@@ -109,13 +109,6 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Step 5:** Calibrate the provided settings according to your liking. Start by specifying your preferred type and number of trips. After that, adjust the movement speed by dragging the slider from left to right. Once you’re done, commence the simulation immediately. Click **Move Here.** If you wish to reset your inputs, click **Clear** instead.
 
 ![adjust movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -124,9 +117,23 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this mobile game. You go live on the internet streaming platform while catching the Pokemon nearby. If you want to elevate your Pokemon Go experience, start streaming your adventure online. Refer to the tutorial and tips above to help you get the ball rolling. Furthermore, download [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) for free on your computer. It has a potent Virtual Location feature that can help you livestream Pokemon Go from the comfort of your own home. All you have to do is set up Wondershare Dr.Fone on your desktop and let it simulate GPS movements based on your inputs. Yes. You can absolutely do that with just the snap of a finger. Therefore, start a Pokemon Go streaming channel today and enjoy a more exciting journey ahead.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Detailed guide of ispoofer for pogo installation On Realme 12+ 5G
 
@@ -172,9 +179,23 @@ iSpoofer for pogo installation has the following disadvantages -
 
 All these issues are overcome with great detail by Dr. Fone Virtual Location (iOS) by Wondershare.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Safer tool to spoof pokemon- drfone virtual location
 
 Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations. [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) by Wondershare is the new, safer app to spoof in Pokemon Go. The app uses mock location services to help you teleport to anywhere across the world. This also allows you to be safe from the detection software in Pokemon Go.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What are the benefits of using Dr. Fone Virtual Location?
 
@@ -190,6 +211,13 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 **Step 1 -** Download the Dr. Fone Virtual Location by official Wondershare website. Connect your phone to the computer in to execute the changes. Click on the “Virtual Location” option.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2 –** Now, on the next screen, you will see “Get Started” option. Click on it to proceed.
 
@@ -209,29 +237,9 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Your spoofed location is now the default location of your phone, and all the apps will recognize it. The maps app on your phone looks like this –
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The teleportation is now complete. Enjoy playing the game with no lags or errors.
 
@@ -261,13 +269,6 @@ This is one of the many queries that we have got lately about the Pokemon Go GPS
 
 ![pokemon go no gps signal banner](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-no-gps-signal-banner.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: Common Reasons for Pokemon Go GPS Problems
 
 Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons:
@@ -280,13 +281,6 @@ Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons
 - There could be any other app or firmware-related issue causing this problem.
 
 ![pokemon gps signal not found](https://images.wondershare.com/drfone/2020/pokemon/pokemon-gps-signal-not-found.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Fix Pokemon Go No GPS Signal Issue on iOS Devices?
 
@@ -313,19 +307,6 @@ In case the Pokemon Go GPS is not accurate on your iPhone, then you can enable t
 To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Privacy > Location Services and select Pokemon Go. From the location sharing option, make sure the Precise Location feature is enabled.
 
 ![iphone precise location](https://images.wondershare.com/drfone/2020/pokemon/iphone-precise-location.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Step Into an Open Area
 
@@ -362,6 +343,13 @@ If you have not granted the location services permission to Pokemon Go, then you
 As listed above, one of the reasons for this Pokemon Go GPS bug could be a corrupt or outdated app. The easiest way to fix this is by uninstalling Pokemon Go on your phone. Afterward, restart your phone and go to Play Store to install Pokemon Go on your Realme 12+ 5G again.
 
 ![pokemon go update](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-update.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 4: Set GPS on High Accuracy
 
@@ -407,17 +395,19 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-securing-your-pc-gaming-memories-best-techniques/"><u>[New] Securing Your PC Gaming Memories Best Techniques</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-how-to-archive-your-favorite-movies-mac-screenshots-for-netflix/"><u>[Updated] In 2024, How to Archive Your Favorite Movies Mac Screenshots for Netflix</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-honor-x50iplus-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Honor X50i+ Data? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Tecno Pova 5? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor V Purse? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/lock-your-tecno-spark-20-pro-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Tecno Spark 20 Pro Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/solution-de-probleme-dafficheur-dordinateur-non-demarrable-etapes-a-suivre-pour-resoudre/"><u>Solution De Problème D'Afficheur D'ordinateur Non Démarrable : Étapes À Suivre Pour Résoudre</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/top-free-and-paid-software-for-adding-a-white-background-in-images-2022-guide/"><u>Top Free and Paid Software for Adding a White Background in Images - 2022 Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-updated-list-of-phones-for-gear-vr-use-for-2024/"><u>[New] Updated List of Phones for Gear VR Use for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-elevating-videogame-recording-the-steam-methodology/"><u>[Updated] Elevating Videogame Recording The Steam Methodology</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diagnosing-and-restoring-mfplatdll-files-to-resolve-system-error-messages/"><u>Diagnosing & Restoring mfplat.dll Files to Resolve System Error Messages</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/expert-online-seminar-tagline-creator/"><u>Expert Online Seminar Tagline Creator</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>In 2024, From Dull to Delightful How To Craft Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-gionee-f3-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Gionee F3 Pro Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-your-network-a-step-by-step-guide-to-finding-wi-fi-passwords-on-windows-11/"><u>Unlocking Your Network: A Step-by-Step Guide to Finding Wi-Fi Passwords on Windows 11</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Poco X5 Pro | Dr.fone</u></a></li>
 </ul></div>
 

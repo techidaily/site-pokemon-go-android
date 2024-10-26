@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Realme 12 5G? Fixed | Dr.fone
-date: 2024-10-16T18:10:24.557Z
-updated: 2024-10-20T17:28:51.941Z
+date: 2024-10-19T06:43:18.738Z
+updated: 2024-10-26T11:47:31.437Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,13 +29,6 @@ iPogo is a free to use Pokémon Go++ mod which can be downloaded as an APK file 
 - You keep track of Pokémon spawns, quests and raids using the feed on your iPogo.
 
 With all these amazing benefits at hand, it seems almost unfair to not be able to make the best of it if iPogo keeps crashing or stops working. Let’s look into the probable reasons why your iPogo is not working and explore methods to solve this dilemma.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Common problem that iPogo is not working
 
@@ -66,23 +59,9 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 
 **Note:** All of these installation methods have specific varied requirements which must be checked appropriately.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: A better alternative for iPogo - virtual location
 
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Primary Features of Dr. Fone
 
@@ -112,6 +91,13 @@ You will notice a map on the screen now. As it comes, you got to click on ‘Cen
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Enable Teleport Mode**
 
 Now, you are required to turn on the ‘teleport mode’. To do this, simply click on the first icon on the upper right hand corner. After that, enter the location you want on the upper right field and then hit ‘Go’.
@@ -137,13 +123,6 @@ Pokemon Go is a game that encourages players to interact with each other. One of
 If you have been playing Pokemon Go for a while, then you might already know how tough it can be to add friends. For instance, if you want to fight with other trainers, then you need to look for their Pokemon Go friend codes. Thankfully, there are some reliable social platforms to find Pokemon Go friends. In this post, I will let you know about them and would also list how to add friends in Pokemon Go.
 
 ![pokemon go friend codes banner](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes-banner.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Where to find Pokemon Go Friend Codes?
 
@@ -179,13 +158,6 @@ Here are some of these popular Discord servers that you can join to find Pokemon
 
 ![dicord server pokedex100](https://images.wondershare.com/drfone/2020/202009/dicord-server-pokedex100.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Find Pokemon Go Friend Codes on Reddit?
 
 While some Discord groups are closed, most of the Reddit subs are open. It might surprise you, but some of the Pokemon-based Reddit subs even have millions of members. This would make it pretty easy for you to find Pokemon Go friend codes on Reddit. All you need to do is join these groups and find the mega thread for exchanging PoGo friend codes.
@@ -217,6 +189,13 @@ Poke Friends is one of the most popular mobile apps, listing thousands of PoGo f
 
 ![poke friends mobile app](https://images.wondershare.com/drfone/2020/202009/poke-friends-mobile-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **PoGo Trainer Club**
 
 This is another popular online directory to add friends in Pokemon Go. You can enter the name of any person or get results nearby/international. There is also a provision to know more about a trainer and their Pokemons before adding them.
@@ -243,20 +222,6 @@ Once you have found Pokemon Go codes for friends, you can add them to your netwo
 4. Now, you can enter their unique Pokemon friend code that would send them an add request. You can also view your Pokemon Go trainer code from here and share it with others.
 
 ![pokemon go add friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-add-friend-codes.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 6: How to Find new Pokemons to Level-up in the Game?
 
@@ -310,9 +275,23 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -326,6 +305,13 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -356,6 +342,13 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -374,10 +367,10 @@ It is a very simple-to-use application and provides robust results if you follow
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
@@ -387,6 +380,13 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
@@ -432,22 +432,16 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-innovative-techniques-for-next-level-lut-creation-for-2024/"><u>[New] Innovative Techniques for Next-Level LUT Creation for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-streamlined-success-top-10-youtube-channels-to-start-your-biz-today/"><u>[Updated] 2024 Approved Streamlined Success Top 10 YouTube Channels to Start Your Biz Today</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-capturing-ps4-gaming-magic-in-full-detail-using-obs/"><u>[Updated] In 2024, Capturing PS4 Gaming Magic in Full Detail Using OBS</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-stand-out-and-thrive-strategies-for-staff-recognition-at-vimeo-for-2024/"><u>[Updated] Stand Out and Thrive Strategies for Staff Recognition at Vimeo for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweak-twitter-video-clip-cover/"><u>2024 Approved Tweak Twitter Video Clip Cover</u></a></li>
-<li><a href="https://games-able.techidaily.com/command-control-flawless-xbox-one-sync-setup/"><u>Command Control: Flawless Xbox One Sync Setup</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Poco X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor V Purse? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/infinix-data-recovery-recover-lost-data-from-infinix-hot-40-by-fonelab-android-recover-data/"><u>Infinix Data Recovery – recover lost data from Infinix Hot 40</u></a></li>
-<li><a href="https://fox-links.techidaily.com/key-steps-for-an-optimal-chromebook-zooming-experience/"><u>Key Steps for an Optimal Chromebook Zooming Experience</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-guide-resolving-world-of-warcraft-performance-lags/"><u>Ultimate Guide: Resolving World of Warcraft Performance Lags</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ultimate-guide-screen-capture-and-recording-with-showmore/"><u>[Updated] In 2024, Ultimate Guide Screen Capture & Recording with ShowMore</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unleash-film-potential-on-instagram-with-these-3-edges/"><u>[Updated] In 2024, Unleash Film Potential on Instagram with These 3 Edges</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-smallfile-recorder-review-and-alternatives/"><u>2024 Approved SmallFile Recorder Review and Alternatives</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-v30-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effortless-editing-preventing-adobe-after-effects-from-collapsing-on-your-pc-windows-10-and-11/"><u>Effortless Editing: Preventing Adobe After Effects From Collapsing on Your PC (Windows 10 & 11)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-elite-gaming-phone-market-our-2022-curated-list-from-zdnet/"><u>Exploring the Elite Gaming Phone Market: Our 2022 Curated List From ZDNet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/troubleshooting-steps-to-take-if-itunes-fails-to-identify-your-iphone/"><u>Troubleshooting: Steps to Take if iTunes Fails to Identify Your iPhone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/zdnet-awards-apple-m2-powered-macbook-air-as-top-tech-innovation-of-the-year/"><u>ZDNet Awards Apple M2-Powered MacBook Air as Top Tech Innovation of the Year!</u></a></li>
 </ul></div>
 
