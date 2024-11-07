@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Realme 12 5G? | Dr.fone
-date: 2024-10-27T07:50:20.773Z
-updated: 2024-10-31T19:54:29.371Z
+date: 2024-11-02T01:14:46.378Z
+updated: 2024-11-07T02:04:19.919Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -75,19 +75,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -99,6 +86,13 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -119,13 +113,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
@@ -161,6 +148,13 @@ Giovani is the grand commander of the Team Go Rocket crime syndicate. The big bo
 
 Locating Giovani’s hideout is never a walk in the park as you need to complete some daunting tasks. A detailed explanation of each task is given below:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. A Troubling Situation Task
 
 This four-step storyline Special Research task introduces players to the Team Go Rocket Invasion and Shadow Pokemon feature in the Pokemon Go game. Players leverage the task to learn how to stop the Team Go Rocket crime syndicate by reclaiming PokeStop and then purifying Shadow Pokemon.
@@ -194,10 +188,10 @@ For this step, you’ve got nothing to do. All three objectives have been automa
 **Rewards:** One Fast TM, One Charged TM, and 3 Rare Candies
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Giovani Special Research Task
@@ -238,6 +232,13 @@ Now you know the best Giovani Pokemon Go counters to use against each lineup of 
 
 ![giovani](https://images.wondershare.com/drfone/2020/giovani.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Just as you did against Team Go Rocket Leaders, Arlo, Cliff, and Sierra, you need a Pokemon stronger than two of Giovani’s. With that, you can use the same Pokemon twice, thereby keeping your choice for Legendary Shadow Pokemon safe till you need it to beat Giovani.
 
 Mind you, the big bad boss, Giovani has two Protect Shields at his disposal so you have to be careful while fighting against the monster. We implore you to start your game with a Pokemon that has a Charged move so you can charge as fast as possible.
@@ -261,39 +262,45 @@ Guide to Use Dr.fone Virtual Location to Get Stronger Pokemon in Giovanni Pokemo
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click on Get Started to change your location.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Your current location will appear on the PC screen. Switch location by entering the name or address of the place in the field at the upper left corner of the application.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** The interface below will pop up on your screen. Click on the Move Here icon to teleport to your chosen location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And now you are good to have one of the strongest Pokemon on your team when fighting against Giovani. Leverage the Dr.Fone- Virtual Location program as it will help you ease the stress of catching stronger Pokemon remotely on your device without jailbreaking it.
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why does the pokemon go battle league not available On Realme 12 5G
 
@@ -302,19 +309,6 @@ After the incredible hype of finally getting the chance to battle other players,
 It’s not the first time trainers have experienced bugs in the game and a long wait during maintenance breaks, but patience wears thin as after 2 weeks into the release of the super hyped Battle League, trainers all around the world are yet to have access to it.
 
 The root cause of this disappointing course of events was a major bug in the first season of the Battle League. Some players could simply use “charged moves” repetitively without recharging. Thankfully Niantic is coming up with a fix.
-
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: What are the Go battle league known issues?
 
@@ -358,13 +352,6 @@ Few players with the assist of Melmetal (ground and steel type) could lodge cons
 
 ![pokemon 2](https://images.wondershare.com/drfone/2020/pokemon-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After this issue was tweeted to the notice of the game publisher, Ninattic temporarily paused Battle League. Trainers while accessing the live tournament event would be notified with – “Pokemon Go Battle League Not Available” by the game.
 
 Although this doesn’t mean that trainers wouldn’t be able to play practice matches or close proximity matches. Battle League presents itself as an event in the game which gives trainers the chance to earn bonuses and stardust.
@@ -378,6 +365,13 @@ Here’s a list of exciting updates that will be included in the upcoming season
 - From Rank 3 all the way to Rank 10, a higher number of battles must be won to proceed.
 - Season 5 will be completed once you reach rank 7 which will earn you the Elite Charged TM rather than an Elite Fast TM.
 - In Season 5 few Pokémon’s will get new updated move sets which the trainers can use to train and prepare for upcoming tournaments.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Tips you want to level up your pokemon go?
 
@@ -433,21 +427,19 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-crafting-a-spectacited-photographic-display/"><u>[New] Crafting a Spectacited Photographic Display</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-top-10-choices-the-ultimate-gb-emulator-list-android-for-2024/"><u>[New] Top 10 Choices The Ultimate GB Emulator List, Android for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-cutting-edge-tech-meets-creativity-top-12-camera-picks-for-vloggers/"><u>[Updated] 2024 Approved Cutting-Edge Tech Meets Creativity Top 12 Camera Picks for Vloggers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-symbolizing-success-affordable-and-flexible-logo-crafting-from-templates/"><u>[Updated] 2024 Approved Symbolizing Success Affordable & Flexible Logo Crafting From Templates</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-definitive-guide-to-youtubes-algorithmic-secrets-for-rankings/"><u>[Updated] The Definitive Guide to YouTube's Algorithmic Secrets for Rankings</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-beginners-guide-to-blending-images-crafting-videographics-in-pixiz/"><u>A Beginner's Guide to Blending Images, Crafting Videographics in Pixiz</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-lava-yuva-2-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Lava Yuva 2 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Google Pixel Fold? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Honor Magic5 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-guide-to-linking-obs-and-streamlabs-mac/"><u>In 2024, Step-by-Step Guide to Linking OBS & Streamlabs (Mac)</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quick-start-utilizing-zoom-in-windows-10-systems/"><u>[New] Quick Start Utilizing Zoom in Windows 10 Systems</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-cinemas-next-frontier-virtual-reality/"><u>2024 Approved Unlocking Cinema's Next Frontier Virtual Reality</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-moto-g-stylus-5g-2023-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Moto G Stylus 5G (2023).</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/effortless-and-free-aac-to-mp4-transformation-using-movavis-web-service/"><u>Effortless and Free AAC-to-MP4 Transformation Using Movavi's Web Service</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-facebook-profile-choosing-top-apps-for-like-growth/"><u>Elevate Your Facebook Profile Choosing Top Apps for Like Growth</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-honor-magic-vs-2-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Honor Magic Vs 2</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-a78-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo A78 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-c51-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlocking-tech-potential-with-tom-the-definitive-hardware-handbook/"><u>Unlocking Tech Potential with Tom - The Definitive Hardware Handbook</u></a></li>
 </ul></div>
 

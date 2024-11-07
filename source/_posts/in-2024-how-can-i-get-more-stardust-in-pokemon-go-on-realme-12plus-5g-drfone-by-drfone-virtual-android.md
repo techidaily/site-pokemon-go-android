@@ -1,7 +1,7 @@
 ---
 title: In 2024, How can I get more stardust in pokemon go On Realme 12+ 5G? | Dr.fone
-date: 2024-10-30T03:46:11.469Z
-updated: 2024-11-01T02:24:07.281Z
+date: 2024-10-30T20:10:38.900Z
+updated: 2024-11-06T22:24:57.665Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -23,13 +23,6 @@ One of the essential items you can get is Stardust, which will help you become t
 
 Stardust is a consumable item that allows you to strengthen your Pokemon. This item will help you reach the maximum of your Pokemon, making them more resilient and ready for potential fights. Moreover, Stardust is essential for trading – you must have a specific Stardust level to trade your valuables with another trainer.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2. How Is Stardust Used in Pokemon Go?
 
 Stardust can come in handy in several different scenarios in the Pokemon Go game. We’ll present all the use cases below to help you navigate your journey and learn the importance of collecting Stardust.
@@ -48,6 +41,13 @@ As you can see, Stardust is crucial for numerous gameplay experiences, so you sh
 
 Since having Stardust is crucial for your Pokemon Go experience, you may be looking for the best ways to accumulate as many consumables as possible. We’ll present a couple of ways to reach your goals below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Through Pvp Rewards
 
 One of the best ways to earn Stardust is through Player versus Player features. When you’re playing with other users, you can earn Stardust based on the number of your previous wins, your game level, and the PVP outcome.
@@ -57,6 +57,13 @@ For instance, if you’re a Rank 2, you can earn around 2,000 Stardust points by
 Another method is to play with your friends, and the Stardust points can vary from 300 to 1000, depending on your opponent’s rank.
 
 ![pvp in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### By Opening Gifts
 
@@ -82,13 +89,6 @@ You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### By Catching Pokemon
 
 Catching Pokemon is one of the most efficient ways of earning Stardust points. Each Pokemon has a base rate of 100 Stardust points, but you can earn more points depending on the Pokemon’s evolution stage. For instance, if the Pokemon is in the second stage, you’ll earn an additional 500 Stardust points.
@@ -110,10 +110,10 @@ If you defeat the boss, you’ll also get a chance to catch the Pokemon, which c
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
@@ -141,6 +141,13 @@ While on your daily walk in the Pokemon world, you should check out whether you 
 You’ll earn 20 Stardust points for each berry you give a Pokemon. It may be the easiest way to earn and use these points for your experience. Plus, you’ll meet new characters and fully experience what the Pokemon world offers.
 
 ![giving berries to pokemon characters](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Claim Stardust Quickly in Pokemon Go by Using Location Spoofing
 
@@ -202,13 +209,6 @@ Winners can enjoy a 33% off coupon on Dr.Fone - Virtual Location to spoof your P
 
 [![Exclusive Coupon](https://images.wondershare.com/drfone/images2024/pokemon/pokemon-day.png)](https://drfone.wondershare.com/virtual-location/national-pokemon-day.html#pokeman2)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Unlock Exclusive Rewards with Our Connect-the-Dots Game
 
 ![game](https://images.wondershare.com/drfone/images2024/pokemon/game-bg.png) ![play](https://images.wondershare.com/drfone/images2024/pokemon/play-btn.png)
@@ -231,6 +231,20 @@ New Pokémon are being added to Pokémon Go every day. These include regionals, 
 
 ![select the teleport mode](https://images.wondershare.com/drfone/virtual-loaction/catch-croagunk-pokemongo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to find rare Pokémon or complete your Pokédex?
 
 There are various options you can try to find rare Pokémon and complete your Pokedex.
@@ -251,13 +265,6 @@ Dr.Fone Virtual Location is a super useful software when it comes to spoofing th
 ![pic](https://images.wondershare.com/drfone/images2024/pokemon/buy-pic.png)
 
 ![Dr.Fone-Virtual Location](https://neveragain.allstatics.com/2019/assets/icon/logo/drfone-virtual-location-square.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Dr.Fone-Virtual Location
 
@@ -365,13 +372,6 @@ There are three core leagues in the trainer battles in Pokémon GO, namely Great
 
 ![pokemon pvp battles](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Great League
 
 The Great League is the easiest league to jump into for beginners. Here, only Pokémon with 1,500 CP or less can join the battle. This low CP cap makes Pokémon with lower maximum CP shine, like Azumarill and Altaria. These Pokémon might not stand out in the other leagues, but in the Great League, they can dominate the battlefield.
@@ -416,13 +416,6 @@ The recommended moves for Zacian (Hero) are Snarl and Play Rough, offering a sol
 | --- | --- | --- |
 | Fairy | Dragon, Bug, Dark, Fighting | Poison, Steel |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Shadow Machamp
 
 ![shadow machamp pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-5.jpg)
@@ -438,6 +431,13 @@ The best moves of Shadow Machamp are Counter and Dynamic Punch, which deliver hi
 ### 4\. Lickitung
 
 ![lickitung pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Discovered in the Kanto region, Lickitung is a Normal-type Pokémon found in Pokémon GO. Its weaknesses include fighting-type moves, and it reaches a maximum CP of 1595. The weather that boosts Lickitung is partly cloudy. Shiny Lickitung is also available for those looking to add a special variant to their collection in Pokemon GO.
 
@@ -518,6 +518,13 @@ Launch [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/pho
 
 ![access and activate teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - Step 2: Update Your Desired Location Through Teleport Mode
 
 When you enable Teleport Mode, use the search bar at the top left. Here, enter your desired location and press "Enter" to mark it on the map. Afterward, verify the location details on the screen and click "Move Here" to confirm and update your phone's location.
@@ -553,13 +560,6 @@ Q2. Which Pokémons are unavailable during the PvP battle?
 
 Q3. How is the winner determined in the Pokémon GO PvP battles?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 In conclusion, PvP battles are of great importance to enjoying the true perks of Pokemon GO. For this purpose, we have introduced you to some of the strongest and most useful Pokemons that exist. Now, it is up to you to choose the **best Pokemon for PvP Pokemon GO** if you aim to enjoy the lead in the game. Also, we have discussed a wonderful tool, Wondershare Dr.Fone, by which you can easily fake your location and have an advantage in the game.
@@ -578,21 +578,22 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-enhanced-vision-with-8-excellent-5k-screens/"><u>[New] Enhanced Vision with #8 Excellent 5K Screens</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-how-mycam-changes-video-recording-at-home-an-in-depth-review/"><u>[Updated] 2024 Approved How MyCam Changes Video Recording at Home – An In-Depth Review</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/360-degree-panoramic-shot-systems/"><u>360 Degree Panoramic Shot Systems</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-to-prevent-and-fix-pacific-drive-crashing-windows-encounter/"><u>Expert Tips to Prevent and Fix Pacific Drive Crashing Windows Encounter</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/funny-facades-top-quality-free-meme-files-for-2024/"><u>Funny Facades Top-Quality, FREE Meme Files for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-best-xiaomi-redmi-k70-pro-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Xiaomi Redmi K70 Pro Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme C53? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/next-gen-gaming-war-ps5-vs-xbox-series-x-battle/"><u>Next Gen Gaming War: PS5 V/S Xbox Series X Battle</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlock-potential-the-must-have-msistore-tools/"><u>Unlock Potential: The Must-Have MSIStore Tools</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/who-benefits-from-nvidias-adaptable-generative-ai/"><u>Who Benefits From NVIDIA’s Adaptable Generative AI?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-crafting-exciting-mobile-intros-for-2024/"><u>[Updated] Step-By Step Guide to Crafting Exciting Mobile Intros for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-best-mobile-and-desktop-apps-adjusting-audio-playback-speed/"><u>2024 Approved Best Mobile & Desktop Apps Adjusting Audio Playback Speed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-apple-iphone-14-pro-max-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From Apple iPhone 14 Pro Max How to Bypass?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/master-your-pc-with-toms-hardware-wisdom-and-guidance/"><u>Master Your PC with Tom's Hardware Wisdom and Guidance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prime-windows-rapid-photo-displayer-for-2024/"><u>Prime Window's Rapid Photo Displayer for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/remedying-windows-1110s-recurring-error-with-audacity/"><u>Remedying Windows 11/10'S Recurring Error with Audacity</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/superior-performance-on-the-rise-upgraded-drivers-for-amd-hd-6950/"><u>Superior Performance on the Rise: Upgraded Drivers for AMD HD 6950</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-7-indicators-of-a-potential-smartphonelaptop-battery-detonation-insights-for-safety-zdnet/"><u>Top 7 Indicators of a Potential Smartphone/Laptop Battery Detonation: Insights for Safety - ZDNet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme 12 Pro 5G? | Dr.fone</u></a></li>
 </ul></div>
 

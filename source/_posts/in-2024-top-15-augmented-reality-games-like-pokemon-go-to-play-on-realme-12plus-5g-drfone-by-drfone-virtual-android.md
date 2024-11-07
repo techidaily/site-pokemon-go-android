@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 12+ 5G | Dr.fone
-date: 2024-10-28T19:24:12.363Z
-updated: 2024-10-31T23:00:07.501Z
+date: 2024-11-02T18:53:26.805Z
+updated: 2024-11-07T01:09:39.648Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -58,6 +58,13 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 ## Part 3: Best AR Games like Pokémon GO
 
 If you want a game like Pokémon Go but want a different storyline and characters, we will list down AR games that you can try to play yourself. In addition, you can check other similar AR games below.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 15\. The Walking Dead: Our World
 
@@ -128,13 +135,6 @@ Orna is a role-playing game where you battle different creatures, explore dungeo
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=playorna.com.orna&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/th/app/orna-turn-based-gps-rpg/id1451775309?l=th) _
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Sharks in the Park
 
 If you love anything underwater, then Sharks in the Park is the game that you should play. Sharks in the Park allows its users to explore the world of the sea. This game is best played in a big area with a clear view of the sky. This game is best suited for kids so they can also enjoy and learn about the creatures we have under the sea. This game also tracks all of your movements, and if you want to immerse yourself in the underwater world, you can also use augmented reality equipment to elevate the experience.
@@ -168,6 +168,13 @@ If you have played Minecraft or just have the knack for creating worlds, then yo
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE) _
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Pikmin Bloom
 
 If you love creating and designing, you can try Pikmin Bloom game. This game allows all of its users to change and decorate their surroundings. You also have to take care of your own Pikmin character and grow petals, which you can do by simply walking. The game tracks your location and counts the steps that you make and if you hit any goals or tasks,  you are then given a reward. This game can be played by all ages as it is easy to play and requires only the simple act of walking to get ahead in the game.
@@ -183,6 +190,13 @@ If you grew up watching Harry Potter and would love to be a wizard, you should d
 
 ![harry potter: wizards unite](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU) _
 
 ### 1\. Ingress Prime
@@ -191,6 +205,13 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 
 ![ingress prime](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-14.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US) _
 - _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181) _
 
@@ -198,22 +219,15 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 
 These are all the games that are similar to Pokémon Go and something that you can try on your own time to see the different concepts of how AR is integrated into this game. Though the games require you to walk and track your GPS, it will motivate you to move a little and get out of the room. If you are not keen on doing that, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), can also help you to virtually go to any place on the earth without having to get up from your couch. These games will surely entertain not only you but also the friends that you can play with.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Can I Catch the Regional Pokémon without Traveling On Realme 12+ 5G
 
 The main goal that the designers of Pokémon Go had in mind for the past few years was to create a framework that prompts players to get off their loungers and go into the real world in search of Pokémon. If you are wondering why there are certain types of Pokémon enlisted as ‘blanks’ in your Pokedex and you haven’t yet found them, it’s probably because they are marked as ‘regional’ types. This means that these Pokémon are exclusively locked in select regions around the world. Don’t Panic! You don’t have to spend a boat load of cash in order to catch these special regional Pokémon as there are tricks you can apply to catch them without even stepping out of your kitchen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: List of the regional Pokémon that have been announced
@@ -234,6 +248,19 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![kanto pokemon](https://images.wondershare.com/drfone/2020/202010/kanto-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Taouros:** North America.
 - **Farfetch’d:** Asia.
 - **Mr. Mime:** Europe.
@@ -245,13 +272,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gen 3/ Hoenn Pokémon
 
@@ -271,6 +291,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![sinnoh pokemon](https://images.wondershare.com/drfone/2020/202010/sinnoh-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Pachirisu:** Canada.
 - **Chatot:** Southern Hemisphere.
 - **Shellos:** Pink Variant – Western Hemisphere. Blue Variant – Eastern Hemisphere.
@@ -282,19 +309,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 ### Gen 5/ Unova Pokémon
 
 ![unova pokemon](https://images.wondershare.com/drfone/2020/202010/unova-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Pansear:** The Middle East, Africa, India, and Europe.
 - **Pansage:** Asia/Pacific.
@@ -328,13 +342,6 @@ Get the USB cable and connect your iPhone to the PC. And then click ‘Get Start
 When the location map opens, click on ‘Centre On’ to accurately pinpoint the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Activate teleport mode**
 
@@ -383,13 +390,6 @@ Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how 
 
 ![nearby option](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Step 3:** Then, click **Route.**
 
 ![pokemon go route](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-2.jpg)
@@ -403,13 +403,6 @@ Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how 
 As previously mentioned, the root causes of the Pokemon Go Routes glitch vary from one trainer to another. It’s possible that the Pokemon Go Routes are not showing up because your Trainer Level is not high enough. Yes. This option is only available to players who reach the required level. However, the player’s respective rank is not always the culprit for this issue. There are other factors that might also result in the same problem. Check out the list below to understand it better.
 
 ![pokemon go route missing](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-4.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### There are no recorded Routes near your location
 
@@ -460,6 +453,13 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
@@ -482,22 +482,20 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-illustrate-and-write-with-iosandroid-tools/"><u>[New] Illustrate & Write with iOS/Android Tools</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-mastering-audio-best-practices-for-ipodcasting-interviews-on-ios-devices/"><u>[New] In 2024, Mastering Audio Best Practices for iPodcasting Interviews on iOS Devices</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-perfecting-speech-interpretation-using-google-tools/"><u>[New] In 2024, Perfecting Speech Interpretation Using Google Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-optimizing-your-voice-content-via-garageband-for-2024/"><u>[New] Optimizing Your Voice Content via GarageBand for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-top-tier-pricing-on-cloud-storage-the-least-expensive-finds-2024/"><u>[New] Top-Tier Pricing on Cloud Storage - The Least Expensive Finds, 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-best-6-apps-for-instagram-reels/"><u>[Updated] Best 6 Apps for Instagram Reels</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-finest-10-online-spots-to-download-pristine-photos/"><u>[Updated] The Finest 10 Online Spots to Download Pristine Photos</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-c65-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nubia Z50 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-pc-control-of-your-google-home-a-comprehensive-guide/"><u>Mastering PC Control of Your Google Home: A Comprehensive Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-6-powerful-ai-driven-extensions-in-visual-studio-code/"><u>Top 6 Powerful AI-Driven Extensions in Visual Studio Code</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>[New] In 2024, Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-redefining-your-twitter-vibe-with-dynamic-video-thumbnails-for-2024/"><u>[New] Redefining Your Twitter Vibe with Dynamic Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-budget-conscious-filmmakers-essential-video-gear-list/"><u>[Updated] 2024 Approved Budget-Conscious Filmmaker's Essential Video Gear List</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-premium-picks-for-the-ultimate-gopro-experience/"><u>[Updated] Premium Picks for the Ultimate Gopro Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-breezy-collage-creation-with-picshots-innovations/"><u>2024 Approved Breezy Collage Creation with Picshot's Innovations</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-srts-potential-in-subtitle-format-sub/"><u>2024 Approved Unveiling SRT's Potential in Subtitle Format (SUB)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-fixing-incorrect-registry-entries-that-cause-image-viewing-problems-on-windows-10-devices/"><u>Diagnosing and Fixing Incorrect Registry Entries That Cause Image Viewing Problems on Windows 10 Devices</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppo-a1-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppo A1 5Gwith/without a PC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 11X 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Realme 12+ 5G | Dr.fone
-date: 2024-10-28T05:26:54.058Z
-updated: 2024-10-31T20:49:11.547Z
+date: 2024-11-04T22:27:58.351Z
+updated: 2024-11-07T02:23:46.442Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,14 +29,14 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -58,19 +58,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -87,6 +74,13 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -120,13 +114,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
@@ -185,6 +172,13 @@ Pokemon Go is probably one of the most popular location-based augmented reality 
 
 ![Pokemon Go Joystick Banner](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 1: Pokemon Go Joystick 101: Things to Know**
 
 Before we get into the details, it is important to know the basics of this fake GPS Pokemon Go hack. Ideally, Pokemon Go joysticks are dedicated mobile or desktop applications that let us simulate the movement of our device. In most of the spoofing tools for Pokemon Go, the following features are offered.
@@ -194,13 +188,6 @@ Before we get into the details, it is important to know the basics of this fake 
 - The Pokemon Go Joystick APK can also let you set up a preferred speed for walking, jogging, or running.
 
 ![Pokemon Go Joystick](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Therefore, with the help of a Pokemon Go hack APK like this, players don’t have to leave their house to catch Pokemons. They can also participate in raids to hatch eggs from the comfort of their home.
 
@@ -229,10 +216,10 @@ There are several reasons why Pokemon Go joystick iOS/Android hacks are so popul
     Overall, a Pokemon Go spoofing iOS/Android solution will provide tons of add-on features that would improve your gaming experience.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Part 3: What are the Risks of Using Pokemon Go Joysticks?**
@@ -269,34 +256,28 @@ As you can see, picking a reliable Pokemon Go joystick is the most important thi
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 I hope that after following this guide, you would be able to know more about the fake GPS Pokemon Go hacks. As you can see, I have included all kinds of benefits and limitations of using a Pokemon Go joystick in this guide. If you don’t want to get your account banned for using a Pokemon joystick, then consider going with a reliable option like
 
 [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking, it will let you enjoy a dedicated GPS joystick and simulate your device movement remotely.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which Pokémon can Evolve with a Moon Stone For Realme 12+ 5G?
 
 Evolution items play a significant role in evolving certain species in the Pokémon game. Moon Stone is one of these peculiar items that are worth adding to your Pokedex. However, getting Moon Stone Pokémon is a tough assignment and you have to pull your best bells and whistles. However, there are several hacks and tricks that can reduce your hunting pain. In this article, we shall take you through a complete guide on Moon Stone Pokémon and evolutions.
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1. Moon Stone Pokémon
@@ -329,6 +310,13 @@ This is a fairy-type Pokémon that was introduced in Generation I. It is a small
 
 This is a normal/fairy type of Pokémon that was also introduced in Generation I. Before Generation VI, this Pokémon was entirely a normal-type Pokémon. Jigglypuff itself is an evolution of Igglybuff and can evolve into Wigglytuff with the help of Moon Stone.
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Skitty
 
 This is a normal type Pokémon that was introduced in Generation II. This Pokémon is pink and looks like a cat with a cute charm ability. Skitty can evolve to Delcatty using the Moon Stone.
@@ -355,16 +343,16 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3.** The program will display a new page with three icons at the top-right. Click the third icon to take you to the teleport mode. Again enter the place you want to teleport to in the text field at the top-left of this same window and then hit "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4.** Click "Move Here" from the pop-up that follows to teleport to the location you provided.
 
@@ -392,21 +380,20 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-elevate-your-creativity-2-routes-to-perfect-snap-filters/"><u>[New] In 2024, Elevate Your Creativity 2 Routes to Perfect Snap Filters</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-total-spend-on-a-single-youtubers-ads/"><u>[New] In 2024, Total Spend on a Single Youtuber's Ads</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-exploring-whether-itop-fits-your-tech-needs/"><u>[Updated] In 2024, Exploring Whether ITop Fits Your Tech Needs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-friends-lost-tracking-your-unfollowers-for-2024/"><u>[Updated] Insta Friends Lost Tracking Your Unfollowers for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mac-display-recorder-tips-and-tricks/"><u>2024 Approved Mac Display Recorder Tips & Tricks</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-15-plus-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 15 Plus With 7 Methods | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oneplus-nord-n30-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock OnePlus Nord N30 5G Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Realme C67 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-the-secrets-to-smooth-imports-in-windows-10-os/"><u>In 2024, Unlocking the Secrets to Smooth Imports in Windows 10 OS</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor Magic 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/1715701271427-mastering-vrecorder-download-install/"><u>Mastering VRecorder Download, Install!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-x50-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor X50? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-explore-a-world-of-delicious-treats-top-rated-cookie-shops/"><u>[Updated] Explore a World of Delicious Treats Top-Rated Cookie Shops</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-the-perfect-blueprint-recording-google-voice-calls/"><u>[Updated] In 2024, The Perfect Blueprint Recording Google Voice Calls</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/8-platforms-for-professional-linux-editing-for-2024/"><u>Best 8 Platforms for Professional Linux Editing for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-x50-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-huawei-p60-by-fonelab-android-recover-video/"><u>How to recover old videos from your Huawei P60</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-honor-90-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Honor 90 Phone that is Locked?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-google-pixel-8-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Google Pixel 8 Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/leading-tools-to-record-your-desktop/"><u>Leading Tools to Record Your Desktop</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tailored-techniques-for-removing-youtube-ads-in-various-browsers-for-2024/"><u>Tailored Techniques for Removing YouTube Ads in Various Browsers for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme V30T? | Dr.fone</u></a></li>
 </ul></div>
 

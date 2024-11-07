@@ -1,7 +1,7 @@
 ---
 title: How to Use Pokémon Emerald Master Ball Cheat On Realme 12+ 5G | Dr.fone
-date: 2024-10-26T16:21:25.039Z
-updated: 2024-11-01T03:30:23.533Z
+date: 2024-11-06T02:42:35.633Z
+updated: 2024-11-06T18:54:10.190Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -88,13 +88,6 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Enter PokeMart to but Pokémon Emerald Master Balls](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Only one Master Ball can be bought at a time, but you can do this as many times as you want. If you are already inside the PokeMart when you enter the code, you may have to walk out and walk back in again for it to work.
 
 ![Buy as many Pokémon Emerald Master Balls as you would like using the cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-5.jpg)
@@ -167,13 +160,6 @@ Once you have enough Pokémon creatures, you may now use your Lucky Egg and evol
 
 Getting Pokémon Emerald Master Ball cheat codes is important if you want to catch a lot of Pokémon with ease. You need to catch them so you can level up as fast as possible. As you have seen, one of the best ways to do this is to catch a lot of Pokémon, and then evolve them and get XP that will allow you to level up quickly. You may use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to shift to areas where you can catch a lot of Pokémon creatures using the Pokémon Emerald Master Ball; it is much better when you have a cheat code that will allow you to get unlimited Master Balls.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Can I Catch the Regional Pokémon without Traveling On Realme 12+ 5G
 
 The main goal that the designers of Pokémon Go had in mind for the past few years was to create a framework that prompts players to get off their loungers and go into the real world in search of Pokémon. If you are wondering why there are certain types of Pokémon enlisted as ‘blanks’ in your Pokedex and you haven’t yet found them, it’s probably because they are marked as ‘regional’ types. This means that these Pokémon are exclusively locked in select regions around the world. Don’t Panic! You don’t have to spend a boat load of cash in order to catch these special regional Pokémon as there are tricks you can apply to catch them without even stepping out of your kitchen.
@@ -205,26 +191,12 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![johto pokemon](https://images.wondershare.com/drfone/2020/202010/johto-pokemon.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
 
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Tropius:** The Middle East and Africa.
 - **Torkoal:** Southeast Asia.
@@ -240,6 +212,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![sinnoh pokemon](https://images.wondershare.com/drfone/2020/202010/sinnoh-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Pachirisu:** Canada.
 - **Chatot:** Southern Hemisphere.
 - **Shellos:** Pink Variant – Western Hemisphere. Blue Variant – Eastern Hemisphere.
@@ -252,13 +231,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![unova pokemon](https://images.wondershare.com/drfone/2020/202010/unova-pokemon.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Pansear:** The Middle East, Africa, India, and Europe.
 - **Pansage:** Asia/Pacific.
 - **Heatmor:** Western Hemisphere. Switches with Durant.
@@ -270,6 +242,19 @@ Catching regionally exclusive Pokémon requires you to travel to that location o
 
 To get the best out of your mock location and also to avoid the risk of hitting a light ban on your account, [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) by Wondershare has been reviewed as a Mock GPS you can easily rely on. It offers a number of features that can come in handy while faking your location such as adjusting the speed so that it may seem like you’re actually traveling, you can use a 360-degree virtual joystick for manual control over your movements and you can also select specific routes on the map on which you want your in-game avatar to move on.
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step-by-Step Tutorial
 
 You can follow these easy steps to set up and access your Dr.Fone Virtual Location in an instant and teleport to anywhere in the world.
@@ -280,13 +265,6 @@ Download Dr.Fone – Virtual Location. Install and launch the program. Click ‘
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Connect Device**
 
 Get the USB cable and connect your iPhone to the PC. And then click ‘Get Started’ to proceed.
@@ -294,10 +272,10 @@ Get the USB cable and connect your iPhone to the PC. And then click ‘Get Start
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Check the Location**
@@ -338,6 +316,13 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 
 Pokemon go has been around for a while now and has arisen as one of the most talked-about games in the gaming community. The fact that it is a location-based game and needs you to move around while playing the game makes it further interesting. Trading in Pokemon go is one of the most talked-about features. Today, we will help you explore more about stardust trade costs and how can you easily perform trades! Hang on as we dwell deeper into Pokemon go and trade stardust costs.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How does Pokemon trading work?
 
 So as we've discussed earlier, Pokemon go trading is one of the most interesting features of the game. So how does this trading work? In Pokemon Go, you can trade pokemon possessed by you with those possessed by your friends if both you and your friend, decide to mutually trade the pokemon with each other! For trading in Pokemon go, there are certain criteria you need to satisfy to qualify for trading in Pokemon go! Given below are the requirements to qualify for trading in Pokemon go
@@ -354,6 +339,13 @@ However, Pokemon go also has levels of friendship and you can trade pokemon of d
 - Best friend
 
 The levels of your friendship with a player on Pokemon go increase with the increase in the number of days you stay friends with them. Within a month of friendship, you can become best friends with a player on Pokemon go! You also need stardust points on Pokemon go. So what is stardust trade cost? Before you trade any pokemon you must spend stardust coins. Not having enough stardust trade coins will not allow the trade of pokemon to happen. Hence, you must have enough stardust trade costs.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How much stardust do you need in pokemon trading costs?
 
@@ -394,6 +386,13 @@ Teleport to anywhere in the world
 
 ![click virtual location](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Now, you need to connect your iPhone to the PC and click on "Get Started".
 
 ![click get started](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -401,13 +400,6 @@ Teleport to anywhere in the world
 **Step 3:** A new window would now pop up where you can see your current location. If you are unable to see your current location, then click on "center on" icon at the bottom. Doing so will lead you to show your location on the map.
 
 ![map screen](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** Now click on "Teleport mode" using the button on the top right corner of the window. Enter the place you want your location to be set to and then click on "Go". Once done the click on "Move Here". Well, that's it! We're done with changing our location to the desired location!
 
@@ -417,9 +409,23 @@ Teleport to anywhere in the world
 
 Pokemon go also allows you to send gifts to your game friends and receive gifts from your game friends. Well, this can help both of you grow and progress in the game and can be a helpful trick to increase Stardust!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Play the game as much as you can
 
 Investing more and more time on the game will lead you to catching more pokemons which will, in turn, lead to getting more stardust! Hence play it regularly with continuity!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -439,18 +445,22 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-art-of-crafting-persuasive-video-covers-for-social-media-platforms/"><u>[New] The Art of Crafting Persuasive Video Covers for Social Media Platforms</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-video-frustrations-find-solutions-now/"><u>[Updated] 2024 Approved Instagram Video Frustrations? Find Solutions Now</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-view-avchd-mts-files-on-redmi-note-12t-pro-by-aiseesoft-video-converter-play-mts-on-android/"><u>Can I view AVCHD .mts files on Redmi Note 12T Pro?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme Note 50? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Nokia G42 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oppo-f25-pro-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Oppo F25 Pro 5G Device</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Magic 6? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/pushing-the-limits-revolutionary-image-distortions-with-ps-for-2024/"><u>Pushing the Limits Revolutionary Image Distortions with PS for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-how-to-stop-the-annoying-screen-tremor-a-step-by-step-guide/"><u>Resolved! How to Stop the Annoying Screen Tremor - A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-artisans-path-to-perfecting-video-chroma-balance-11-lessons-for-2024/"><u>The Artisan's Path to Perfecting Video Chroma Balance (11 Lessons) for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unlocking-success-in-live-streaming-of-cricket-matches/"><u>Unlocking Success in Live Streaming of Cricket Matches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-best-free-youtube-to-mp3-converters-you-should-know-onlinewinmac/"><u>[New] In 2024, Best Free YouTube to MP3 Converters You Should Know [Online/Win/Mac]</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-lumafusion-tips-for-subtle-sound-reduction/"><u>[Updated] In 2024, Lumafusion Tips for Subtle Sound Reduction</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-leading-call-customization-applications/"><u>[Updated] Leading Call Customization Applications</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-internal-device-recorder-to-capture-screens-on-mate-1020-and-p-series-phones-p2010/"><u>2024 Approved Internal Device Recorder to Capture Screens on Mate 10/20 & P Series Phones (P20/10)</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/bypassing-and-repairing-the-persistent-0x802n40017-issue-in-windows-updates/"><u>Bypassing and Repairing the Persistent 0X802n40017 Issue in Windows Updates</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-90-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-list-of-cost-free-video-downloaders-from-pinterest-for-2024/"><u>Exclusive List of Cost-Free Video Downloaders From Pinterest for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-add-music-in-premiere-pro-for-2024/"><u>How To Add Music In Premiere Pro for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-moto-g-5g-2023-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Motorola Moto G 5G (2023) Phone with Broken Screen</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/safeguarding-data-exchange-expert-strategies-to-shield-from-wpa2-krack-exploits/"><u>Safeguarding Data Exchange: Expert Strategies to Shield From WPA2 KRACK Exploits</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor Play 7T? | Dr.fone</u></a></li>
 </ul></div>
 

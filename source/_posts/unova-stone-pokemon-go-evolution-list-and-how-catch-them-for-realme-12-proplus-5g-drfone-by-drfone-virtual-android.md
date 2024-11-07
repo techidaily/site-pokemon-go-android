@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Realme 12 Pro+ 5G | Dr.fone
-date: 2024-10-29T05:09:27.115Z
-updated: 2024-10-31T19:47:46.415Z
+date: 2024-11-02T18:28:33.117Z
+updated: 2024-11-07T02:05:08.999Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -28,6 +28,13 @@ Unova Stone is one of the latest evolutions added in Unova's region to the game 
 ### How Can you Obtain Unova Stone in Pokémon Go?
 
 Obtaining Unova Stone in Pokémon is now possible through research breakthroughs. But what exactly is research breakthroughs? Research breakthroughs are when a trainer completes seven research tasks with every research panning a day each. Here, the trainer only needs to complete the seven research pieces but not for seven straight days. This means it is possible to skip a day then resume your research until you complete seven of them without fail.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Which Pokémon Require Unova Stone to Evolve in Pokémon Go?
 
@@ -65,13 +72,6 @@ Panpour is a water type Pokémon also initially found in the Unova region. This 
 
 Unova Stone is a great evolution asset in Pokémon Go generation 5. You are already aware that you need to make a filed research breakthrough to obtain Unova Stones. But what are some of the hacks and tricks that can make you easily claim the Unova Stones?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Use iOS Spoofing tool-Dr. Fone Virtual Location
 
 [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is a powerful iOS spoofing tool that can be used to fake your GPS location and hit field research weekly breakthrough with ease. You can teleport to whatever place you want or simulate movements between two places. These places can be real or simply any paths you draw. This makes it ideal for location-based games such as Pokémon Go. If you want to fake your location and trick Pokémon Go to get a research breakthrough with ease using Dr. Fone Virtual Location, then follow the steps below.
@@ -92,6 +92,13 @@ Unova Stone is a great evolution asset in Pokémon Go generation 5. You are alre
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Use VPN
 
 You can leverage VPN to change your location and fool Pokémon to complete the research breakthrough. However, you should be cautious with the VPN provider. The good thing about VPN is that they are secure and do not require jailbreaking. The downside is that good VPNs are expensive and are restricted to server locations.
@@ -100,32 +107,40 @@ You can leverage VPN to change your location and fool Pokémon to complete the r
 
 This is a desktop-based spoofing tool which can help you fake your location. It does not require jailbreaking and thus can easily spoof for Pokémon Go. The downside is that it requires Windows PC and that the premium version is expensive.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4 solution to get rid of pokemon fail to detect location On Realme 12 Pro+ 5G
 
 Pokémon go failed to detect location is an error that is frequently faced by the players and there are several reasons for it. From device to server-based all the reasons amount to the error and therefore the right solution must be applied to get the work done with ease and perfection. The location-based attribute of the game is something that has been one of the best features. It is the sole reason for which the game is not only popular but also one of the most downloaded games of all time. It is therefore important to overcome fail to detect location error in this game.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: Why does Pokémon fail to detect location?
 
 The two main and frequent errors that are related to the Pokémon are error 11 and error 12. These not only frustrate the users but also hamper the game experience. Failed to detect location Pokémon go is the result. This part of the article will make sure that you get all the information that is needed to overcome the issue. The GPS joystick failed to detect location error will also be overcome and you will also be able to guide others.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Causes of Error 11
 
 1. If the game failed to detect location Pokémon go fake GPS then the most common reason is the fact that the GPS has been disabled. The internet and GPS are the two important aspects of this game. If anyone is not available then it is a must that the game will not work at all.
 2. Once the game has been installed it requires certain permissions that should be granted for proper working. All the permissions must be accepted for the game to work fine. If the GPS access has not been granted then it should be so that the GPS joystick Pokémon go failed to detect location error is resolved and you can enjoy the game.
 3. To install some applications and to enhance the features of the phone it is at times rooted in the case of android or jailbroken in the case of iPhone. In both cases, you will get the Pokémon to go failed to detect location fake GPS error. It is therefore important that the issue is resolved by getting the Realme 12 Pro+ 5G device back to its original shape. It can be done by unrooting the Realme 12 Pro+ 5G devices so that the issue is resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Causes of Error 12
 
@@ -145,6 +160,13 @@ This is the most common method that can be applied to make sure that the game wo
 **ii.** Click on the location to turn it ON.
 
 ![Pokemon failed to detect location 2](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Setting Permissions for the application
 
@@ -172,6 +194,13 @@ If the right permissions are not given to the application then it can also lead 
 
 ![Pokemon failed to detect location 7](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **iv.** Clear data and cache and restart the Realme 12 Pro+ 5G device to get the issue fixed.
 
 ![Pokemon failed to detect location 8](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_8.jpg)
@@ -189,19 +218,6 @@ To fix the fake GPS Pokémon go failed to detect location [Dr. Fone's virtual lo
 First of all download and install the program to get started.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Enable Virtual Location**
 
@@ -227,18 +243,18 @@ Click on move here to get to the location that has been selected.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6: Validation**
 
 Your iPhone will show the same location as on the program and this finishes the process.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -292,19 +308,6 @@ When you are using My Boy, you can use the following code:
 
 You should then set the “cheat type” to “codebreaker”. Now set it to “autodetect” and you will be able to get Pokémon Master Emerald Balls at any time you wish.
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How do you get unlimited master balls in Pokémon Emerald?
 
 There are ways in which you can get unlimited Pokémon Master Balls using the Pokémon emerald Master Ball cheat codes available today.
@@ -323,13 +326,6 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Entering the GameShark Pokémon Emerald Master Ball cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4 -** Now proceed and enter the master ball code. The small cod will have to be enabled before you can switch on the Pokémon Emerald Master Ball GameShark cheat code. To do this, Go to the description and then enter the master code. Now you need to paste in the following into the “Code Field”.  
 **D8BAE4D9 4864DCE5**
 
@@ -342,13 +338,6 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 Only one Master Ball can be bought at a time, but you can do this as many times as you want. If you are already inside the PokeMart when you enter the code, you may have to walk out and walk back in again for it to work.
 
 ![Buy as many Pokémon Emerald Master Balls as you would like using the cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 When you have shopped for Pokémon Emerald Master Balls to your fill, you need to disable the code so your store can go back to normal. All you have to do is go back to the “Cheat List” window and then uncheck the two little lines of Pokémon Emerald Master ball cheat codes.
 
@@ -414,13 +403,6 @@ Use the [tutorial shown on this page](https://drfone.wondershare.com/guide/telep
 
 Once you have enough Pokémon creatures, you may now use your Lucky Egg and evolve them in mass and add your XP.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## In Conclusion
 
 Getting Pokémon Emerald Master Ball cheat codes is important if you want to catch a lot of Pokémon with ease. You need to catch them so you can level up as fast as possible. As you have seen, one of the best ways to do this is to catch a lot of Pokémon, and then evolve them and get XP that will allow you to level up quickly. You may use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to shift to areas where you can catch a lot of Pokémon creatures using the Pokémon Emerald Master Ball; it is much better when you have a cheat code that will allow you to get unlimited Master Balls.
@@ -439,22 +421,14 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-how-to-record-films-seamlessly-across-tech-devices/"><u>[Updated] 2024 Approved How to Record Films Seamlessly Across Tech Devices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-leading-action-cameras-for-thrill-seekers/"><u>2024 Approved Leading Action Cameras for Thrill Seekers</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-tailored-obs-tweaks-for-affordable-systems/"><u>2024 Approved Tailored OBS Tweaks for Affordable Systems</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/critique-and-score-why-you-cant-ignore-yakuza-like-a-dragon-in-the-realm-of-jrpgs/"><u>Critique & Score: Why You Can't Ignore 'Yakuza: Like a Dragon' In the Realm of JRPGs</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme C67 5G? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-poco-m6-pro-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Poco M6 Pro 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-poco-x5-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-compact-cinematic-story-guide/"><u>In 2024, Compact Cinematic Story Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Magic 5 Lite? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/jumpstarting-your-marketing-the-essentials-of-telegram-advertising/"><u>Jumpstarting Your Marketing The Essentials of Telegram Advertising</u></a></li>
-<li><a href="https://extra-information.techidaily.com/superior-pfv-optimization-in-tardy-action/"><u>Superior PFV Optimization in Tardy Action</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-c51-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme C51? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/unlock-social-media-8-free-fb-extractors/"><u>Unlock Social Media 8 FREE FB Extractors</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-y28-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo Y28 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-magic-6-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/authentication/"><u>Authentication</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-tech-innovations-at-ces-2024-a-review-of-leading-laptops-and-more-zdnet/"><u>Exploring Tech Innovations at CES 2024: A Review of Leading Laptops and More - ZDNet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-to-resolve-0x0000004e-issue-in-win11/"><u>Strategies to Resolve 0X0000004E Issue in Win11</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/1728465975002-windows-1011/"><u>Windows 10/11で最適化：クラウドからのダウンロードと地上デバッシュ方法</u></a></li>
 </ul></div>
 

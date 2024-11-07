@@ -1,7 +1,7 @@
 ---
 title: The Most Useful Tips for Pokemon Go Ultra League On Realme 12 5G | Dr.fone
-date: 2024-10-31T00:55:15.358Z
-updated: 2024-11-01T06:53:31.723Z
+date: 2024-11-03T19:34:08.764Z
+updated: 2024-11-06T21:11:22.064Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -47,6 +47,13 @@ Well, it can be tempting to put your highest rated Pokemon into the ultra League
 
 Here you go-
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Venusaur
 
 ![Ultra league Pokemon Go](https://drfone.wondershare.com/2020/Ultra-league-Pokemon-Go.jpg)
@@ -63,13 +70,6 @@ Charizard among the Pokemon Go ultra league tier list shines as it balances effo
 
 ![best Pokemon for the ultra league](https://drfone.wondershare.com/2020/best-Pokemon-for%20the-ultra-league.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Neglecting the fighting, which is not as prevalent in the ultra League Pokemon Go as it was in the Great League, Machamp is still strong enough, especially when you are looking for something to round off some of the powerful picks as a counter option.
 
 ### 4\. Alolan Muk
@@ -81,13 +81,6 @@ One of the finest defenders in Pokemon go ultra league team, Alolan Muk has the 
 ### 5\. Snorlax
 
 ![Pokemon go best ultra league team](https://drfone.wondershare.com/2020/Pokemon-go-best-ultra-league-team.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 A tremendous defensive option for many reasons, Snorlax is one whom you can drop into Pokemon go best ultra league team with little effort while you look for a reliable third option.
 
@@ -128,22 +121,15 @@ If you have been using iSpoofer for a while to change your iPhone location, you 
 ![ispoofer shutdown banner](https://drfone.wondershare.com/2020/ispoofer-shutdown-banner.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: Why did iSpoofer shutdown?
 
 Earlier, iSpoofer used to be one of the most popular apps to change our location on Pokemon Go. Sadly, the application is no longer working and you can’t even do iSpoofer download from its website.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Why did iSpoofer shutdown?
 
@@ -153,6 +139,13 @@ Earlier, iSpoofer used to be one of the most popular apps to change our location
 - Even if you have already done the iSpoofer download, the application will not be supported by Pokemon Go and its use will get your account terminated.
 
 ![pokemon go account warning](https://drfone.wondershare.com/2020/pokemon-go-account-warning.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Will iSpoofer work again?
 
@@ -186,13 +179,6 @@ Once your iPhone is detected, the interface will display its present location. Y
 
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, please enter the address or the coordinates of the target location and load it on the map.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -223,6 +209,19 @@ Great! Now you can go to your phone’s Settings > Developer Options and turn on
 
 ![allow mock locations](https://images.wondershare.com/drfone/2020/allow-mock-locations.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Install a Mock Location App**
 
 Afterward, you can go to the Play Store and install any reliable mock location app from developers like Hola or Lexa. Let’s suppose we have installed the Mock GPS app by Lexa on the Realme 12 5G device.
@@ -251,6 +250,13 @@ While keeping track of where each regional Pokemon spawns can be pretty confusin
 
 Alternatively, players can use virtual location-changing tools like Wondershare Dr.Fone, and today, we’ll show you how to catch all **Pokemon GO regional exclusives** with this easy-to-use app.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1. What Are Regional Pokemon?
 
 Regional Pokemon are exclusive creatures in Niantic’s Pokemon GO AR game that only live in specific regions across the globe. The area in which a particular Pokemon can be found depends on the nature of that Pokemon. For example, Tropius can only be found in tropical parts of the continent.
@@ -271,10 +277,10 @@ Avid Pokemon trainers can use one or a combination of these strategies to swiftl
 ![regional spawn points in pokemon go](https://images.wondershare.com/drfone/article/2024/03/catch-all-pokemon-go-regional-exclusives-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The spawn points of regional Pokemon vary significantly between creatures. Some are exclusive to a hemisphere, others to a continent, while the third group only spawns in a few specific countries. Keeping track of it all can be challenging, and that’s why we’ve created a detailed information table with regions and specific Pokemon GO regional exclusives you can find in each.
@@ -295,13 +301,6 @@ While they’re categorized as available on the entire continent, it’s worth n
 ## Part 4. Learning About the Regional Pokemon Distribution
 
 With almost 60 Pokemon GO regional exclusives in 2024, keeping track of where each creature spawns can be a nightmare, especially when some Pokemon can only be found in tiny and specific areas. However, you don’t necessarily have to remember the location of each regional Pokemon, as there are other ways of learning about their distribution.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Getting Information From the Community
 
@@ -352,6 +351,13 @@ Wondershare Dr.Fone also includes a Jump Teleport Mode, allowing you to swiftly 
 
 ![select dr.fone’s jump teleport mode](https://images.wondershare.com/drfone/guide/jump-teleport-mode.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3. Type in and add multiple virtual locations, and click the **Start Moving**
 
 ![move between multiple virtual locations](https://images.wondershare.com/drfone/guide/choose-jump-teleport-destination.png)
@@ -359,6 +365,13 @@ Wondershare Dr.Fone also includes a Jump Teleport Mode, allowing you to swiftly 
 5. Switch your virtual location by clicking **Next Point**and **Last Point** to move forward or backward.
 
 ![move along the created route](https://images.wondershare.com/drfone/guide/start-use-jump-teleport-mode.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Movement simulation works exceptionally well for catching Pokemon around the globe, and you’ll be able to encounter dozens of these. Use Wondershare Dr.Fone to progress swiftly through the game and catch them all!
 
@@ -369,13 +382,6 @@ While incredibly straightforward and helpful, changing your virtual location isn
 The game’s special events often remove regional Pokemon distribution restrictions, allowing exclusive creatures to spawn around the globe for a particular period. With these, you can find and catch Asia-specific Pokemon in North America and vice versa.
 
 It’s worth noting that these special events are pretty rare in Pokemon GO. You’ll need to pay close attention to the game’s announcements, as you don’t want to miss an opportunity to add another, hard-to-find, regional Pokemon to your Pokedex.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 7. Trading Regional Pokemon
 
@@ -403,20 +409,24 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-a-comprehensive-guide-to-the-12-superior-vlogging-cameras/"><u>[New] In 2024, A Comprehensive Guide to the 12 Superior Vlogging Cameras</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-achieving-seamless-background-blurs-in-video-calls/"><u>[Updated] 2024 Approved Achieving Seamless Background Blurs in Video Calls</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/elevating-speaker-levels-in-windows-11-simple-tweaks-and-adjustments/"><u>Elevating Speaker Levels in Windows 11 - Simple Tweaks and Adjustments</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme GT Neo 5? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-infinix-zero-30-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Infinix Zero 30 5G Phone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Xiaomi Redmi A2? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-capture-and-convey-top-10-image-writing-aid-apps-iosandroid/"><u>In 2024, Capture and Convey Top 10 Image Writing Aid Apps (iOS/Android)</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor Magic Vs 2? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/unlock-success-in-online-partnerships-join-us-for-an-insightful-affiliate-engine-and-massmail-software-seminar/"><u>Unlock Success in Online Partnerships - Join Us for an Insightful Affiliate Engine and MassMail Software Seminar!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-find-youtube-sponsorships-by-using-famebit/"><u>[New] 2024 Approved How to Find YouTube Sponsorships by Using FameBit</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-discover-the-best-insta-grid-creators-our-leading-ten-picks/"><u>[New] In 2024, Discover the Best Insta Grid Creators Our Leading Ten Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-top-video-professionals-for-2024/"><u>[New] Navigating Top Video Professionals for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discover-essential-list-of-7-high-performance-mobile-video-streaming-tools-iphoneandroid/"><u>[Updated] 2024 Approved Discover Essential List of 7 High-Performance Mobile Video Streaming Tools (iPhone/Android)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-comprehensive-morphvox-modification-handbook/"><u>[Updated] Comprehensive MorphVOX Modification Handbook</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-artistic-auto-trims-best-6-mac-os-big-sur-video-editors-reviewed/"><u>2024 Approved Artistic Auto-Trims Best 6 Mac OS Big Sur Video Editors Reviewed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/effortless-fixes-for-itunes-malfunctions-a-step-by-step-guide/"><u>Effortless Fixes for iTunes Malfunctions: A Step-by-Step Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-y17s-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Motorola Moto G 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-100-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor 100? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor X50 GT? | Dr.fone</u></a></li>
 </ul></div>
 

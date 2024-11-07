@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Realme 12 Pro+ 5G? | Dr.fone
-date: 2024-10-29T21:28:07.828Z
-updated: 2024-10-31T22:26:33.092Z
+date: 2024-10-30T17:40:28.379Z
+updated: 2024-11-06T21:00:03.765Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -61,13 +61,6 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3.** On the next page, click the third icon on the top-right to provide the teleport mode. Choose the location you want to teleport to within the filed at the top and press “Go.”
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -79,6 +72,19 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 ### 2\. Use Android spoofing tool- Pgsharp
 
 Pgsharp i8s an Android application that enables users to be fake their GPS location and fools location-based apps like Pokémon Go to enter a territory that is easy to grab a Shiny Stone or Pokémon. It has a joystick feature for easy and smooth movement, coordinates to move to specific locations, auto walkthrough several pokestops, and saves your last location, among others.
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Use a Drone
 
@@ -95,10 +101,10 @@ In the game, players control a female or male character. It starts with three Po
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
@@ -122,6 +128,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
@@ -165,6 +178,13 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
 [Dr.Fone - Virtual Location (iOS/Android)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With this tool, you can teleport your iPhone GPS to any other desired place worldwide with only a few clicks. This reliable application sets up a virtual GPS location. Therefore, all other location-based apps, including Pokemon Platinum Version, installed on your device, believe that you are actually there. Use this tool to capture platinum legendaries.
@@ -181,16 +201,16 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
@@ -215,19 +235,6 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Pokemon Go Error 12 Failed to Detect Location On Realme 12 Pro+ 5G?
 
@@ -255,13 +262,6 @@ The system within the system that has been designed by the game developers makes
 
 Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 1: Enable Mock Locations
 
 As the name suggests it is to set the fake location using the build-in iPhone feature. It will also make sure that the feature of the game continues to work perfectly.
@@ -278,6 +278,13 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Location Activation
 
 This is another important and easy way to make sure that the Pokémon failed to detect location 12 error is resolved with ease and perfection. To execute the process the steps are mentioned as follows:
@@ -289,6 +296,13 @@ This is another important and easy way to make sure that the Pokémon failed to 
 **Step 2.** Tap on the passwords and security to proceed with the process:
 
 ![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3.** Tap to turn on the location to finish the process and eliminate the failed to detect location 12 Pokémon Go errors.
 
@@ -302,25 +316,11 @@ Just long-press the power button and choose the reboot option from the menu that
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The Process
 
@@ -342,6 +342,13 @@ The center on the button on the next screen is to be clicked to get the accurate
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Teleportation**
 
 On the upper right corner click the icon on the third to begin teleportation or spoofing to be precise. Enter the name of the place where you want to teleport to.
@@ -353,13 +360,6 @@ On the upper right corner click the icon on the third to begin teleportation or 
 Click on move here and the system will move you to the location that has been entered.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6: Validate and Completion**
 
@@ -385,24 +385,16 @@ The location will be locked by the program and your iPhone will also show the sa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-best-investment-selecting-the-top-5-pro-drones-for-2024/"><u>[New] Best Investment - Selecting the Top 5 Pro Drones for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-cheap-not-bad-chromebooks-top-recording-tools/"><u>[Updated] 2024 Approved Cheap Not Bad – Chromebook's Top Recording Tools</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-dual-screen-optimization-using-safaris-picture-in-picture/"><u>[Updated] 2024 Approved Dual Screen Optimization Using Safari’s Picture In Picture</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-dive-deep-into-tiktok-mastery-50-must-know-quotes-for-2024/"><u>[Updated] Dive Deep Into TikTok Mastery 50 Must-Know Quotes for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/crea-tu-propio-archivo-de-video-con-formato-mkv-a-partir-de-un-audio-wav-online-gratis-movavi/"><u>Crea Tu Propio Archivo De Vídeo Con Formato MKV a Partir De Un Audio WAV Online Gratis - Movavi</u></a></li>
-<li><a href="https://common-error.techidaily.com/deciphering-the-mystery-of-msdia80dll-essential-insights-for-secure-system-management/"><u>Deciphering the Mystery of msdia80.dll - Essential Insights for Secure System Management</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/economic-estimation-funds-required-for-song-visualization/"><u>Economic Estimation Funds Required For Song Visualization</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-c51-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor V Purse? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oppo-a38-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Oppo A38 Device</u></a></li>
-<li><a href="https://video-capture.techidaily.com/mastering-aiseesofts-capture-tech-screen-recording-basics-for-2024/"><u>Mastering Aiseesoft's Capture Tech Screen Recording Basics for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/sightgallery-review-system/"><u>SightGallery Review System</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-streamlining-the-process-of-converting-zip-to-srt/"><u>[Updated] 2024 Approved Streamlining the Process of Converting Zip to Srt</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-from-dream-to-documentation-essential-ways-to-record-your-sims-epic-quests-in-sims-4/"><u>[Updated] From Dream to Documentation Essential Ways to Record Your Sims' Epic Quests in Sims 4</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlocking-potential-in-your-photography-with-gopro-time-lapses/"><u>[Updated] Unlocking Potential in Your Photography with GoPro Time-Lapses</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-breathing-life-into-bios-a-zodiac-perspective/"><u>2024 Approved Breathing Life Into Bios A Zodiac Perspective</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-epic-dramatic-stories-for-the-ears/"><u>In 2024, Epic Dramatic Stories for the Ears</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-spark-20c-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-asus-rog-phone-7-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Asus ROG Phone 7 online without jailbreak</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme 11X 5G? | Dr.fone</u></a></li>
 </ul></div>
 
