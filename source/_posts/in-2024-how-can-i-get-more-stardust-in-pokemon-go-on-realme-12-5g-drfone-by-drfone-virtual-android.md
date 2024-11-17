@@ -1,7 +1,7 @@
 ---
 title: In 2024, How can I get more stardust in pokemon go On Realme 12 5G? | Dr.fone
-date: 2024-11-05T22:08:05.474Z
-updated: 2024-11-06T16:41:26.960Z
+date: 2024-11-12T19:52:05.469Z
+updated: 2024-11-16T23:23:33.027Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -37,20 +37,6 @@ As you can see, Stardust is crucial for numerous gameplay experiences, so you sh
 
 ![power up using stardust](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3. Best Ways to Get Stardust in Pokemon Go
 
 Since having Stardust is crucial for your Pokemon Go experience, you may be looking for the best ways to accumulate as many consumables as possible. We’ll present a couple of ways to reach your goals below.
@@ -73,13 +59,6 @@ The maximum Stardust you can get in one gift is 300, which may not seem like a l
 
 ![opening gifts in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### By Hatching Pokemon
 
 Hatching a Pokemon is also one of the essential parts of your Pokemon experience. Every time you hatch an egg, you’ll get Stardust points you can spend on numerous instances. The Stardust amount will depend on the egg itself; the higher the rank, the better the prices.
@@ -95,13 +74,6 @@ You can check out the list below to determine how much Stardust you’ll collect
 You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### By Catching Pokemon
 
@@ -122,6 +94,19 @@ Once you and your team defeat the Boss, you can collect the prizes. You’ll win
 If you defeat the boss, you’ll also get a chance to catch the Pokemon, which can bring you even more Stardust points!
 
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
 
@@ -189,6 +174,13 @@ Moreover, **Pokémon GO PvP** is designed to use an array of Pokémon in a parti
 
 ![finding strongest pokemon for pvp league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1. What Are the Limitations of CP for Every Pokémon GO PvP League
 
 For a diverse and challenging gaming experience, **Pokémon GO PvP** comes up with CP limitations. So far, the Great League is easier to start because players with a limit of 1500 CP Pokémon can participate. Then comes the Ultra League, where you'll find more legendary Pokémon due to its 2500 CP limitation. Unlike other leagues, there is no Pokémon CP limitation in the Master League.
@@ -204,13 +196,6 @@ In addition, these three Pokémon GO leagues often feature themed cups. For inst
 ## Part 2. 5 Strongest Pokémon for Pokémon GO Great League
 
 Start your Pokémon Go Battle by tapping the Poke Ball and Battle option. Afterward, assemble your team for this challenging game filled with Pokémon and attacks. As mentioned, you need Pokémon with 1500 CP to play, so this section has enlisted the stronger ones. Go through every detail of such Pokémon and finalize them for the coming Battle.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Alolan Sandshrew
 
@@ -311,6 +296,13 @@ Xatu uses Air Slash and Faint Attack in fast moves while using Future Sight, Aer
 
 ![orbeetle pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 With a maximum of 2484 CP at level 49, it is another **best PvP Pokémon GO Ultra League**. It is popular for its special moves, Confusion and Psychic, and can be easily used below the maximum level within this league. This Pokémon was first found in the Galar region and works better in windy weather. Orbeetle can deal with 316.3 damage before fainting out.
 
 So far, it has scored 156 in attack, 240 in defense, and 155 in stamina categories. Confusion and Struggle Bug are its fast moves, while Buzz Mug and Psychic are counted in its charge moves. Besides, Blipbug and Dottler are some of its family members.
@@ -320,22 +312,15 @@ So far, it has scored 156 in attack, 240 in defense, and 155 in stamina categori
 | **Weaknesses** | Bug, Dark, Fire, Flying, Ghost, Rock |
 | **Resistance** | Fighting, Grass, Ground, Psychic |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Cramorant
 
 ![caramorant pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Cramorant Pokémon scored the highest at 2421 CP and counts in the Ultra League as the strongest Pokémon. The best moves it offers are Fly and Water Gun, with 12.94 damage per second. It works better in rainy and windy weather and faints in neutral weather after dealing with 298.9 damage.
@@ -376,13 +361,6 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 | --- | --- |
 | **Weaknesses** | Dark, Ghost, Ground, Psychic |
 | **Resistance** | Fighting, Bug, Normal, Poison, Fairy, Grass |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Mega Y Charizard
 
@@ -488,15 +466,36 @@ If you want to move between multi-routes, activate the “Multi-Stop Route" feat
 
 ![set multiple routes on dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To get ready for this, you need a strong Pokémon, and this article has enlisted the top 15 of them. Choosing the best **Pokemon GO PvP** isn't enough for smoother gaming; your location might impose restrictions. Thus, using Wondershare Dr.Fone - Virtual Location is a definitive solution.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Realme 12 5G
 
 Pokemon continues to be an after-sought mobile gaming app. The iTool gpx completes the game. This tool is dully smart, letting you catch Pokemon without much hassle. iTools is a replacement for iTunes which you can now use to manage your iDevice and computer. Its simplicity makes it a walk-in-the-park as you try to catch Pokemon. It will save your computer battery life and also save you from complex background operations.
 
  It will inform you when a pokestop arrives without the need to even use your phone. More so, simply connect the Realme 12 5G device to your phone via Bluetooth technology and move along as you enjoy your game. The device will vibrate or blink, an indication that you need to get ready to catch a Pokemon. So yes, you can use iTool gpx file to catch rare Pokemon.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1：What can the gpx file do?
 
@@ -566,6 +565,13 @@ Next, import the shared gpx file into the app. You can download the gpx file fro
 
 ![Import file then click on Save](https://images.wondershare.com/drfone/guide/import-gpx.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can also add your favorite iSpoofer gpx routes. To add any spot into your favorites, check for the five-star icon and click to add the route to favorites. You should see ‘Collection successfully’ after adding your favorites. This gpx route creator makes it easy to walk along your favorite routes. Click the ‘Move’ button and reach any place with a click of a button.
 
 ![Enter address and click Go](https://images.wondershare.com/drfone/guide/search-favorites.png)
@@ -588,19 +594,22 @@ Being a first timer, you may find it very complicated to fake your gps location.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-essence-of-time-stretching-detailed-review-of-slomo-2e1924/"><u>[Updated] In 2024, The Essence of Time Stretching Detailed Review of SloMo, 2E1924</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-tecno-spark-10c-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Tecno Spark 10C to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-insignia-ns-43df710na19-fire-tv-stick-plus-with-alexa-voice-remote-high-definition-streaming-at-a-budget/"><u>Amazon Insignia NS-43DF710NA19 Fire TV Stick Plus with Alexa Voice Remote - High-Definition Streaming at a Budget</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/delving-into-periscope-features-pricing-and-account-registration/"><u>Delving Into Periscope Features, Pricing & Account Registration</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-oneplus-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked OnePlus Phone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Poco C50 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-video-vibes-for-top-tier-unpacked-videos/"><u>In 2024, Mastering Video Vibes for Top-Tier Unpacked Videos</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-visual-identity-shielding-adding-watermark-and-logo-to-youtube-media-for-2024/"><u>[Updated] Visual Identity Shielding Adding Watermark & Logo to YouTube Media for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-the-middle-ground-working-and-youtube/"><u>Finding the Middle Ground Working & YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-vivo-y100i-power-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Vivo Y100i Power 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-tecno-spark-10-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Tecno Spark 10 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/pathfinder-wrath-of-the-righteous-fixed-now-running-smoothly-on-your-pc/"><u>Pathfinder: Wrath of the Righteous Fixed - Now Running Smoothly on Your PC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-poco-c51-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-7-video-gear-ideas-for-captivating-vloggers-for-2024/"><u>Premium 7 Video Gear Ideas for Captivating Vloggers for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/streamline-your-video-library-top-mac-metadata-editing-tools/"><u>Streamline Your Video Library Top Mac Metadata Editing Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubing-into-visual-wonders-learn-from-greenscreen-pros-for-2024/"><u>Youtubing Into Visual Wonders – Learn From Greenscreen Pros for 2024</u></a></li>
 </ul></div>
 

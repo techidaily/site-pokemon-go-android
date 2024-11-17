@@ -1,7 +1,7 @@
 ---
 title: In 2024, What is the best Pokemon for pokemon pvp ranking On Realme 12 Pro 5G? | Dr.fone
-date: 2024-10-13T17:29:07.837Z
-updated: 2024-10-20T17:34:18.476Z
+date: 2024-11-11T04:29:47.345Z
+updated: 2024-11-17T07:02:08.022Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -33,20 +33,14 @@ There are lots of sensible reasons why you should engage in the Pokemon Go PvP r
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Doing the same thing over and over sometimes frustrates us. Therefore, playing Pokemon Go PvP rank battles for a change of scenery is great. It somehow gives us a perfect dose of distraction at times when we feel bored and unmotivated.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### It allows players to learn new gaming skills and improve their techniques
 
@@ -73,31 +67,18 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 ![battle option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 4:** Choose your preferred Reward Track and then click the **Battle** button on your chosen track.
 
 ![gbl reward track](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Step 5:** Finalize your three-member Pokemon team and start battling against another trainer you match with.
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3. Explained: Pokemon PvP Ranking in Go Battle League
 
@@ -132,19 +113,6 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 
 ![simulation settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Step 6:** The simulation will begin in a second. Use the details on the map to monitor the real-time progress. If you wish to halt the movement for a little while, click **Pause.** Should you wish to start all over again, click **Clear** instead and repeat the entire process one more time.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
@@ -160,13 +128,6 @@ There’s no denying that the internet gives us the power to do almost anything.
 **Pokemon Go streaming** is very popular on the internet nowadays. Many players around the world go live while catching Pokemon in the streets or battling against other trainers. By far, the **Pokemon Go live stream** continues to receive support and appreciation from the huge communities of players worldwide. That’s why you should look at this opportunity and see how it can significantly elevate your Pokemon Go experience.
 
 In this article, we will talk about the amazing benefits of Pokemon Go streaming. We will also provide a guide and some tips on how to **livestream Pokemon Go** outdoors and indoors. Continue reading below to learn more.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Things You Need to Know About Pokemon Go Streaming
 
@@ -200,14 +161,14 @@ The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physi
 
 ![smartphone and internet power](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-3.JPG)
 
-It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
 
 ### Choose a live-streaming application and create an account
 
@@ -215,22 +176,36 @@ It’s fair to say that Pokemon Go streaming is not extremely particular when it
 
 Of course, you can bring a full computer setup outside while exploring around. That’s why you should choose a live-streaming application with features that allow you to broadcast directly on Your Realme 12 Pro 5G. Don’t worry. There are lots of choices on the internet. Pick the best one, and then create your Pokemon Go streaming account. Optimize your profile and make sure that the details are complete.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Set up the Pokemon Go Livestream
 
 ![set up live stream](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-5.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Set up the livestream accordingly. Start by writing a catchy title for your broadcast. Make sure that it clearly states the content and the intent of your Pokemon Go livestream. After that, add some keywords and specify the language of your stream. Yes. It’s very important because it will help interested viewers find you on the internet. Lastly, check the audio output. Adjust the volume clarity if necessary. Once you’re done, it’s time to hit the Go Live button and say “Hi” to the world.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Start playing Pokemon Go
 
 ![play pokemon live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-6.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Play Pokemon Go as if nobody is watching you online. Simply put, carry on with your usual gaming routine. Don’t let the audience distract you from the game. However, make sure that you interact with them as you go along. Try talking while you’re on the ground and catching Pokemon nearby. Respond to the comments once in a while. The point is that you have to extend the actual Pokemon Go experience to them. Trust yourself. You can definitely do that.
 
@@ -278,6 +253,13 @@ There are many fake GPS apps available that you can install, but only a few of t
 
 In this article, we will discuss more PGSharp and ban.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: Why Pokémon Go Account Get Banned
 
 The Niantic, the developer of Pokémon Go, is particular about the safety of the game. The main priority of them with Pokémon GO is to provide a fair game experience to players worldwide. If Niantic finds something wrong with the terms of the game, then it may ban your account.
@@ -301,13 +283,6 @@ Do not spoof or change location frequently, as this may bring you in the radar o
 
 Use an app with a real map-like interface that is difficult to notice from Niantic.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.1 Spoof Pokémon with PGSharp without a ban
 
 To spoof location with PGSharp, your first need to install it from the Google Play Store. In the search bar, type “ PGSharp” and click on the install icon.
@@ -315,6 +290,13 @@ To spoof location with PGSharp, your first need to install it from the Google Pl
 Now, when it gets installed, you can opt for a free trial or paid option. For a free trial, you will need a free beta key to use the app. For the paid version, you will need a license key that the app developer will provide you.
 
 ![pgsharp plan](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
 
@@ -374,19 +356,22 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-bridging-creativity-and-engagement-anime-subscribe-buttons-with-filmora/"><u>[Updated] 2024 Approved Bridging Creativity & Engagement - Anime Subscribe Buttons with Filmora</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-honor-v-purse-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor V Purse Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/configuring-windows-11-for-automatic-hdr-mode-for-2024/"><u>Configuring Windows 11 for Automatic HDR Mode for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme Note 50? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-honor-magic-5-phone-by-drfone-android/"><u>How to Unlock a Network Locked Honor Magic 5 Phone?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-3-innovative-ways-to-record-on-your-ipad/"><u>In 2024, 3 Innovative Ways to Record on Your iPad</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-quickened-visuality-speeding-up-keynote-video-sequences/"><u>In 2024, Quickened Visuality Speeding up Keynote Video Sequences</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/maximizing-visuals-a-step-by-step-guide-for-buying-a-4k-monitor-for-2024/"><u>Maximizing Visuals A Step-by-Step Guide for Buying a 4K Monitor for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-vexing-visualization-distinguishing-genuine-ai-representations/"><u>The Vexing Visualization: Distinguishing Genuine AI Representations</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-primer-on-using-azures-voice-to-text-service-for-2024/"><u>[New] A Primer on Using Azure's Voice-to-Text Service for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-above-and-beyond-the-best-non-twitter-networks-for-2024/"><u>[Updated] Above and Beyond The Best Non-Twitter Networks for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-12-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme 12 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ease-into-ai-starting-point-with-9-community-driven-tools/"><u>Ease Into AI: Starting Point with 9 Community-Driven Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/evaluating-video-performance-vlc-versus-mx-for-2024/"><u>Evaluating Video Performance VLC Versus MX for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/from-high-speed-to-serenity-making-captivating-slow-movies-on-instagram-for-2024/"><u>From High-Speed to Serenity Making Captivating Slow Movies on Instagram for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-vrecorder-how-to-download-and-install/"><u>In 2024, VRecorder - How to Download and Install</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/inside-look-at-googles-newest-tech-a-comprehensive-guide-to-the-rumored-google-tv-box-pricing-and-more/"><u>Inside Look at Google's Newest Tech: A Comprehensive Guide to the Rumored Google TV Box – Pricing & More!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-hp-deskjet-printing-errors-for-windows-11-users/"><u>Troubleshooting HP Deskjet Printing Errors for Windows 11 Users</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor Play 40C? | Dr.fone</u></a></li>
 </ul></div>
 

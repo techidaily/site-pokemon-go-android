@@ -1,7 +1,7 @@
 ---
 title: In 2024, Detailed guide of ispoofer for pogo installation On Realme 12 Pro 5G | Dr.fone
-date: 2024-10-01T10:22:32.896Z
-updated: 2024-10-03T09:27:22.447Z
+date: 2024-11-11T04:53:54.063Z
+updated: 2024-11-17T09:02:38.937Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -33,16 +33,16 @@ This detailed guide for iSpoofer installation is for those who still possess the
 
 ![unlock and trust software](https://images.wondershare.com/drfone/2020/2020/unlock-and-trust-software.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3 –** A map will load on your computer screen, which allows you to enter or point the location. Enter the location of your choice and click on “MOVE”. And that is it! Three simple steps and you have spoofed!
 
 ![change your phone location](https://images.wondershare.com/drfone/2020/2020/change-your-phone-location.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to use the iSpoofer when you play pokemon
 
@@ -77,6 +77,13 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 - **Auto-walk feature -** The game has an auto-walk feature in case you do not want to use the joystick to move around manually.
 - **Keyboard movement commands –** The player can also use the A, S, W and D keys on the keyboard to move around
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step by Step Guide to Install and use Dr. Fone Virtual Location -
 
 **Step 1 -** Download the Dr. Fone Virtual Location by official Wondershare website. Connect your phone to the computer in to execute the changes. Click on the “Virtual Location” option.
@@ -94,13 +101,6 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 **Step 4 –** Select the “teleport” option by clicking on the icon on the top right corner. Then, in the text box, enter the city or the location’s exact name or the coordinates in the “latitude, longitude” format.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5 –** After entering your location, select the “GO” option.
 
@@ -221,6 +221,13 @@ Pawma shows its full rage in rainy and cloudy weather while showing its fast mov
 | **Weaknesses** | Fairy, Ground, Psychic |
 | **Resistance** | Dark, Electric, Bug, Steel, Rock |
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3. 5 Strongest Pokémon for Pokémon GO Ultra League
 
 In league battles, players get promoted to higher ranks after succession. This rank upgrade looks aesthetic and comes up with more rewards. Kick off the Ultra **Pokémon GO PvP** league with some legendary Pokémon explained below in detail.
@@ -237,13 +244,6 @@ Regarding Raichu's family, it is found connected to Pikachu, Pichu, and Alolan R
 | --- | --- |
 | **Weaknesses** | Ground |
 | **Resistance** | Electric, Flying, Steel |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Xatu
 
@@ -297,27 +297,20 @@ Notably, it comes up with a max of 2488 CP under level 50 with 198 attack, 146 d
 | **Weaknesses** | Fire, Flying, Poison, Rock, Steel |
 | **Resistance** | Fighting, Dragon, Ground, Bug, Dark, Grass |
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4. 5 Strongest Pokémon for Pokémon GO Master League
 
 The Master League allows players to play without any CP limit. It is suitable for trainers in the league to trend all over in PvP battles with high CP. Some Pokemon characters are not popular, but they have the potential to compete in the Master League. Let's uncover them in this section and move one step ahead at your intended rank:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Mega Gengar
 
 ![mega gengar pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 It’s the **best PvP Pokemon GO Master League** with a maximum of 4902 CP. This Pokémon belongs to the Ghost and Poison-type category. Originally, it was from the Kanta region with the Lick and Shadow Ball move set. They are its best moves in Pokémon Go, with 23.43 damage per second, along with dealing with 591.5 damage before fainting. Moreover, it is boosted by cloudy and foggy weather.
 
@@ -392,6 +385,13 @@ This way, players can access the strongest Pokémon from any region and ensure a
 2. This location changer can even hide your current location. It can save you from being tracked and spoofing your location to your desired place.
 3. It can store and record your visited location to simplify further management and re-visiting cases.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Steps To Spoof Location for Using Strongest Pokémon Go for PvP Leagues
 
 To use the powerful Pokemon for the PvP league, you should remove the region limitation with location spoofing. For this purpose, follow the step-by-step guide below and learn to change your virtual location with Wondershare Dr.Fone:
@@ -402,31 +402,24 @@ Establish the connection of your phone to the PC or MacBook upon launching Wonde
 
 ![navigate teleport mode dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Step 2. Find the Location To Spoof Using the Search Bar
 
 Once Teleport Mode is activated, head to the top left side, access the search bar, and type the required location. Then, hit the "Enter" key to mark that location on the map.
 
 ![search for required location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Step 3. Adjust the Pin Location and Confirm Your Choice
 
 Following this, verify the location information displayed on the screen. Use the "Move Here" button to confirm your location, which also changes the location of your smartphone.
 
 ![confirm select location to move](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - Step 4. Try the One-Route Function for Destination Location
 
@@ -516,6 +509,13 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Entering the GameShark Pokémon Emerald Master Ball cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4 -** Now proceed and enter the master ball code. The small cod will have to be enabled before you can switch on the Pokémon Emerald Master Ball GameShark cheat code. To do this, Go to the description and then enter the master code. Now you need to paste in the following into the “Code Field”.  
 **D8BAE4D9 4864DCE5**
 
@@ -553,6 +553,13 @@ Having a lot of friends is not what gets you XP, but the quality of friends that
 
 Timing the way your friendship levels up, and then dropping a Lucky Egg will hugely boost your XP. However, you can only use this process once for every friend per day. This method is great but it would take you 3 months for any friend to become a Best Friend.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Mass Raids
 
 Raiding Gyms can get you a lot of XP. This is more so when you go for Legendary Raids. You can get up to 10,000 XP for getting into a Legendary Raid. This becomes 20,000 XP if you have a Lucky Egg and 40,000 XP if you use a double XP event together with a Lucky Egg.
@@ -564,13 +571,6 @@ Raiding Gyms can get you a lot of XP. This is more so when you go for Legendary 
 - Fix up a Raid Train, which is the process of moving from one Raid to another as a group, and this allows you to Raid as much as possible in a short time.
 
 Do as many of these Raids as you can.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mass catching and Mass evolving
 
@@ -618,22 +618,24 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-leading-8-spots-for-accessing-free-high-quality-3d-text-files/"><u>[New] In 2024, Leading 8 Spots for Accessing FREE High-Quality 3D Text Files</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-cutting-edge-design-top-5-3d-intro-makers/"><u>[Updated] 2024 Approved Cutting-Edge Design Top 5 3D Intro Makers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-proven-strategies-for-masterful-fisheye-photography/"><u>[Updated] 2024 Approved Proven Strategies for Masterful Fisheye Photography</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-guide-for-iphone-7-lock-screen-by-drfone-ios/"><u>Complete Guide For iPhone 7 Lock Screen</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-tecno-spark-20-pro-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Tecno Spark 20 Pro Face Lock?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-100-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor 90 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Google Pixel 8? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-unlock-your-iphone-15-learn-all-4-methods-drfone-by-drfone-ios/"><u>In 2024, How Do You Unlock your iPhone 15? Learn All 4 Methods | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Poco C51? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/the-ultimate-quicktime-repair-companion-stellar/"><u>The Ultimate QuickTime Repair Companion: Stellar</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/visual-deception-hiding-data-in-windows-images-without-trace/"><u>Visual Deception: Hiding Data in Windows Images Without Trace</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-the-significant-shifts-in-metas-privacy-rules/"><u>What Are the Significant Shifts in Meta's Privacy Rules?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-advanced-tips-for-capturing-iphone-7-content-for-2024/"><u>[New] Advanced Tips for Capturing iPhone 7 Content for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-add-transitions-on-inshot-app/"><u>[Updated] How to Add Transitions on Inshot App?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-infusing-instagram-reels-with-tunes-and-narration/"><u>[Updated] In 2024, Infusing Instagram Reels with Tunes & Narration</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-bite-sized-video-knowledge-now/"><u>2024 Approved Bite-Sized Video Knowledge Now</u></a></li>
+<li><a href="https://techtrends.techidaily.com/26-premier-complimentary-registry-maintenance-programs-for-pc-year-2024/"><u>26 Premier Complimentary Registry Maintenance Programs for PC (Year 2024)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-setup-trustworthy-usb-fingerprint-readers-the-easy-way-for-secure-access/"><u>Download and Setup: [TRUSTWORTHY] USB Fingerprint Readers - The Easy Way for Secure Access</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-c53-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-essential-iphone-techniques-for-video-downsizing/"><u>In 2024, Essential iPhone Techniques for Video Downsizing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/movavis-cost-free-service-convert-your-3gp-files-into-high-quality-mjpeg-images-instantly/"><u>Movavi's Cost-Free Service: Convert Your 3GP Files Into High-Quality MJPEG Images Instantly</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-best-of-both-worlds-top-10-free-and-paid-android-video-editors-for-2024/"><u>New The Best of Both Worlds Top 10 Free and Paid Android Video Editors for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-advice-expert-guides-and-reviews/"><u>Tom's Tech Advice: Expert Guides and Reviews</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-nubia-red-magic-9-pro-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Nubia Red Magic 9 Pro? Fixed | Dr.fone</u></a></li>
 </ul></div>
 
