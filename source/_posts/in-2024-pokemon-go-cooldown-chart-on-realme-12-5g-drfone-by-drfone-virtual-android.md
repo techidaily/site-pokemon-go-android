@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Realme 12 5G | Dr.fone
-date: 2024-11-09T16:47:36.440Z
-updated: 2024-11-17T08:09:59.909Z
+date: 2024-11-25T21:48:41.819Z
+updated: 2024-11-26T17:43:01.268Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,6 +24,10 @@ What is a cooldown? Cooldown Time restricts to stop a player from repeating mult
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -50,6 +54,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -97,13 +105,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -149,25 +150,15 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -202,6 +193,10 @@ Read on to understand the reasons why your device is unable to run the iPogo mod
 - Another plausible reason could be that your iPogo application has not been properly installed. It is widely agreed upon that iPogo is a difficult app to install as it involves going through complex steps making it easier for mistakes to be made, eventually leading to a complete breakdown of the software.
 - Since installing iPogo is a cumbersome process, players would often resort to using downloading hacks to get the job done faster. However, not all such hacks can be relied upon as they may end up jail breaking your device or make your version of the app even more unstable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Some Easy Solutions for fixing the “iPogo not working” issue
 
 It is often said that short cuts can cut you short or in this case, hacked! Disrupting the framework of your device is not price you should pay for enjoying the game at its best. Although, there are other safer and more reliable solutions to making the iPogo app run better on your iOS device. Let’s take a brief peak at some of them.
@@ -229,6 +224,10 @@ If using the iPogo mod to enhance your gaming experience on Pokémon Go seem les
 - Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
 - Simulate your avatar’s movements to travel on a determined route of your choice.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step by Step Tutorial
 
 You can follow these easy steps to teleport to anywhere in the world with the help of drfone Virtual Location.
@@ -239,31 +238,21 @@ Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, inst
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Plug iPhone**
 
 Now, grab your iPhone and get it connected with the PC using the lightening cable. Once done, hit on “Get Started” to begin spoofing.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Check Location**
 
 You will notice a map on the screen now. As it comes, you got to click on ‘Centre On’ to accurately pin point the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Enable Teleport Mode**
 
@@ -276,6 +265,10 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, the location is changed. You can now open any location based app on your iPhone and check the location. It will show the location you have selected.
 
@@ -320,6 +313,10 @@ For instance, if you’re a Rank 2, you can earn around 2,000 Stardust points by
 Another method is to play with your friends, and the Stardust points can vary from 300 to 1000, depending on your opponent’s rank.
 
 ![pvp in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Opening Gifts
 
@@ -366,10 +363,7 @@ If you defeat the boss, you’ll also get a chance to catch the Pokemon, which c
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
@@ -390,6 +384,10 @@ For instance, if you’re on level 45, you can head to the Go Battle League 45 t
 
 ![pokemon go research tasks](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### By Visiting the Gym
 
 While on your daily walk in the Pokemon world, you should check out whether you can find some Gyms around you. If you do, stop by to hang around with some of the most precious Pokemon characters and give them a berry while you’re there.
@@ -397,13 +395,6 @@ While on your daily walk in the Pokemon world, you should check out whether you 
 You’ll earn 20 Stardust points for each berry you give a Pokemon. It may be the easiest way to earn and use these points for your experience. Plus, you’ll meet new characters and fully experience what the Pokemon world offers.
 
 ![giving berries to pokemon characters](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Claim Stardust Quickly in Pokemon Go by Using Location Spoofing
 
@@ -424,13 +415,6 @@ Virtual Location will allow you to head to any city in the world, collect the ra
 3. Click the **Start Moving**or **Move Here**
 
 ![start moving](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4. You can also click on the Joystick feature to control your movements.
 
@@ -458,19 +442,19 @@ If you’re searching for ways to collect these items as quickly as possible and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-efficiently-capture-whatsapp-chat-a-step-by-step-tutorial/"><u>[New] In 2024, Efficiently Capture WhatsApp Chat A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-highlighted-viewer-insights-unveiled/"><u>[Updated] 2024 Approved Highlighted Viewer Insights Unveiled</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-expert-tips-to-maximize-creativity-and-efficiency-in-obs-edits/"><u>[Updated] Expert Tips to Maximize Creativity and Efficiency in OBS Edits</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-unraveling-robloxs-close-up-mysteries-for-gamers/"><u>[Updated] Unraveling Roblox's Close-Up Mysteries for Gamers</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Sony Xperia 1 V | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-13-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone 13 iCloud Lock</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-oneplus-ace-2-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead OnePlus Ace 2 Safely | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Tecno Spark 20? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/laughlens-lab-snapsatiricals/"><u>LaughLens Lab SnapSatiricals</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/social-media-live-war-fb-live-and-yt-live-vs-twitter-spaces-for-2024/"><u>Social Media Live War FB LIVE & YT Live Vs. Twitter Spaces for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-perfect-your-iphone-pics-with-these-10-best-camera-apps-x-8/"><u>[New] Perfect Your iPhone Pics with These 10 Best Camera Apps (X, 8)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-pick-drones-compatible-with-gopro-cameras/"><u>[Updated] In 2024, Top Pick Drones Compatible with GoPro Cameras</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-poco-c51-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Poco C51</u></a></li>
+<li><a href="https://discover-data.techidaily.com/hp-hddos/"><u>HP HDD取り換え後にOSをリファビッシュする正しい方法 - 詳細ガイド</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-blueprinting-a-dynamic-tiktok-end-credits-rollout/"><u>In 2024, Blueprinting a Dynamic TikTok End-Credits Rollout</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721457254046-the-critical-need-for-instant-installation-of-ios-153-heres-why/"><u>The Critical Need for Instant Installation of iOS 15.3 – Here's Why!</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlock-your-lost-iphone-xs-potentials-with-these-tricks-for-2024/"><u>Unlock Your Lost iPhone X's Potentials with These Tricks for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-100-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-the-internets-unintended-symphony-glitch-sounds-collection-downloadable/"><u>Updated The Internets Unintended Symphony Glitch Sounds Collection Downloadable</u></a></li>
 </ul></div>
 

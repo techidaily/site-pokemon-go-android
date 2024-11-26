@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Realme 12 Pro+ 5G | Dr.fone
-date: 2024-11-14T07:35:52.227Z
-updated: 2024-11-17T08:51:48.715Z
+date: 2024-11-19T18:16:50.963Z
+updated: 2024-11-26T16:41:22.307Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,10 +26,7 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
@@ -37,6 +34,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -104,6 +105,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -143,18 +148,15 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Voila! You have teleported your location to the desired place.
 
@@ -176,13 +178,6 @@ iSpoofer was discontinued two years ago, around 2019 and still remains out of ac
 
 ![iSpoofer-for-Android-and-iOS-pic-1](https://images.wondershare.com/drfone/2020/2020/iSpoofer-for-Android-and-iOS-pic-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The initial version remains unsupportive and shows ‘Maintenance’ pop up while you cannot download any new versions from their website. It still contains the old links on the site which are of no use to the current players. Tackling with too much will also result in account ban as Pokemon Go has strict rules that no third party applications will be entertained.
 
 Since we haven’t heard from iSpoofer in 2020, we can assume that they won’t be here for long and it would be a wise choice to look for alternatives.
@@ -193,6 +188,10 @@ Since we haven’t heard from iSpoofer in 2020, we can assume that they won’t 
 
 It is hard to handle change especially when you are an iPhone user. There aren’t many apps that you can find on the App Store and you never know their authenticity. Even if you find a good location spoofer, you never know how long that is going to keep your location changed or if it will remain undetected. That being said - your first obvious option for spoofing Pokemon Go would be -
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Any App from the Apple App Store
 
 If the iSpoofer for Pogo is not working, then you can make a simple search for some other GPS location changer on the App store and they would help you for a short time. If you are lucky then they might remain undetected for a very long time. However, we won’t suggest this to be the most stable option so we can move ahead to the next best thing for the iOS users.
@@ -200,17 +199,7 @@ If the iSpoofer for Pogo is not working, then you can make a simple search for s
 ![iOS-App-Store-pic-3](https://images.wondershare.com/drfone/2020/2020/iOS-App-Store-pic-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### In-built spoofing with VPNs
@@ -220,6 +209,10 @@ Virtual Private Networks are known for masking your IP on the world wide web but
 The spoofer will help you play Pokemon Go for sure though I cannot give you assurance about other games in the market. However, the detection rate is a problem because Pokemon Go is capable of detecting these VPNs and blocking your account if you don’t play your cards well. That is, you need to be careful about where you are ‘changing’ your location to (not too far).
 
 ![VPN-Pokemon-GO-pic-4](https://images.wondershare.com/drfone/2020/2020/VPN-Pokemon-GO-pic-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are looking for something long lasting and something that won’t pose a detection problem, then I would suggest you to go for WOnder share’s Dr.Fone. It is affordable, has some remarkable features and works great for both Android and iOS devices.
 
@@ -245,13 +238,6 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 ![Drfone-Location-map-on-globe-pic-7](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3** \- Then you can change your location from your current place to anywhere you want to go. This can be quite close or even as far as some other country. However, for Pokemon Go purposes, keep it close. Then click on ‘Move Here’.
 
 ![Move-Here-drfone-pic-8](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
@@ -259,13 +245,6 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 **Step 4** \- Your location change will happen automatically and within a few minutes, the new location will be registered on every site that you go to. So, you are covered!
 
 ![New-Location-on-map-drfone-pic-9](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3 - Tips to avoid being Banned
 
@@ -275,6 +254,10 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 - Try not to make abrupt location changes - keep it nearby initially and slowly try to increase your radius. An abrupt change can draw attention.
 
 ![Quick tips-for-no-ban-pic-10](https://images.wondershare.com/drfone/2020/2020/Quick%20tips-for-no-ban-pic-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That being said, there aren’t any well-researched and ground rules as to how your spoofing should be so that you remain undetected. All we can do is pick up tips from someone else’s expertise. Apps like Dr.Fone will help you change your [virtual location](https://drfone.wondershare.com/virtual-location/fake-snapchat-location.html) without getting your account banned as they are designed to do this very job with perfection.
 
@@ -292,24 +275,25 @@ Dratini undergoes two different evolutions
 
 The first un-evolved version is the serpentine Dratini that looks like a snake and continues shedding its skin as it grows. When you get to level 30, Dratini evolves into Dragonair, and at level 55 it becomes Dragonite
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Dragonair
 
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
 
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Dragonite
 
 This is a Pokémon character that truly resembles a dragon and is the second evolution of Dratini. It has a yellow thick body, and a couple of antennae that come out of its forehead. It has a striated underbelly. The body is quite large when compared to the small wings.
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Where can I find the Dratini nest?
 
@@ -400,14 +384,22 @@ When you need to, you can teleport your device to an area where Dratini is popul
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-gaming-monitors-for-xbox-series-x-a-buyers-guide/"><u>[New] 2024 Approved Top Gaming Monitors for Xbox Series X - A Buyer's Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-fb-watch-icon-recovery-tips-and-tricks/"><u>[New] FB Watch Icon Recovery - Tips and Tricks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-insider-wisdom-how-to-effortlessly-upload-photosvideos-in-win11-for-2024/"><u>[Updated] Insider Wisdom How to Effortlessly Upload Photos/Videos in Win11 for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/dark-sky-iphone-tips-and-tricks/"><u>Dark Sky iPhone Tips & Tricks</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Realme Narzo N53? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-most-impactful-danish-movies-to-learn-the-language-proficiently/"><u>The Most Impactful Danish Movies to Learn the Language Proficiently</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-poco-c65-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/exposing-the-concealed-managing-windows-11-icons/"><u>Exposing the Concealed: Managing Windows 11 Icons</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-infinix-smart-8-hd-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Infinix Smart 8 HD Lock Screen Password</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-oppo-reno-8t-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Oppo Reno 8T Device</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-into-google-stadias-capabilities-identifying-room-for-development/"><u>Insights Into Google Stadia's Capabilities: Identifying Room for Development</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-iphone-dictation-issues-a-comprehensive-guide-with-five-key-fixes/"><u>Overcoming iPhone Dictation Issues: A Comprehensive Guide with Five Key Fixes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-editors-codex-innovations-in-youtube-video-formatting-for-2024/"><u>The Editor's Codex Innovations in Youtube Video Formatting for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/tips-and-tricks-for-efficient-use-of-steams-switch-controllers-for-2024/"><u>Tips & Tricks for Efficient Use of Steam’s Switch Controllers for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-the-ultimate-list-10-best-free-green-screen-apps-for-mobile-phones/"><u>Updated 2024 Approved The Ultimate List 10 Best Free Green Screen Apps for Mobile Phones</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x50-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor X50? | Dr.fone</u></a></li>
 </ul></div>
 

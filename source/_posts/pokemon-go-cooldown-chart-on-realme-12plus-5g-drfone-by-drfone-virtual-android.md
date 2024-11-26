@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Realme 12+ 5G | Dr.fone
-date: 2024-11-09T16:22:59.107Z
-updated: 2024-11-17T07:25:57.562Z
+date: 2024-11-23T16:07:14.746Z
+updated: 2024-11-26T20:32:02.560Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,25 +25,15 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -82,6 +72,10 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Actions that DO NOT trigger cooldown?
 
 On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
@@ -116,10 +110,7 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
@@ -163,6 +154,10 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
@@ -189,13 +184,6 @@ Before we get into the details, it is important to know the basics of this fake 
 
 ![Pokemon Go Joystick](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Therefore, with the help of a Pokemon Go hack APK like this, players don’t have to leave their house to catch Pokemons. They can also participate in raids to hatch eggs from the comfort of their home.
 
 ## **Part 2: What are the Benefits of Playing Pokemon Go with a Joystick?**
@@ -221,6 +209,10 @@ There are several reasons why Pokemon Go joystick iOS/Android hacks are so popul
 - Have a Better Gaming Experience
 
     Overall, a Pokemon Go spoofing iOS/Android solution will provide tons of add-on features that would improve your gaming experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 3: What are the Risks of Using Pokemon Go Joysticks?**
 
@@ -268,6 +260,10 @@ Evolution items play a significant role in evolving certain species in the Poké
 
 ## Part 1. Moon Stone Pokémon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is Moon Stone Pokémon?
 
 Moon Stone is an evolution stone introduced in generation I. This peculiar stone is used to evolve certain species of Pokémon. In terms of appearance, Moon Stone Pokémon is elliptical and black as the night sky.
@@ -276,23 +272,9 @@ Moon Stone is an evolution stone introduced in generation I. This peculiar stone
 
 The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to Lake of Outrage in the Wild area. You will see a body of water on your left and a watt trader standing near it. To cross this water body, you will have to unlock the Rotom Bike from Route 9. When you manage this, check under the eight stones and you might be lucky that one of them might yield a Moon Stone. Also, you can navigate to the Dusty Bowl in the Wild Area. Here, you will find barren stones between a grassy rock and wheat field.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pokémon that Evolve with a Moon Stone
 
 Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Nidorina
 
@@ -301,6 +283,10 @@ Nidorina is a poison type Pokémon that was introduced in Generation I. it looks
 ### 2\. Nidorino
 
 Nidorino is a male counterpart of Nidorina. This poison-type Pokémon debuted in Generation I and looks like a rabbit. It has a red-purple color with some dark spots spread across the body. Sharp teeth protrude with large upper jaws and spikes. This Pokémon is quick to anger. Nidorino evolved from Nidoran as of level 16 and can evolve to Nidoking using the Moon Stone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Clefairy
 
@@ -314,6 +300,10 @@ This is a normal/fairy type of Pokémon that was also introduced in Generation I
 
 This is a normal type Pokémon that was introduced in Generation II. This Pokémon is pink and looks like a cat with a cute charm ability. Skitty can evolve to Delcatty using the Moon Stone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Munna
 
 Munna is a psychic-type Pokémon that was introduced in Generation V. It is a small Pokémon with a pink round body having purple flower painting on its back. With the use of Moon Stone, Munna evolves into a Musharna.
@@ -321,13 +311,6 @@ Munna is a psychic-type Pokémon that was introduced in Generation V. It is a sm
 ## Part 2. Tricks and Hacks to Get Moon Stone Pokémon
 
 As you have seen above, getting a Moon Stone is not an easy ride. It involves lots of trials and there is no guarantee to get it. But what tricks and hacks can you incorporate to make your hunt seamless? The following are some of the plausible tricks that you can use to easily grab a Moon Stone and add it to your Pokedex.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Use Dr. Fone Virtual iOS Location
 
@@ -343,20 +326,21 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3.** The program will display a new page with three icons at the top-right. Click the third icon to take you to the teleport mode. Again enter the place you want to teleport to in the text field at the top-left of this same window and then hit "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4.** Click "Move Here" from the pop-up that follows to teleport to the location you provided.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Use Android Spoofing Tool- Pgsharp
 
@@ -380,20 +364,18 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-build-and-launch-youtube-video-ads-on-budget-for-2024/"><u>[Updated] Build & Launch YouTube Video Ads on Budget for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-circulation-craft-expert/"><u>[Updated] Circulation Craft Expert</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-guide-to-seamless-videos-with-funimate/"><u>[Updated] Guide to Seamless Videos with Funimate</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-masterful-tantalizing-titles-designer/"><u>[Updated] Masterful Tantalizing Titles Designer</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unveiling-the-power-of-slug-lines/"><u>[Updated] Unveiling the Power of Slug Lines</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/decode-and-repair-stop-error-0x00000n78-phase0-exception-a-step-by-step-strategy/"><u>Decode and Repair STOP Error 0X00000n78 (Phase0 Exception): A Step-by-Step Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/diversifying-outreach-with-deft-multi-group-social-media-techniques/"><u>Diversifying Outreach with Deft Multi-Group Social Media Techniques</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme C67 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme 11 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor X9a? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-honor-magic-5-lite-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Honor Magic 5 Lite? Fixed | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/perspective-analysis-why-owning-an-ipad-makes-sense-economically/"><u>Perspective Analysis: Why Owning an iPad Makes Sense Economically</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-2024-approved-best-hatsune-miku-ai-voice-generators-for-all-times/"><u>Updated 2024 Approved Best Hatsune Miku AI Voice Generators for All Times</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-c67-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme C67 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-making-money-with-videos-strategies-for-the-aspiring-vlogger-for-2024/"><u>[Updated] Making Money with Videos Strategies for the Aspiring Vlogger for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-pathway-to-perfect-zoom-communication-unlocking-effective-online-interactions-for-2024/"><u>[Updated] The Pathway to Perfect ZOOM Communication Unlocking Effective Online Interactions for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-infinix-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Infinix FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-honor-x9b-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Honor X9b to Protect Your Individual Information</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-and-simple-steps-to-downloading-the-latest-scansnap-driver-for-windows-pcs/"><u>Quick and Simple Steps to Downloading the Latest ScanSnap Driver for Windows PCs</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-fixing-the-chrome-plugin-failed-to-load-issue-in-windows-10/"><u>Resolved: Fixing the 'Chrome Plugin Failed to Load' Issue in Windows 10</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-all-new-un65ru8000fxza-by-samsung-smart-innovation-enclosed-in-a-masterpiece-of-display-artistry/"><u>The All-New UN65RU8000FXZA by Samsung: Smart Innovation Enclosed in a Masterpiece of Display Artistry</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor 100 Pro | Dr.fone</u></a></li>
 </ul></div>
 

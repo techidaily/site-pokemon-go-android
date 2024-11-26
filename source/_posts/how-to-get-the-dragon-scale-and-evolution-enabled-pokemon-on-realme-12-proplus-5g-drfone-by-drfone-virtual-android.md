@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro+ 5G? | Dr.fone
-date: 2024-11-09T18:00:55.075Z
-updated: 2024-11-16T16:50:53.650Z
+date: 2024-11-20T19:19:25.366Z
+updated: 2024-11-26T20:11:35.768Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -52,28 +52,33 @@ You can click the ‘Get Started’ button to initiate the action as soon as you
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Mirroring Motion amid steps:**
 
 Unfold the top right area of the initial option before reaching Dr. Fone's GUI, which permits you to imitate maneuver amid the two spots. Pick the positioning pin and click on the ‘transfer here’ button in the search bar.
 
 ![virtual location 08](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
 
 ![virtual location 09](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The change location will act as genuine for the Pokémon Go application, and it will presume that the player is moving in between the two points you chose on the Dr. Fone GUI screen. At the foot of the screen, the rate of motion can also be modified, making use of the gliding menu. By following these steps, you can use the fake motion of the position of Dr. Virtual Fone without needing to understand it, and your app will not be banned.
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Movement Simulation between more than two spots:**
 
@@ -84,17 +89,7 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to get the dragon scale on Pokémon Go?
@@ -103,23 +98,9 @@ Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, w
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Planning to Use a Pokemon Go Joystick on Realme 12 Pro+ 5G?
 
@@ -137,14 +118,11 @@ Before we get into the details, it is important to know the basics of this fake 
 
 ![Pokemon Go Joystick](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Therefore, with the help of a Pokemon Go hack APK like this, players don’t have to leave their house to catch Pokemons. They can also participate in raids to hatch eggs from the comfort of their home.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 2: What are the Benefits of Playing Pokemon Go with a Joystick?**
 
@@ -180,6 +158,10 @@ While there are numerous benefits of using a Pokemon Go joystick, its constant u
 
     ![Pokemon Go Account Ban](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
     To avoid the banning of your Pokemon Go account, you can consider a “cooldown duration”. This simply suggests waiting for a specific duration before changing your location in the game.
 
     ![Pokemon Go Cooldown Duration](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-4.jpg)
@@ -210,13 +192,6 @@ I hope that after following this guide, you would be able to know more about the
 
 [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking, it will let you enjoy a dedicated GPS joystick and simulate your device movement remotely.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Most Useful Tips for Pokemon Go Ultra League On Realme 12 Pro+ 5G
 
 The Ultra League is one of the three leagues in the Pokemon Go Battle League. It is a league where trainers can battle with their Pokemon that have a CP of 2500 or less. The Ultra League is a great place to test out your Pokemon and see how they fare against other trainers. Here are some tips to help you succeed in the Ultra League.
@@ -228,10 +203,7 @@ Here comes the Pokemon Go Ultra League! Now you can battle other strangers, frie
 ![Pokemon Go Ultra League](https://drfone.wondershare.com/2020/Pokemon-Go-Ultra-League.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Isn’t it getting too enticing to dive in? What’s next? Before you set yourself on the ground, gear up for knowing the most useful tips for Pokemon Go Ultra League. You will be thankful for these tips later!
@@ -276,11 +248,19 @@ Charizard among the Pokemon Go ultra league tier list shines as it balances effo
 
 Neglecting the fighting, which is not as prevalent in the ultra League Pokemon Go as it was in the Great League, Machamp is still strong enough, especially when you are looking for something to round off some of the powerful picks as a counter option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Alolan Muk
 
 ![best Ultra League Pokemon](https://drfone.wondershare.com/2020/best-Ultra-League-Pokemon.jpg)
 
 One of the finest defenders in Pokemon go ultra league team, Alolan Muk has the potential to be a vital counter member. Featuring in 7 KM Eggs, the Pokemon is a poison/ dark type.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Snorlax
 
@@ -310,6 +290,10 @@ Before playing best ultra league pokemon game, users should connect to the desk 
 
 ![best PVP pokemon go ultra league](https://drfone.wondershare.com/2020/best-PVP-pokemon-go-ultra-league.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4.** Enter a number in the new popup box to describe the number of times you want to move back and forth amid the two places. Then, finally, click “March” to begin simulating the movement.
 
 Now, you can easily view your position moving on the map with the cycle’s speed.
@@ -330,20 +314,16 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-hot-hands-on-10-must-have-vr-peripherals/"><u>[New] In 2024, Hot Hands-On 10 Must-Have VR Peripherals</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhance-visual-appeal-edit-videos-for-instagram-success/"><u>[Updated] Enhance Visual Appeal Edit Videos for Instagram Success</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/compose-your-story-best-mobile-annotation-tools-for-2024/"><u>Compose Your Story Best Mobile Annotation Tools for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/essential-errors-to-dodge-mastering-chatgpt-for-effective-content-creation/"><u>Essential Errors to Dodge: Mastering ChatGPT for Effective Content Creation</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-elevate-your-edit-skills-with-these-pro-tiktok-tricks/"><u>In 2024, Elevate Your Edit Skills with These Pro TikTok Tricks</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-unsteady-to-steady-tips-for-fixing-gopro-video-jitters/"><u>In 2024, From Unsteady to Steady Tips for Fixing GoPro Video Jitters</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-viral-video-vanguard-youtubes-powerful-personalities/"><u>In 2024, Viral Video Vanguard YouTube's Powerful Personalities</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solve-your-rec-room-microphone-problems-on-pc-a-comprehensive-guide/"><u>Solve Your Rec Room Microphone Problems on PC: A Comprehensive Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor X7b? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme Narzo N55 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications/"><u>[New] 2024 Approved A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-the-ultimate-choice-for-affordable-virtual-meetings-online/"><u>[Updated] 2024 Approved The Ultimate Choice for Affordable Virtual Meetings Online</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-vivo-v30-lite-5g-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Vivo V30 Lite 5G FRP Bypass Instantly</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme V30T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-poco-c50-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-xr-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone XR</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-simultaneous-capture-excellence-with-iphones-features/"><u>In 2024, Simultaneous Capture Excellence with iPhone's Features</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovation-surge-gpt-4-ais-new-frontier/"><u>Innovation Surge: GPT-4, AI's New Frontier</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722787216906-tcls-gamechanger-the-50s425-50-roku-smart-tv-2019-in-all-its-value-and-features-revealed/"><u>TCL's Gamechanger: The 50S425 50 Roku Smart TV (2019) in All Its Value and Features, Revealed!</u></a></li>
 </ul></div>
 

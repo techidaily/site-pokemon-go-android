@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco M6 5G | Dr.fone
-date: 2024-07-14T10:10:46.595Z
-updated: 2024-07-15T10:10:46.595Z
+date: 2024-11-25T17:08:15.262Z
+updated: 2024-11-26T17:02:46.073Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,6 +24,10 @@ What is a cooldown? Cooldown Time restricts to stop a player from repeating mult
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -51,6 +55,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -68,9 +76,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Actions that DO NOT trigger cooldown?
 
 On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
@@ -133,9 +138,6 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
@@ -154,21 +156,27 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
-
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Planning to Use a Pokemon Go Joystick on Poco M6 5G?
 
 Pokemon Go is probably one of the most popular location-based augmented reality games that encourage us to step out. Sadly, players can’t explore their surroundings or travel to play the game all the time. That’s why they often take the assistance of a Pokemon Go joystick. While Pokemon joysticks are extremely popular, they have some downfalls as well if you don’t pick the right tool. Therefore, in this post, I will list the risks and benefits of using a Pokemon Go joystick hack to help you make up your mind.
 
 ![Pokemon Go Joystick Banner](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 1: Pokemon Go Joystick 101: Things to Know**
 
@@ -180,11 +188,12 @@ Before we get into the details, it is important to know the basics of this fake 
 
 ![Pokemon Go Joystick](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Therefore, with the help of a Pokemon Go hack APK like this, players don’t have to leave their house to catch Pokemons. They can also participate in raids to hatch eggs from the comfort of their home.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Part 2: What are the Benefits of Playing Pokemon Go with a Joystick?**
 
 There are several reasons why Pokemon Go joystick iOS/Android hacks are so popular. After all, they give us the convenience to play our favorite game without breaking a sweat. Here are some of the major reasons why Pokemon Go joystick hacks are becoming so popular:
@@ -319,6 +328,10 @@ The best moves of Shadow Machamp are Counter and Dynamic Punch, which deliver hi
 | --- | --- | --- |
 | Fighting | Bug, Dark, Rock | Fairy, Flying, Psychic |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Lickitung
 
 ![lickitung pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-6.jpg)
@@ -355,6 +368,10 @@ The recommended moveset for Steelix includes Iron Tail and Heavy Slam, providing
 | --- | --- | --- |
 | Steel and Ground | Dragon, Bug, Rock, Fairy, Psychic, Steel, Electric, Flying, Normal, Poison | Fighting, Fire, Ground, Water |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Gligar
 
 ![gligar pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-9.jpg)
@@ -369,9 +386,6 @@ Gligar uses its clawed hind legs and large pincers to grab onto its prey's face,
 
 ### 8\. Carbink
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![carbink pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-10.jpg)
 
 Carbink is a Rock and Fairy-type Pokémon in Pokémon GO, originating from the Kalos region. It's weak against Steel, Grass, Ground, and Water-type moves and has a max CP of 1658. The weather conditions that boost this Pokémon include partly cloudy and cloudy. This **best PvP Pokémon** is also known as Jewel Pokémon due to its ability to create diamonds within its body.
@@ -395,11 +409,13 @@ Furthermore, Wondershare Dr.Fone offers advanced GPS spoofing features for Poké
 3. **Historical Records:**You can easily keep records and save your past visited locations for easy re-selection, saving you time and effort.
 4. **Keyboard Convenience:**Users can easily control the player using W, A, S, and D keyboard keys, providing a user-friendly experience for PC players.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step-by-Step Guide To Spoof Your Pokémon GO Location Using Wondershare Dr.Fone
 
 You are now fully aware of some of the strongest and **best Pokémon for PvP** and how you can enjoy these battles. So, let's learn about how you can spoof your GPS location without moving from your place at all:
-
-
 
 - Step 1: Access Teleport Mode in Dr.Fone - Virtual Location
 
@@ -411,9 +427,6 @@ Launch [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/pho
 
 When you enable Teleport Mode, use the search bar at the top left. Here, enter your desired location and press "Enter" to mark it on the map. Afterward, verify the location details on the screen and click "Move Here" to confirm and update your phone's location.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![search location and move](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 - Step 3: Set Your Destination Through Routes (If Required)
@@ -421,6 +434,10 @@ When you enable Teleport Mode, use the search bar at the top left. Here, enter y
 Go back to the top-right section and pick either the "One-Stop Route" or "Multi-Stop Route" feature. Alternatively, you can also use the joystick to guide yourself to the destination. After teleporting, just tap any spot on the map as your destination.
 
 ![activate one-stop route feature](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Step 4: Start the Simulation To Spoof the GPS
 
@@ -449,9 +466,6 @@ Q3. How is the winner determined in the Pokémon GO PvP battles?
 
 In conclusion, PvP battles are of great importance to enjoying the true perks of Pokemon GO. For this purpose, we have introduced you to some of the strongest and most useful Pokemons that exist. Now, it is up to you to choose the **best Pokemon for PvP Pokemon GO** if you aim to enjoy the lead in the game. Also, we have discussed a wonderful tool, Wondershare Dr.Fone, by which you can easily fake your location and have an advantage in the game.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -464,9 +478,21 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-earning-mastery-executing-a-3-step-procedure-to-evaluate-your-youtube-income/"><u>[Updated] Earning Mastery Executing a 3-Step Procedure to Evaluate Your YouTube Income</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-skys-palette-explored-top-websites-showcasing-hd-imagery/"><u>[Updated] Sky's Palette Explored - Top Websites Showcasing HD Imagery</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/1-wie-wandelt-man-ein-buch-von-adobe-content-server-zu-einem-epub-format-um/"><u>1. 'Wie Wandelt Man Ein Buch Von Adobe Content Server Zu Einem EPUB-Format Um?'</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-integrating-songs-in-microsofts-presentation-maker/"><u>2024 Approved Step-by-Step Integrating Songs in Microsoft's Presentation Maker</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-on-your-apple-iphone-6-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID On Your Apple iPhone 6</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-y77t-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo Y77t Through Google Earth?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/key-to-unveiling-windows-11-security-dashboard/"><u>Key to Unveiling Windows 11 Security Dashboard</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/recommended-frame-rates-for-professional-slow-motion-videos/"><u>Recommended Frame Rates for Professional Slow-Motion Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-11-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme 11 5G? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

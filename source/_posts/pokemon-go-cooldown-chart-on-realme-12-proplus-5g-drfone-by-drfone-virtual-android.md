@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Realme 12 Pro+ 5G | Dr.fone
-date: 2024-11-14T18:21:58.804Z
-updated: 2024-11-17T06:23:09.254Z
+date: 2024-11-20T22:08:46.439Z
+updated: 2024-11-26T17:29:36.059Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -51,13 +51,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -74,13 +67,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -128,13 +114,6 @@ It is a very simple-to-use application and provides robust results if you follow
 
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
 
 Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how to teleport in Pokémon Go](https://drfone.wondershare.com/virtual-location/teleport-in-pokemon-go.html) safely? Meet Dr.Fone - Virtual Location! This powerful GPS location spoofing software lets you use a fake location without risking a ban. No jailbreak is required. Unlock the Pokémon Go map in restricted areas, and enjoy keyboard and joystick modes for seamless movement.
@@ -154,15 +133,16 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
 
@@ -175,6 +155,10 @@ Voila! You have teleported your location to the desired place.
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -228,6 +212,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Seviper:** Currently America and Africa. Switches with Zangoose.
 - **Zangoose:** Currently in Europe, Australia, and Asia. Switches with Seviper.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Gen 4/ Sinnoh Pokémon
 
 ![sinnoh pokemon](https://images.wondershare.com/drfone/2020/202010/sinnoh-pokemon.jpg)
@@ -240,13 +228,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Azelf:** Available on select raid periods. America.
 - **Mesprit:** Available on select raid periods. Middle East, Africa, and India.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Gen 5/ Unova Pokémon
 
 ![unova pokemon](https://images.wondershare.com/drfone/2020/202010/unova-pokemon.jpg)
@@ -255,6 +236,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Pansage:** Asia/Pacific.
 - **Heatmor:** Western Hemisphere. Switches with Durant.
 - **Durant:** Eastern Hemisphere. Switches with Heatmor.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to use Dr.Fone - Virtual Location to catch Regional Pokémon
 
@@ -284,6 +269,10 @@ When the location map opens, click on ‘Centre On’ to accurately pinpoint the
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Activate teleport mode**
 
 Now, click on the icon given in the upper right-hand corner. Enter your desired location on the upper right field and then click ‘Go’.
@@ -297,13 +286,6 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Tips to help catch Regional Pokémon
 
@@ -339,18 +321,15 @@ There are lots of sensible reasons why you should engage in the Pokemon Go PvP r
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Doing the same thing over and over sometimes frustrates us. Therefore, playing Pokemon Go PvP rank battles for a change of scenery is great. It somehow gives us a perfect dose of distraction at times when we feel bored and unmotivated.
 
 ### It allows players to learn new gaming skills and improve their techniques
 
 Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly fun activities. However, these tasks are not enough to give players a very constructive gaming training. You must participate in certain undertakings like the Pokemon Go PvP rank battles to hone your gaming skills efficiently. Don’t worry. You can take it slowly and try to work your way up one step at a time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It serves as your key to special tournaments and worldwide events
 
@@ -377,6 +356,10 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 ![gbl reward track](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 5:** Finalize your three-member Pokemon team and start battling against another trainer you match with.
 
 ## Part 3. Explained: Pokemon PvP Ranking in Go Battle League
@@ -384,6 +367,10 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 The lowest Pokemon PvP ranking in the Go Battle League is Rank 1. The ranks go higher as the player accomplishes more battles going forward. However, you have to win each of them if you wish to increase your Battle Ratings quickly. It is important to keep tabs on your ratings because it’s among the crucial components of Pokemon PvP ranking.
 
 ![legend gbl rank](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-6.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Go Battle League features a total of 24 ranks starting from Rank 1. The last four high ranks are called Ace, Veteran, Expert, and Legend. With regard to the reward, the set of items that winners will receive varies from one rank to another. More prizes are at stake as you climb the ladder. Thus, work your way up until you become a legend in the Pokemon Go PvP rank battles. You can surely do it. Just trust yourself enough and implement an efficient game plan. By any means possible, it will certainly work magic.
 
@@ -417,10 +404,7 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -441,15 +425,18 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ranch-raiders-best-friendly-farmers-game-roster/"><u>[New] 2024 Approved Ranch Raiders Best Friendly Farmer's Game Roster</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-quick-guide-to-screen-capture-on-laptops-and-chromeos/"><u>[New] Quick Guide to Screen Capture on Laptops and ChromeOS</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1-ultimate-guide-to-user-friendly-bandw-video-editing-top-software-picks/"><u>1. Ultimate Guide to User-Friendly B&W Video Editing: Top Software Picks</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-11-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-tips-for-crafting-gifs/"><u>Essential Tips for Crafting GIFs</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723211773409-no-luck-with-your-pdf-printer-let-us-guide-you-to-quick-fixes/"><u>No Luck with Your PDF Printer? Let Us Guide You to Quick Fixes.</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-netgear-nighthawk-rax120-top-speed-for-your-home-network/"><u>Ultimate Guide to the Netgear Nighthawk RAX120 – Top Speed for Your Home Network</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-amplify-volume-for-twitters-silent-videos/"><u>[New] Amplify Volume for Twitter's Silent Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-discover-the-epic-android-video-editor-apps/"><u>[New] In 2024, Discover the Epic Android Video Editor Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-adding-beats-to-your-instagram-media-a-step-by-step-guide-for-2024/"><u>[Updated] Adding Beats to Your Instagram Media A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-pinnacle-8-android-video-chat-solutions-for-big-teams/"><u>[Updated] Pinnacle 8 Android Video Chat Solutions for Big Teams</u></a></li>
+<li><a href="https://fox-that.techidaily.com/connectivity-woes-heres-how-you-can-fix-your-iphone-or-ipad-wi-fi-problems-in-8-ways/"><u>Connectivity Woes? Here's How You Can Fix Your iPhone or iPad Wi-Fi Problems in 8 Ways</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-the-art-of-resolving-lsassexe-error-in-win/"><u>Mastering the Art of Resolving lsass.exe Error in Win</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solution-guide-reviving-your-built-in-webcam-on-windows-pcs/"><u>Solution Guide: Reviving Your Built-In Webcam on Windows PCs</u></a></li>
 </ul></div>
 

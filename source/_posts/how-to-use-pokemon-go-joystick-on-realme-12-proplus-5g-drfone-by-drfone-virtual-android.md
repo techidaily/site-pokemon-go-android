@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Realme 12 Pro+ 5G? | Dr.fone
-date: 2024-11-13T04:04:42.138Z
-updated: 2024-11-17T04:03:40.759Z
+date: 2024-11-23T21:12:35.843Z
+updated: 2024-11-26T20:52:37.703Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -39,6 +39,10 @@ Please note that the use of any location spoofing or Pokemon Go hack (joystick) 
 
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
 
 Out of all the Pokemon Go joystick and location spoofing solutions, I would recommend trying the following tools.
@@ -62,10 +66,7 @@ Once your iPhone is connected, its present location would automatically be displ
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
@@ -77,6 +78,10 @@ Afterward, you can select the target location and the interface would automatica
 To use the Pokemon Go joystick iOS solution, you can select the One-stop or Multi-stop mode from the top. Now, you can drop the pins on the map as per your requirements to set up a route to cover.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Afterward, you can enter the number of times you want to cover the route and even set up a preferred speed. Lastly, click on the “March” button to start the simulation on the map. You can also use a joystick at the bottom to move around realistically on Pokemon Go.
 
@@ -118,6 +123,10 @@ That’s it! Now, you can just view the GPS Joystick on the map with relevant op
 
 ![GPS Joystick Android](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3.3 Pokemon Go Joystick Hack for Rooted Android Phones
 
 Lastly, if you have a rooted Android device, then you can also explore tons of options to fake GPS on Pokemon Go. One of them FGL Pro, which is mostly used by experts for location spoofing and movement simulation. Since the Pokemon Go APK download is available for free, you can use the app without any issue. Here’s how you can use this Pokemon Go APK for rooted devices.
@@ -137,10 +146,7 @@ Great! Now, you can just launch the FGL Pro app on your phone and tap on the sea
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
@@ -168,13 +174,6 @@ Here comes the Pokemon Go Ultra League! Now you can battle other strangers, frie
 
 ![Pokemon Go Ultra League](https://drfone.wondershare.com/2020/Pokemon-Go-Ultra-League.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Isn’t it getting too enticing to dive in? What’s next? Before you set yourself on the ground, gear up for knowing the most useful tips for Pokemon Go Ultra League. You will be thankful for these tips later!
 
 ## How Does the UltraLeague Team Work on Pokemon Go?
@@ -182,13 +181,6 @@ Isn’t it getting too enticing to dive in? What’s next? Before you set yourse
 As the Ultra League Pokemon Go is not as cheap to develop a team as the great league, there is still a chance of being a CP cap of 2500. You won’t be maxing out Pokemon in a similar way as the Master League. However, a slightly higher CP brings more legendaries appearances that you have been catching in Raids or weekly Research for years.
 
 ![Pokemon go ultra league tier list](https://drfone.wondershare.com/2020/Pokemon-go-ultra-league-tier-list.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 For your help, here are the trios for your better understanding of the building up of a team. Consider following as examples-
 
@@ -219,22 +211,12 @@ The ability of this Pokemon to use the charged move sludge bomb prevents any tro
 Charizard among the Pokemon Go ultra league tier list shines as it balances effortlessly to hold off. With its second move on, it remains strong. There is a need to have such an iconic Pokemon of all the time in your team. What do you think?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Machamp
 
 ![best Pokemon for the ultra league](https://drfone.wondershare.com/2020/best-Pokemon-for%20the-ultra-league.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Neglecting the fighting, which is not as prevalent in the ultra League Pokemon Go as it was in the Great League, Machamp is still strong enough, especially when you are looking for something to round off some of the powerful picks as a counter option.
 
@@ -284,16 +266,13 @@ Are you ready to defeat Giovani effortlessly in Pokemon Go? Keep reading.
 
 Giovani is the grand commander of the Team Go Rocket crime syndicate. The big boss appears stronger every month as he also changes his lineup of creatures monthly. This means your lineup of Pokemon Go Giovani counters would have to change subsequently. So how do you know the best Giovani Pokemon Go counters to use against the Team Go Rocket boss when next you meet him? Well, that's left for this guide to answer. Here you will learn about how to defeat this monster and how to find him. Without wasting your time, let's start with how to find Giovani in Pokemon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1. How to Find the Giovani in Pokemon
 
 Locating Giovani’s hideout is never a walk in the park as you need to complete some daunting tasks. A detailed explanation of each task is given below:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. A Troubling Situation Task
 
@@ -331,9 +310,17 @@ For this step, you’ve got nothing to do. All three objectives have been automa
 
 ![giovani special research](https://images.wondershare.com/drfone/2020/giovani-special-research.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After completing the quest above, Giovani Special Research or Looming in the Shadows is the next and final quest you have to complete to face Giovani. It's a six-step Special Research that introduces the Team Go Rocket Grunts and Leaders: Cliff, Arlo, and Sierra.
 
 ![a troubling situation task](https://images.wondershare.com/drfone/2020/a-troubling-situation-task.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 On completing one research step, you will be given a reward called the Super Rocket Radar. Like the Rocket Radar, the Super Rocket Radar can be equipped and unequipped from your Bag. This reward doesn't only show Giovani’s hideout, it also shows some of his Grunts hideouts.
 
@@ -391,13 +378,6 @@ Click on Get Started to change your location.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Your current location will appear on the PC screen. Switch location by entering the name or address of the place in the field at the upper left corner of the application.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -405,6 +385,10 @@ Click on Get Started to change your location.
 **Step 4:** The interface below will pop up on your screen. Click on the Move Here icon to teleport to your chosen location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And now you are good to have one of the strongest Pokemon on your team when fighting against Giovani. Leverage the Dr.Fone- Virtual Location program as it will help you ease the stress of catching stronger Pokemon remotely on your device without jailbreaking it.
 
@@ -422,17 +406,24 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/ts-windows-mac/"><u>.TS 파일 이해하기: Windows 및 Mac로 재생 - 단계별 가이드</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-precision-planning-of-collaborative-slack-plus-filmora-meetings/"><u>[New] 2024 Approved Precision Planning of Collaborative Slack + Filmora Meetings</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-captivating-images-with-intentional-leading-lines-iphone/"><u>[New] Captivating Images with Intentional Leading Lines (iPhone)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-freely-flowing-world-of-historical-works/"><u>2024 Approved The Freely Flowing World of Historical Works</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-xiaomi-redmi-note-12-4g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Xiaomi Redmi Note 12 4G for Parents | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Honor X9a? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-poco-x6-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Poco X6? | Dr.fone</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/resolved-remove-all-my-files-from-computer-with-onedrive/"><u>Resolved: Remove All My Files From Computer with OneDrive</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-your-iphones-silent-ringer-issue-a-comprehensive-guide/"><u>Troubleshooting Your iPhone's Silent Ringer Issue: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-earner-youtube-star-global-leader-for-2024/"><u>[New] Top Earner YouTube Star - Global Leader for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-become-a-pro-at-xbox-video-recording-in-minutes/"><u>2024 Approved Become a Pro at Xbox Video Recording in Minutes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unraveling-the-cash-accumulation-through-viewers-attention/"><u>2024 Approved Unraveling the Cash Accumulation Through Viewers' Attention</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/5-alternatives-when-bitlocker-isnt-available-on-windows/"><u>5 Alternatives When Bitlocker Isn't Available on Windows</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-x5-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/einfache-methoden-zur-wiederherstellung-von-im-gruppenunternehmen-geloschten-dokumenten-und-dateien-expertenrat/"><u>Einfache Methoden Zur Wiederherstellung Von Im Gruppenunternehmen Gelöschten Dokumenten Und Dateien - Expertenrat</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-iphone-11-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On iPhone 11?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-a-convenient-approach-to-changing-the-main-image-of-your-fb-page/"><u>In 2024, A Convenient Approach to Changing the Main Image of Your FB Page</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-in-depth-video-metrics-at-your-fingertips-social-blade-for-youtube/"><u>In 2024, In-Depth Video Metrics at Your Fingertips Social Blade for YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
 </ul></div>
 

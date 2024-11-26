@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco M6 Pro 4G | Dr.fone
-date: 2024-07-14T10:17:25.429Z
-updated: 2024-07-15T10:17:25.429Z
+date: 2024-11-22T20:41:36.862Z
+updated: 2024-11-26T21:03:40.087Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,13 +26,18 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -70,6 +75,10 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -137,10 +146,11 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
 
@@ -154,19 +164,14 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco M6 Pro 4G
 
 Hey, Pokémon trainers!
@@ -211,6 +216,10 @@ Don't miss out on this exclusive 33% off coupon on [Dr.Fone - Virtual Location](
 
 This coupon is your golden chance to save extra on your purchase of Dr.Fone - Virtual Location. When making the purchase, make sure to go to purchase Dr.Fone - Virtual Location through the purchase link on this page. Once you have done so, you can view the discounted price before checking out!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pokemon Go Tips and Tricks To Help You Catch ’Em All
 
 New Pokémon are being added to Pokémon Go every day. These include regionals, time-limited encounters, and a lot more. Let’s find out the different ways you can use to find and catch these rare Pokémon!
@@ -229,6 +238,10 @@ There are various options you can try to find rare Pokémon and complete your Po
 - **Use a virtual GPS at home.** If you don’t have anyone to trade your regional Pokémon with, you can use a virtual location. It can be achieved by using a specialized app, like Dr.Fone - Virtual Location for this purpose to access rare locations and get more Pokémon!
 
 Considering time and money, the first few of the above methods are not so easy to realize in practice. So here, we are exclusively introducing one of the most efficient and low-cost ways - virtual GPS to catch, power up, and evolve your Pokémon. Are you ready to complete your Pokedex faster?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is Dr.Fone – Virtual Location
 
@@ -250,9 +263,6 @@ Dr.Fone-Virtual Location
 
 Available on:
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Here’s why Dr.Fone Virtual Location is an ideal solution for Pokémon Go spoofing
 
 - Access rare locations, catch more Pokémon, and complete your Pokédex.
@@ -287,6 +297,10 @@ Now, a map will show up on your screen. Here, click on the “No Device” butto
 Once your phone is connected, select “Teleport Mode” from the toolbar near the top right corner of the screen.
 
 ![select the teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4. Choose the location.**
 
@@ -333,9 +347,6 @@ When it comes to safe location spoofing apps, Dr.Fone by Wondershare is at the t
 
 Unlike most other location-faking apps, Dr.Fone - Virtual Location works without jailbreaking your device. This means all of your phone data is secure when using the app. So wave those worries goodbye! Get ready to celebrate this year’s Pokémon Day better than ever before with Dr.Fone - Virtual Location.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Use Pokémon Emerald Master Ball Cheat On Poco M6 Pro 4G
 
 One of the main goals of playing Pokémon is getting as many Pokémon as you can, training and evolving them so you can defeat any opposing trainers, and get to the top of the winning charts.
@@ -402,6 +413,10 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Entering the GameShark Pokémon Emerald Master Ball cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4 -** Now proceed and enter the master ball code. The small cod will have to be enabled before you can switch on the Pokémon Emerald Master Ball GameShark cheat code. To do this, Go to the description and then enter the master code. Now you need to paste in the following into the “Code Field”.  
 **D8BAE4D9 4864DCE5**
 
@@ -410,6 +425,10 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 **Step 6 –** Proceed and enter a PokeMart and then buy Pokeballs. When you have entered the Pokémon Emerald Master Ball code, you are allowed to buy as many of these as you can fit in your bag. All you have to do is go up to the register and then buy a Pokéball, and you will get a Master Ball instead, without having to pay a dime.
 
 ![Enter PokeMart to but Pokémon Emerald Master Balls](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Only one Master Ball can be bought at a time, but you can do this as many times as you want. If you are already inside the PokeMart when you enter the code, you may have to walk out and walk back in again for it to work.
 
@@ -459,8 +478,6 @@ But how do you catch as many Pokémon as possible within a short time?
 
 This is where teleporting tools such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) comes in. This is a wonderful and powerful tool that allows you to teleport from one area to another without the game realizing that you are spoofing your location.
 
-
-
 ### Dr.Fone - Virtual Location
 
 1-click location changer to catch as many Pokémon as possible!
@@ -485,9 +502,6 @@ Once you have enough Pokémon creatures, you may now use your Lucky Egg and evol
 
 Getting Pokémon Emerald Master Ball cheat codes is important if you want to catch a lot of Pokémon with ease. You need to catch them so you can level up as fast as possible. As you have seen, one of the best ways to do this is to catch a lot of Pokémon, and then evolve them and get XP that will allow you to level up quickly. You may use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to shift to areas where you can catch a lot of Pokémon creatures using the Pokémon Emerald Master Ball; it is much better when you have a cheat code that will allow you to get unlimited Master Balls.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -500,9 +514,22 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-upload-a-video-to-instagram-from-a-desktop/"><u>[New] How to Upload a Video to Instagram From a Desktop</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-demystifying-data-a-beginners-guide-to-facebook-insights/"><u>[New] In 2024, Demystifying Data A Beginner's Guide to Facebook Insights</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-precision-preservation-adding-dates-to-photos-with-ease/"><u>[New] Precision Preservation Adding Dates to Photos with Ease</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premier-networks-for-your-personalized-watchlist/"><u>2024 Approved Premier Networks for Your Personalized Watchlist</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-poco-c50-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-choice-avi-player-with-multiplatform-support-for-2024/"><u>Best Choice Avi Player with Multiplatform Support for 2024</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/easy-steps-to-transform-your-video-files-from-wmv-to-flv-format/"><u>Easy Steps to Transform Your Video Files From WMV to FLV Format</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761475-9781604074550-the-bowl-of-light/"><u>The Bowl of Light | Free Book</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-tutorial-on-how-to-refresh-your-chromecast-software/"><u>The Ultimate Tutorial on How to Refresh Your Chromecast Software</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+</ul></div>
 

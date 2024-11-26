@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Realme 12+ 5G? | Dr.fone
-date: 2024-11-15T02:13:43.637Z
-updated: 2024-11-17T05:43:14.331Z
+date: 2024-11-22T16:52:31.394Z
+updated: 2024-11-26T19:07:54.861Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -117,19 +117,6 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 ![start the virtual location feature](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **_Step 3:_**  On the screen, they will show your current location.
 
 ![locate yourself](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
@@ -142,16 +129,13 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 ![teleport to desired location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_Step 6:_** Finally, it will show you that chosen location that you typed and you can then check your current location on your phone which shows the same place.
 
 ![current location in program](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Here is a video for you to learn how to teleport your iPhone GPS location:**
 
@@ -161,18 +145,15 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 If you want a game like Pokémon Go but want a different storyline and characters, we will list down AR games that you can try to play yourself. In addition, you can check other similar AR games below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 15\. The Walking Dead: Our World
 
 If you like zombie movies, this game is the right one to download. “The Walking Dead: Our World” is a game where you can play as a zombie hunter, explore the environment, and save the world. This game uses the player’s GPS location, where they release new challenges that can be found in your town or area. This game also allows users to play and shoot zombies with their friends or group where you can reap big rewards.
 
 ![the walking dead: our world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160) _
@@ -202,18 +183,15 @@ If you have watched and loved watching the Jurassic Park movies and just love di
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.ludia.jw2&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/jurassic-world-alive/id1231085864) _
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 11\. Ghost Busters World
 
 Ghost Busters World is a game that was created and inspired by the Ghost Busters movies that we used to watch as kids. This is also perfect for gamers who love ghosts and catching them. In this game, you play as a ghost hunter where you roam around to look for ghosts to catch and trap them. You can also collect treasures that you found along the way. You can also customize your character and meet other notable characters from the movie itself in the game.
 
 ![ghost busters world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android) _
 
@@ -240,6 +218,10 @@ For those players who are into running or are physically fit, you playing the ga
 Orna is a role-playing game where you battle different creatures, explore dungeons, and defeat dragons. Your character will need to complete different quests while exploring different areas and become their location’s Duke. You can also play with other players if you want to test your character’s ability.
 
 ![orna](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=playorna.com.orna&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/th/app/orna-turn-based-gps-rpg/id1451775309?l=th) _
@@ -275,7 +257,15 @@ If you have played Minecraft or just have the knack for creating worlds, then yo
 
 ![minecraft earth](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE) _
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Pikmin Bloom
 
@@ -291,6 +281,10 @@ If you love creating and designing, you can try Pikmin Bloom game. This game all
 If you grew up watching Harry Potter and would love to be a wizard, you should download the game, Harry Potter: Wizards Unite. In this world, you are a wizard where you can cast spells, interact with different notable characters from the movie franchise, defeat creatures, and explore the wizardly world of Harry Potter. You will also need to complete tasks to be able to level up and improve as a wizard. It is a unique game that will leave you wanting to play more.
 
 ![harry potter: wizards unite](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU) _
 
@@ -314,16 +308,7 @@ If you are a huge Pokemon fan and loves to play pokemon go, you will definitely 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What is the meltan box and how does it work?
@@ -337,6 +322,10 @@ The meltan box is actually a mystery box that you cannot receive through the tra
 1. The first and foremost thing you need to do is deport a Pokemon from Pokemon Go to Pokemon Let’s Go. You don’t have to transfer it to your own copy of Let’s Go. A friend’s copy would come in great help here.
 2. For making the transfer, you will get a mystery box in Pokemon Go. This box will allow the meltan to run into the wild for about 30 minutes. It gives you the chance to latch the pokemon.
 3. If you cannot catch meltan in 30 minutes, you will have to wait and repeat the above process again. As the mystery box will close after 30 minutes, and meltan will vanish from the wild.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to connect pokemon go to pokemon switch
 
@@ -353,13 +342,6 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 **Step 3:** Choose the option “Open Pokemon GO Settings”.
 
 ![pokemon switch pair1](https://images.wondershare.com/drfone/2020/pokemon-switch-pair1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** When asked, select the option “YES”. This will allow the game to begin the search for a Pokemon Go account that you can pair with.
 
@@ -403,14 +385,11 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 ![send to nintendo switch](https://images.wondershare.com/drfone/2020/send-to-nintendo-switch.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to get more meltan boxes
 
@@ -434,13 +413,6 @@ With the help of [Dr.Fone- Virtual Location](https://tools.techidaily.com/wonder
 
 It is well-known that Pokemon Go is a location-based game that offers several services only according to your location. You might find it difficult to maximize your pokemon go meltan box without moving or looking for services out of your region. Dr.Fone Virtual Location is here to help. With this service provider's help, you can change your location and enjoy the unlimited fun that you had always desired. It will also be a great rescue for you if you cannot catch a meltan in your region. Try it and get the Hex Nut Pokemon.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Resolving your query about getting meltan box and offering you a detailed guide and assistance, we aim to help you continue your fun-experience with the game. Play, look for and find all the meltan! You can then evolve your meltan into a formidable Melmetal. You will need around 400 meltan candy to evolve into Melmetal, so be sure to catch as many as possible and enjoy!
@@ -459,16 +431,18 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-top-30-tiktok-names-for-higher-engagement-and-visibility/"><u>[New] 2024 Approved Top 30 TikTok Names for Higher Engagement and Visibility</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-zoom-android-tips-for-starting-and-syncing-meetings/"><u>[Updated] Mastering Zoom Android Tips for Starting & Syncing Meetings</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-premium-pick-of-budget-friendly-vectors-and-graphic-sites/"><u>[Updated] Premium Pick of Budget-Friendly Vectors & Graphic Sites</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-the-ultimate-guide-to-making-money-with-vimeo-monetization/"><u>[Updated] The Ultimate Guide to Making Money with Vimeo Monetization</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-hands-on-the-latest-logitech-k400plus-keyboard-and-mouse-combo-drivers/"><u>Get Your Hands on the Latest Logitech K400+ Keyboard and Mouse Combo Drivers</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-oneplus-ace-2-pro-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset OnePlus Ace 2 Pro in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Nubia Z50 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor X50i? | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ambient-ws-2902a-osprey-weather-station-an-economical-powerhouse-brimming-with-features/"><u>The Ambient WS-2902A Osprey Weather Station: An Economical Powerhouse Brimming With Features!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-spikes-in-subscribers-implementing-top-12-video-promotion-techniques-for-2024/"><u>[Updated] Spikes in Subscribers Implementing Top 12 Video Promotion Techniques for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/camera-mastery-meets-excellence-in-design-with-the-huawei-p20-pro-smartphone-evaluation/"><u>Camera Mastery Meets Excellence in Design with the Huawei P20 Pro Smartphone Evaluation</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/changing-video-pace-on-your-instagram-feed/"><u>Changing Video Pace on Your Instagram Feed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/expert-tips-to-correct-video-transmission-problem-on-mobile-messengers-for-2024/"><u>Expert Tips to Correct Video Transmission Problem on Mobile Messengers for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-lava-yuva-2-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Lava Yuva 2 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-device-disconnection-dxgi-error-guide/"><u>Overcoming Device Disconnection: DXGI Error Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme 11X 5G? | Dr.fone</u></a></li>
 </ul></div>
 
