@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Realme 12 5G? | Dr.fone
-date: 2024-11-19T20:32:21.959Z
-updated: 2024-11-26T21:54:46.359Z
+date: 2024-12-05T09:41:01.099Z
+updated: 2024-12-06T05:15:38.592Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -73,6 +73,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
@@ -86,10 +90,6 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -121,6 +121,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -142,10 +146,6 @@ There’s no denying that the internet gives us the power to do almost anything.
 **Pokemon Go streaming** is very popular on the internet nowadays. Many players around the world go live while catching Pokemon in the streets or battling against other trainers. By far, the **Pokemon Go live stream** continues to receive support and appreciation from the huge communities of players worldwide. That’s why you should look at this opportunity and see how it can significantly elevate your Pokemon Go experience.
 
 In this article, we will talk about the amazing benefits of Pokemon Go streaming. We will also provide a guide and some tips on how to **livestream Pokemon Go** outdoors and indoors. Continue reading below to learn more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Things You Need to Know About Pokemon Go Streaming
 
@@ -185,25 +185,25 @@ It’s fair to say that Pokemon Go streaming is not extremely particular when it
 
 ![streaming platform](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-4.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Of course, you can bring a full computer setup outside while exploring around. That’s why you should choose a live-streaming application with features that allow you to broadcast directly on Your Realme 12 5G. Don’t worry. There are lots of choices on the internet. Pick the best one, and then create your Pokemon Go streaming account. Optimize your profile and make sure that the details are complete.
 
 ### Set up the Pokemon Go Livestream
 
 ![set up live stream](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-5.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Set up the livestream accordingly. Start by writing a catchy title for your broadcast. Make sure that it clearly states the content and the intent of your Pokemon Go livestream. After that, add some keywords and specify the language of your stream. Yes. It’s very important because it will help interested viewers find you on the internet. Lastly, check the audio output. Adjust the volume clarity if necessary. Once you’re done, it’s time to hit the Go Live button and say “Hi” to the world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Start playing Pokemon Go
 
 ![play pokemon live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-6.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Play Pokemon Go as if nobody is watching you online. Simply put, carry on with your usual gaming routine. Don’t let the audience distract you from the game. However, make sure that you interact with them as you go along. Try talking while you’re on the ground and catching Pokemon nearby. Respond to the comments once in a while. The point is that you have to extend the actual Pokemon Go experience to them. Trust yourself. You can definitely do that.
 
@@ -213,10 +213,18 @@ The best tip that anyone can give you is to be yourself when you livestream Poke
 
 ![pokemon go livestream tips](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-7.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Consider your safety as the primary priority. Stay alert and keep your essential belongings within your sight. You never know. People with ill intentions are just around the corners of the street. Hence, keep yourself safe from this kind of situation that may put your life in real danger.
 - One way to broaden your online exposure is to go live on a regular and consistent timetable. Plan ahead the exact schedule of your Pokemon Go livestream and announce it on your official social media handles.
 - Adhere to the rules and policies implemented not only by Pokemon Go but also by your chosen platform. Don’t break any of them because such actions can affect your progress as a player and streamer.
 - Take constructive feedback positively. Yes. Expect that once you go live on the internet, you will receive various kinds of reactions from other people. But don’t let them get into your head as much as possible. Keep your head high and work on the improvements at your own pace.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can You Livestream Pokemon Go Inside Your Home?
 
@@ -249,6 +257,10 @@ However, it’s perhaps safe to say that Pokemon Go Routes is still far from per
 
 In this article, we will discuss how Pokemon Go Routes basically work. We will also talk about the main reasons why **Pokemon Go Routes is not showing up** sometimes. Lastly, we will provide some helpful tips to fix this kind of problem. Continue reading below to learn more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1. How Do Routes in Pokemon Go Work?
 
 The logic behind the Pokemon Go Routes is very simple. There are only two things you need to remember about it. First, you can record a walking path anywhere and submit it for review. Your Route will immediately appear on the Pokemon Go map once it receives approval from the game developer. Of course, the quality and safety of the Route must be checked thoroughly before it becomes available to the public. Another thing about the Route is that you can use it to discover and explore new walking paths near you. All you need to do is pick your preferred Route and finish the entire trail. Afterward, you can obtain special rewards and extra bonus points upon its completion.
@@ -260,21 +272,17 @@ Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how 
 
 ![nearby option](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 3:** Then, click **Route.**
 
 ![pokemon go route](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 4:** From there, decide if you wish to discover nearby Routes or create your own.
 
 **NOTE:** The Create New Route feature is only available to selected Pokemon Go players. If Pokemon Go Routes is not showing up on your end, it’s probably because you’re not yet eligible.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. Why is Pokemon Go Routes Not Showing Up?
 
@@ -282,17 +290,9 @@ As previously mentioned, the root causes of the Pokemon Go Routes glitch vary fr
 
 ![pokemon go route missing](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### There are no recorded Routes near your location
 
 It’s possible that the Pokemon Routes are not showing up because you’re too far from them. Try to move around and see if the walking paths will finally appear on your radar. In this case, all you need to do is find the perfect spot where Routes are recorded.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The Pokemon Go application has no adequate location access on your smartphone
 
@@ -304,23 +304,19 @@ Is Pokemon Go Route not working on your end? Well, it’s possibly because the a
 
 Pokemon Go Routes and most of the game’s main features require a reliable internet connection. If you’re connected to slow and unstable internet access, the Pokemon Go app will not load up properly. That’s probably the reason why Pokemon Go Routes are not completing or working at all on your end.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### You’re using an outdated Pokemon Go app version
 
 ![update pokemon go app](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-6.JPG)
 
 Keep in mind that the Pokemon Go Routes is an additional game feature. That’s why you first need to update your existing Pokemon Go app before you can access it. The Routes is definitely not available to old versions of Pokemon Go mobile software.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The current software version of your smartphone is not compatible with the Pokemon Go Routes feature
 
 Android 6.0 and iOS 14 or higher are the main system requirements of the Pokemon Go application. The Pokemon Go Routes are not working, or perhaps the whole application malfunctions because your software version is too old. Don’t worry. A simple OS update might resolve this problem once and for all.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3. Tips on How to Fix Pokemon Go Routes Not Showing Up
 
@@ -347,6 +343,10 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
@@ -369,18 +369,15 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-rapid-routes-transferring-ios-photos-and-videos/"><u>[Updated] 2024 Approved Rapid Routes Transferring iOS Photos & Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-elevating-your-igtv-presence-with-stunning-covers-for-2024/"><u>[Updated] Elevating Your IGTV Presence with Stunning Covers for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-unlock-the-secrets-to-preserving-web-streamed-tv-shows/"><u>[Updated] In 2024, Unlock the Secrets to Preserving Web-Streamed Tv Shows</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/expert-guide-how-to-disguise-taskbar-on-win-11/"><u>Expert Guide: How to Disguise Taskbar on Win 11</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Samsung Galaxy A14 4G | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/inclusivity-in-ai-how-gpt-4-becomes-universal/"><u>Inclusivity in AI: How GPT-4 Becomes Universal</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-google-pixel-8-pro-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Google Pixel 8 Pro</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/solving-the-pdhdll-file-not-present-issue-a-step-by-step-guide/"><u>Solving the 'pdh.dll File Not Present' Issue: A Step-by-Step Guide</u></a></li>
-<li><a href="https://network-issues.techidaily.com/unleash-the-potential-mastering-intelers-gpu-driver-enhancement-win-7-style/"><u>Unleash the Potential: Mastering Inteler's GPU Driver Enhancement, Win 7 Style</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-into-professional-photoshop-mastering-luts-in-cs6cc/"><u>[Updated] 2024 Approved Step Into Professional Photoshop Mastering LUTs in CS6/CC</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-elite-fighting-top-10-royale-action-experiences/"><u>[Updated] Elite Fighting Top 10 Royale Action Experiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-prime-line-up-the-best-9-free-youtube-logo-makers-reviewed/"><u>2024 Approved Prime Line-Up The Best 9 Free YouTube Logo Makers Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-account-security-with-facebooks-2fa-methodology/"><u>Boost Your Account Security with Facebook’s 2FA Methodology</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-samsung-galaxy-f34-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Samsung Galaxy F34 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-secret-trick-to-turn-back-time-in-videos-how-to-edit-reversals-on-snapchat/"><u>The Secret Trick to Turn Back Time in Videos: How to Edit Reversals on Snapchat</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-poco-x6-pro-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Poco X6 Pro? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

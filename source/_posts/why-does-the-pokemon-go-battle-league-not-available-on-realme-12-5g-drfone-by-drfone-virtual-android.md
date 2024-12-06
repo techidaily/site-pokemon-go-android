@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Realme 12 5G | Dr.fone
-date: 2024-11-24T21:38:58.658Z
-updated: 2024-11-26T19:44:18.440Z
+date: 2024-12-01T18:44:55.749Z
+updated: 2024-12-05T22:47:59.916Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -35,10 +35,6 @@ Players when entering the Battle League are shown – Pokemon Go Battle League N
 
 ![pokemon 1](https://images.wondershare.com/drfone/2020/pokemon-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Thankfully, the issue has been resolved and trainers can get back into the league without any change in the previous features.
 
 Here’s a set of few known issues in the game currently being investigated by Niantic, which we can hope to see resolved later on in the future;
@@ -68,7 +64,7 @@ Few players with the assist of Melmetal (ground and steel type) could lodge cons
 ![pokemon 2](https://images.wondershare.com/drfone/2020/pokemon-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After this issue was tweeted to the notice of the game publisher, Ninattic temporarily paused Battle League. Trainers while accessing the live tournament event would be notified with – “Pokemon Go Battle League Not Available” by the game.
@@ -101,6 +97,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 ![drfone](https://images.wondershare.com/drfone/2020/drfone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Key Features:**
 
 - Mock and teleport your GPS to any desired location while connecting your iPhone to your server.
@@ -124,6 +124,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 ## Conclusion
 
 Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to use iSpoofer on Realme 12 5G?
 
@@ -170,6 +174,10 @@ PGSharp is one of the best alternatives to **iSpoofer for Android**. It’s a tw
 
 ![pgsharp](https://images.wondershare.com/drfone/2020/202010/pgsharp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can either choose the free or the paid version of the app. Of course, the latter comes with a few additional features, but if you only want to fake location in Pokemon Go, the free version of PGSharp will get the job done as well.
 
 **Note:** Keep in mind that PGSharp isn’t available on Google Play Store and you’ll have to download it from the official [<u>PGSharp website</u>](https://www.pgsharp.com/).
@@ -202,17 +210,9 @@ Step 2 - Once the tool recognizes your device, click “Get Started” to procee
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3 - You’ll be prompted to a map that’ll point to your current location. Select “Teleport Mode” from the top-right corner and use the search bar to find the desired location.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 4 - The pointer will move to the selected location automatically. Finally, click “Move Here” to set it as your new location.
 
@@ -220,9 +220,17 @@ Step 4 - The pointer will move to the selected location automatically. Finally, 
 
 That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtual Location (iOS).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4 solution to get rid of pokemon fail to detect location On Realme 12 5G
 
 Pokémon go failed to detect location is an error that is frequently faced by the players and there are several reasons for it. From device to server-based all the reasons amount to the error and therefore the right solution must be applied to get the work done with ease and perfection. The location-based attribute of the game is something that has been one of the best features. It is the sole reason for which the game is not only popular but also one of the most downloaded games of all time. It is therefore important to overcome fail to detect location error in this game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Why does Pokémon fail to detect location?
 
@@ -233,6 +241,10 @@ The two main and frequent errors that are related to the Pokémon are error 11 a
 1. If the game failed to detect location Pokémon go fake GPS then the most common reason is the fact that the GPS has been disabled. The internet and GPS are the two important aspects of this game. If anyone is not available then it is a must that the game will not work at all.
 2. Once the game has been installed it requires certain permissions that should be granted for proper working. All the permissions must be accepted for the game to work fine. If the GPS access has not been granted then it should be so that the GPS joystick Pokémon go failed to detect location error is resolved and you can enjoy the game.
 3. To install some applications and to enhance the features of the phone it is at times rooted in the case of android or jailbroken in the case of iPhone. In both cases, you will get the Pokémon to go failed to detect location fake GPS error. It is therefore important that the issue is resolved by getting the Realme 12 5G device back to its original shape. It can be done by unrooting the Realme 12 5G devices so that the issue is resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Causes of Error 12
 
@@ -265,15 +277,15 @@ If the right permissions are not given to the application then it can also lead 
 
 ![Pokemon failed to detect location 4](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 3: Clear Cache
 
 **i.** Go to the Settings of your device
 
 ![Pokemon failed to detect location 5](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **ii.** Click on the app's icon on the next screen
 
@@ -293,10 +305,6 @@ To fix the fake GPS Pokémon go failed to detect location [Dr. Fone's virtual lo
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to use Dr. Fone Virtual Location
 
 **Step 1: Program Installation**
@@ -312,7 +320,7 @@ Click the get started icon once the iPhone has been connected to the system and 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Locate the Realme 12 5G device**
@@ -322,7 +330,7 @@ Click the center on a button to make sure that your location is detected by the 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Change Location**
@@ -337,19 +345,11 @@ Click on move here to get to the location that has been selected.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6: Validation**
 
 Your iPhone will show the same location as on the program and this finishes the process.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -369,21 +369,21 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/capture-nostalgia-uploading-past-photos-as-snaps-for-2024/"><u>Capture Nostalgia - Uploading Past Photos as Snaps for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/conversion-completa-de-archivos-avi-a-formato-mkv-guia-paso-a-paso/"><u>Conversión Completa De Archivos AVI a Formato MKV - Guía Paso a Paso</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-advice-for-overcoming-logitech-g935-microphone-malfunctions-in-windows/"><u>Expert Advice for Overcoming Logitech G935 Microphone Malfunctions in Windows</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-bend-reality-in-adobe-a-comprehensive-guide-to-ph-warping/"><u>In 2024, Bend Reality in Adobe A Comprehensive Guide to PH Warping</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-90-gt-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Honor 90 GT to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oppo-a78-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Oppo A78 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme 11X 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sabrents-compact-travel-mouse-where-efficiency-meets-durability-in-a-portable-package/"><u>Sabrent's Compact Travel Mouse: Where Efficiency Meets Durability in a Portable Package</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209776661-9781722523657-success-original-classic-edition/"><u>Success! (Original Classic Edition) | Free Book</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-vivo-v27-by-drfone-android/"><u>Universal Unlock Pattern for Vivo V27</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-90-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-frozen-yum-screening-device-deep-review/"><u>[New] Frozen Yum Screening Device Deep Review</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-selective-online-shopping-destinations-fancy-wrapped-gifts/"><u>[New] In 2024, Selective Online Shopping Destinations Fancy Wrapped Gifts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-master-avi-gif-transformation-an-all-inclusive-guide-by-filmora/"><u>[New] Master AVI-GIF Transformation An All-Inclusive Guide by Filmora</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-skyrocketing-engagement-on-igtv-with-smart-hash-tagging/"><u>[New] Skyrocketing Engagement on IGTV with Smart Hash Tagging</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-lg-screen-chronicles-a-complete-review-of-4k-quality-for-2024/"><u>[New] The Ultimate LG Screen Chronicles A Complete Review of 4K Quality for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/are-tablets-like-the-ipad-evolving-enough-to-dethrone-pcs-and-laptops-analysis-by-zdnet/"><u>Are Tablets Like the iPad Evolving Enough to Dethrone PCs and Laptops? | Analysis by ZDNET</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Nokia C12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/find-someone-quickly-the-ultimate-list-of-8-people-tracking-engines/"><u>Find Someone Quickly: The Ultimate List of 8 People-Tracking Engines</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-tecno-pova-5-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Tecno Pova 5</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor Magic Vs 2 | Dr.fone</u></a></li>
 </ul></div>
 

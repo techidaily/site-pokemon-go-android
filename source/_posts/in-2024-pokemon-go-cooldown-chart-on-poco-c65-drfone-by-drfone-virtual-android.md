@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Poco C65 | Dr.fone
-date: 2024-07-14T10:09:39.637Z
-updated: 2024-07-15T10:09:39.637Z
+date: 2024-12-05T04:11:53.635Z
+updated: 2024-12-05T20:53:59.255Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -54,6 +58,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -136,41 +144,30 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
-
-
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## All You Need To Know About Mega Greninja For Poco C65
 
 Are you a fan of Pokemon Go? Then, you will find this article not only useful but also quite interesting. In case you have never played this game before, then you should know that Pokemon Go is a fantastic augmented reality game.
@@ -187,6 +184,10 @@ Through this article, we will discuss all you need to know about Greninja. So, w
 
 ![Mega greninja pokemon](https://images.wondershare.com/drfone/2020/mega-greninja-pokemon-pic-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, called the Ninja Pokemon, Greninja is Dark/ Water-type pokemon. Some people love to call it a frog-like master. One of the most amazing features of Greninja pokemon is that with its swift movements, you will notice that this pokemon succeeds in confusing its opponents.
 
 It makes use of very sharp throwing stars to slice its enemies. It features Torrent ability.
@@ -197,11 +198,19 @@ There are various weaknesses of this pokemon which include “Fighting”, “Gr
 
 ![strength mega Greninja Pokemon](https://images.wondershare.com/drfone/2020/strength-mega-Greninja-Pokemon-pic-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Greninja is resistant to “Water”, “Fire”, “Ice”, “Dark”, “Steel” and finally “Ghost”. Also, this pokemon is immune to “Psychic”. This pokemon’s presence can be very intimidating for its opponents, it would not be wrong if we say that Greninja is quite unpredictable. There is no doubt that the counter attacks of Greniaja prove to be very dangerous for its enemies.
 
 ## Part 3: How to Catch Greninja?
 
 ![Catch Greninja Pokemon](https://images.wondershare.com/drfone/2020/Catch-Greninja-Pokemon-pic-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In order to catch Greninja, you will be required to fulfill specific requirements in the Pokemon Sun and Moon Exclusive demo.
 
@@ -225,6 +234,10 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 ![Dr.fone centre on](https://images.wondershare.com/drfone/2020/Dr_fone-centre-on-pic-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** After all the previous steps, the next step is to click on the “teleport mode” icon, which will be located in the upper-right part. This will activate the teleport mode. After that, you have to enter the name of the location or place where you wish to teleport to in the upper left field. Finally, tap on “Go”. As an example, we are going to enter “Italy”, Rome in the left field.
 
 ![Dr.fone teleport](https://images.wondershare.com/drfone/2020/Dr_fone-teleport-pic-7.jpg)
@@ -235,23 +248,15 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 **Step 5:** If you have followed the directions accurately, your actual location on the map will now be set to “Italy”. You can confirm your location from the Pokemon Go’s map. Finally, below we have provided a screenshot of how the location will be shown.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dr.fone location changed](https://images.wondershare.com/drfone/2020/Dr_fone-location-changed-pic-9.jpg)
 
 **Step 6:** Also, you’ll see that the location on your iPhone would have also changed now to “Italy” or any other place that you have entered earlier.
 
 ![dr.fone location set](https://images.wondershare.com/drfone/2020/dr_fone-location-set-pic-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 So, we have reached the end of this article. We hope that you found the article quite useful as well as insightful. We also hope that with the help of the setup guide for Dr.Fone you can now easily catch your favourite pokemon by teleporting to different locations across the world. If you have any doubts or suggestions related to this article, then feel free to write it down in the comment section. So, this was all from our side for now. Stay Tuned
-
-
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Poco C65
 
@@ -301,9 +306,6 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Then, confirm group name and click on the ‘Save’ icon. You’ll see it located besides the search bar.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Click the confirm button](https://images.wondershare.com/drfone/2020/2020/confirm-group-name.jpg)
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
@@ -330,14 +332,21 @@ Next, import the shared gpx file into the app. You can download the gpx file fro
 
 ![Import file then click on Save](https://images.wondershare.com/drfone/guide/import-gpx.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also add your favorite iSpoofer gpx routes. To add any spot into your favorites, check for the five-star icon and click to add the route to favorites. You should see ‘Collection successfully’ after adding your favorites. This gpx route creator makes it easy to walk along your favorite routes. Click the ‘Move’ button and reach any place with a click of a button.
 
 ![Enter address and click Go](https://images.wondershare.com/drfone/guide/search-favorites.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The Bottom Line**
 
 Being a first timer, you may find it very complicated to fake your gps location. But Pokemon map creator makes it easy. Dr. Fone virtual location works seamlessly with your iOS device to take you virtually to any place in the world, from the comfort of your living room.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -351,9 +360,19 @@ Being a first timer, you may find it very complicated to fake your gps location.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bright-ideas-effective-lighting-in-vlogging/"><u>[New] In 2024, Bright Ideas Effective Lighting in Vlogging</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-tape-looper-mastery-app/"><u>2024 Approved Tape Looper Mastery App</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-the-essential-guide-for-live-facebook-streams-pcmaclaptop/"><u>2024 Approved The Essential Guide for Live Facebook Streams (PC/Mac/Laptop)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://win-data.techidaily.com/create-your-own-virtual-book-with-flipbuilder-a-guide-for-command-line-enthusiasts/"><u>Create Your Own Virtual Book with FlipBuilder - A Guide for Command Line Enthusiasts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://fox-place.techidaily.com/discover-the-ultimate-selection-of-excellent-apps-compatible-with-ios-8/"><u>Discover the Ultimate Selection of Excellent Apps Compatible with iOS 8</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easily-install-up-to-date-drivers-for-your-hp-deskjet-printer-on-windows-operating-systems-windows-111087/"><u>Easily Install Up-to-Date Drivers for Your HP DeskJet Printer on Windows Operating Systems: Windows 11/10/8/7</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-redmi-a2plus-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi Redmi A2+ Device</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-extended-waiting-period-error-semaphore-timeout-issue-resolved/"><u>Resolved: Extended Waiting Period Error - Semaphore Timeout Issue Resolved</u></a></li>
+</ul></div>
 

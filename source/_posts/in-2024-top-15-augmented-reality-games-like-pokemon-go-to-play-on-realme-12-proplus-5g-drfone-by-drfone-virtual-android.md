@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 12 Pro+ 5G | Dr.fone
-date: 2024-11-23T17:03:55.777Z
-updated: 2024-11-26T17:09:40.450Z
+date: 2024-12-04T08:29:40.865Z
+updated: 2024-12-05T23:48:07.117Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/9420d8c67dc649498f45244e433ec706e66933c2b
 There was a big craze that made a fuzz with game enthusiasts and fans alike back in 2016. This was the year when the game Pokémon Go was released to the public. For some players, this was a show that they grew up watching and having that built into a game where they, themselves, can also catch and collect creatures. People made sure that they downloaded it to their phone and went outside to catch their very own Pokémon creatures to collect and train. Even in 2023, Pokémon Go is still popular with around 333,000 active daily users.
 
 For some, Pokémon Go is probably not a game that piques their interest but wants similar games where you can also go to a location and play some challenge or game. Aside from the fact that it encourages people to walk or move, it also has game incentives that push the players to win the game. For those of you who want other games to play similar to Pokémon Go, we have searched the interest for the list and will share them with all of you so you can download and try which games will suit your interests more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: AR Games
 
@@ -78,10 +74,6 @@ Dragon Quest Walk is a game for those people who love watching or reading about 
 
 ![dragon quest walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.square_enix.android_googleplay.dqwalkj&hl=en&gl=US) _
 
 ### 13\. Pokémon Sword And Shield
@@ -107,17 +99,21 @@ Ghost Busters World is a game that was created and inspired by the Ghost Busters
 
 ![ghost busters world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android) _
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Geocaching
 
 If you love searching and hunting for treasure, then Geocaching is the perfect game for you. Geocaching is known to be the “world’s largest treasure hunt” where you search for treasures that were hidden by other enthusiasts such as yourself. This game was created way before Pokémon Go was released back in 2000 and has created a generation of geocachers. Players will need to solve puzzles to be able to get the treasure which makes your treasure hunting more exciting.
 
 ![geocaching](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503) _
@@ -154,18 +150,22 @@ The Witcher: Monster Slayer is a game that will be a big hit for gamers who like
 
 ![the witcher: monster slayer](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-15.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647) _
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. The Walk
 
 If you love going for walks, then The Walk is the game that you should try to elevate your walking experience. In this game, you are given different goals per day that you must complete gaining rewards. This game will change your boring daily walks and make them more exciting, unique, and interesting.
 
 ![the walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.thewalk2&hl=en&gl=US) _
 
@@ -227,19 +227,11 @@ This is an evolution of Dratini, which has a long scaly serpent-like body. It st
 
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Dragonite
 
 This is a Pokémon character that truly resembles a dragon and is the second evolution of Dratini. It has a yellow thick body, and a couple of antennae that come out of its forehead. It has a striated underbelly. The body is quite large when compared to the small wings.
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Where can I find the Dratini nest?
 
@@ -250,6 +242,10 @@ You may also g West to Squirtle Nest where you can get a lot of Dratini.
 Dratini has a 5% spawning chance every day, so if you have the time, you can spend it on these sites as you enjoy the watery view and wait for it to appear.
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
@@ -288,15 +284,15 @@ Looking at the map, you can now see the actual location of your device. If the c
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
 The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
@@ -307,7 +303,7 @@ Camping and looking for other Pokémon in the area will help you cool down and t
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This is how your location will be viewed on the map.
@@ -317,10 +313,6 @@ This is how your location will be viewed on the map.
 This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## In conclusion
 
@@ -341,10 +333,6 @@ To make it even better, we are hosting a special event to boost your Pokémon Da
 ## Celebrate Pokémon Day with Dr.Fone - Virtual Location
 
 Play our special connect-the-dots game within one minute of the designated time, and you could win a Dr. Fone - Virtual Location 33% OFF coupon! Dr.Fone - Virtual Location can go beyond your virtual location and catch rare Pokémon without stepping outside. Participate in our special event and catch Pokémons from all over the world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Event Time
 
@@ -450,17 +438,29 @@ Once your phone is connected, select “Teleport Mode” from the toolbar near t
 
 ![select the teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4. Choose the location.**
 
 Now, click on the search bar and type in the name of the location you want to use. Once you have added the location, hit “Enter” to move to the next step.
 
 ![type in a location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5. Arrive at your desired location.**
 
 Now, the map will show your desired location, and you will be prompted to confirm the teleport. For this, click on “Move Here.”
 
 ![confirm the teleport](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6. Location changed.**
 
@@ -509,17 +509,16 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-coded-chronicles-top-10-roguelike-journeys/"><u>[New] 2024 Approved Coded Chronicles Top 10 Roguelike Journeys</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-top-picks-non-intrusive-android-recorders/"><u>2024 Approved Top Picks Non-Intrusive Android Recorders</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/essential-steps-for-setting-up-your-new-ipad-tips-and-tricks-from-zdnet/"><u>Essential Steps for Setting Up Your New iPad - Tips & Tricks From ZDNet</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor 90 GT? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme GT 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-performance-issues-stop-warcraft-reforged-from-crashing-on-your-pc-2024-solutions/"><u>Resolving Performance Issues: Stop Warcraft ^[Reforged] From Crashing on Your PC (2024 Solutions)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/k-free-tunes-steps-for-youtube-content-creators/"><u>Unlock Free Tunes Steps for YouTube Content Creators</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-to-newest-version-of-pl23n-serial-converter-drivers-on-pcs-with-windows-os/"><u>Update to Newest Version of PL23n Serial Converter Drivers on PCs with Windows OS</u></a></li>
-<li><a href="https://win-blog.techidaily.com/warzone-woes-be-gone-masterful-methods-for-conquering-the-2024-black-screen-glitch-in-cod-battle-royale/"><u>Warzone Woes Be Gone! Masterful Methods for Conquering the 2024 Black Screen Glitch in COD Battle Royale</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-mov-mastery-on-windows-11-discover-the-best-recording-methods-from-our-six-step-guide/"><u>[New] .MOV Mastery on Windows 11 - Discover the Best Recording Methods From Our Six-Step Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pixel-perfection-portfolio-best-animation-transformation-tools/"><u>[Updated] Pixel Perfection Portfolio Best Animation Transformation Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/maximize-your-chat-experience-a-complete-guide-to-pinning-in-discord-for-2024/"><u>Maximize Your Chat Experience A Complete Guide to Pinning in Discord for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-wont-play-on-my-galaxy-f54-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>MP4 won't play on my Galaxy F54 5G</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-networking-sites-facebook-twitter-instagram-and-youtube/"><u>Top Social Networking Sites: Facebook, Twitter, Instagram & YouTube</u></a></li>
 </ul></div>
 

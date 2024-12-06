@@ -1,7 +1,7 @@
 ---
 title: In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme 12 5G | Dr.fone
-date: 2024-11-20T17:52:30.029Z
-updated: 2024-11-26T16:41:41.441Z
+date: 2024-11-30T05:42:10.045Z
+updated: 2024-12-06T02:22:49.585Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -38,7 +38,7 @@ The next league that comes is Ultra League, which raises the CP cap to 2,500. Le
 In the same way, Venusaur with Frenzy Plant and Swampert with Hydro Cannon are also popular choices in this league.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Master League
@@ -103,6 +103,10 @@ This **is the best Pokémon in Pokémon GO PvP** and is known for its unique pre
 
 ![eternatus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Eternatus is a powerful legendary Pokemon with a type of Poison and Dragon. It is believed to be discovered in the Galar region and is the main antagonist in Pokémon Sword and Shield. Vulnerabilities of this Pokémon are Dragon, Ground, Ice, and Psychic-type moves. With an impressive max CP of 5007, it receives a boost in cloudy and windy weather.
 
 The top moves for Eternatus are Dragon Tail and Dragon Pulse, delivering a strong 16.69 damage per second in neutral weather. In battles, it can deal a hefty 678.7 damage before fainting. Consider adding Eternatus to your team, especially when facing opponents who are weak to its Poison and Dragon-type moves.
@@ -123,10 +127,6 @@ The recommended moveset for Steelix includes Iron Tail and Heavy Slam, providing
 | --- | --- | --- |
 | Steel and Ground | Dragon, Bug, Rock, Fairy, Psychic, Steel, Electric, Flying, Normal, Poison | Fighting, Fire, Ground, Water |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Gligar
 
 ![gligar pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-9.jpg)
@@ -138,10 +138,6 @@ Gligar uses its clawed hind legs and large pincers to grab onto its prey's face,
 | **Type** | **Strong Against** | **Weak Against** |
 | --- | --- | --- |
 | Ground and Flying | Electric, Bug, Ground, Fighting, Poison | Ice, Water |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Carbink
 
@@ -178,19 +174,11 @@ Launch [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/pho
 
 ![access and activate teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Step 2: Update Your Desired Location Through Teleport Mode
 
 When you enable Teleport Mode, use the search bar at the top left. Here, enter your desired location and press "Enter" to mark it on the map. Afterward, verify the location details on the screen and click "Move Here" to confirm and update your phone's location.
 
 ![search location and move](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - Step 3: Set Your Destination Through Routes (If Required)
 
@@ -205,7 +193,7 @@ Once you've set your destination, decide if you want a "Round Trip" or "Loop Tri
 ![set parameters before moving](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4. Some Helpful Tips and Tricks To Win Pokémon GO PvP League
@@ -242,7 +230,7 @@ In this article, we will talk about the amazing benefits of Pokemon Go streaming
 In all actuality, Pokemon Go streaming is not different from other forms of live game streaming. You just play the game as usual and interact with your viewers throughout the duration. However, we cannot deny that Pokemon Go streaming has a more challenging format compared to others. Why so? Simply because the game itself requires large body movements and a few physical activities. But don’t sweat it. Streaming Pokemon Go online comes with tons of benefits. Check out the list below to find what exactly you can get from this endeavor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### It can provide an alternative source of income
@@ -250,6 +238,10 @@ In all actuality, Pokemon Go streaming is not different from other forms of live
 ![pokemon go streaming live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-1.JPG)
 
 We all know that video content online can be monetized through in-feed advertisements and sponsorships. The same thing goes for Pokemon Go streaming. You can earn a specific amount from every ad that appears on your livestream. Don’t worry. It doesn’t take much time and effort to implement. Most of the time, you just need to flash the promotional materials during the broadcast.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It can help you meet new friends or even famous people in the industry
 
@@ -265,6 +257,10 @@ It’s true to say that multi-tasking is the core of Pokemon Go streaming. Of co
 
 Fate works in mysterious ways. We never know what’s waiting ahead. One day, you’re just an ordinary Pokemon Go player who enjoys catching Pokemon around the neighborhood. The next, you’re a star trainer competing globally for championship events. That’s possible to happen with Pokemon Go streaming as your ultimate stepping stone. Hence, don’t ever underestimate the power of this venture.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Live-Stream Pokemon Go on Mobile Phones
 
 The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physical movement. For instance, you have to walk around the street to catch as many Pokemon as possible. Another thing is that you need to visit the physical location of the PokeStops to spin the Photo Disc. Therefore, it’s highly recommended to use mobile devices when streaming Pokemon Go adventures. Don’t fret. Most modern smartphones nowadays are capable of handling such demanding tasks. Do you want to try it now? Here’s a short guide to help you get started.
@@ -278,10 +274,6 @@ It’s fair to say that Pokemon Go streaming is not extremely particular when it
 ### Choose a live-streaming application and create an account
 
 ![streaming platform](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-4.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Of course, you can bring a full computer setup outside while exploring around. That’s why you should choose a live-streaming application with features that allow you to broadcast directly on Your Realme 12 5G. Don’t worry. There are lots of choices on the internet. Pick the best one, and then create your Pokemon Go streaming account. Optimize your profile and make sure that the details are complete.
 
@@ -350,15 +342,15 @@ To understand the dynamics of team composition, you should know that there are i
 
 ![hola free vpn](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Based on these different types of Pokemons, you can come up with the following teams to win your next battle:
 
 ### 1\. 2x Physical Sweeper, 2x Special Sweeper, Tanker, and Annoyer
 
 If you want to have an attacking team, then this would be the perfect combination. While the annoyer and tanker would drain the HP of the opponents, your sweeper Pokemons can finish them with their high attacking stats.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. 3x Sweepers (Physical/Special/Mixed), Tanker, Wall, and Annoyer
 
@@ -381,7 +373,7 @@ Even if you don’t have a lot of experience in the game, you can try this power
 ![Attacking Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Things to Consider while Creating your Pokemon Team
@@ -404,6 +396,10 @@ It is always recommended to have a diverse team so that your opponent can’t ha
 
 Even if you have a decent team, it doesn’t mean that it would excel in all scenarios. It is always recommended to keep practicing with your team every now and team. Also, feel free to edit your team by swapping Pokemons. We have discussed how to edit Pokemon teams in the next section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5: Research and pick rare Pokemons
 
 Most importantly, keep looking up for Pokemon team suggestions by experts online and via other Pokemon-related communities. Also, a lot of players suggest picking rare or legendary Pokemons as they have limited weaknesses, making them harder to be countered.
@@ -415,6 +411,10 @@ Ideally, you can come up with all kinds of teams in Pokemon games. Though, there
 The overall interface would largely vary on the game that you are playing. Let’s take the example of Pokemon Sword and Shield. At first, you can just go to the interface and select your team. Now, select the Pokemon of your choice and from the provided options, click on “Swap Pokemon”. This will provide a list of the available Pokemons that you can browse and choose a Pokemon to swap with.
 
 ![Swap Pokemon in a Team](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There you go! By following these tips, you would be able to come up with a winning Pokemon team for different games. I have included various examples of Pokemon team combinations here that you can also apply. Besides that, you can also follow the above-listed tips to create different styles of amazing teams in Pokemon games like Sword/Shield or Sun/Moon like a pro.
 
@@ -432,14 +432,22 @@ There you go! By following these tips, you would be able to come up with a winni
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-chart-your-course-to-youtube-success-with-these-techniques-for-2024/"><u>[New] Chart Your Course to YouTube Success with These Techniques for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unleash-creativity-winning-animation-projects-using-movie-maker-for-2024/"><u>[New] Unleash Creativity Winning Animation Projects Using Movie Maker for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor X7b? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Tecno Spark 20 Pro? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/pc-gaming-hacks-ending-the-saga-of-constant-crashes-in-outpost-infinity-siege-gameplay/"><u>PC Gaming Hacks: Ending the Saga of Constant Crashes in Outpost: Infinity Siege Gameplay</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-high-performance-components-a-look-at-toms-hardware-recommendations/"><u>Unveiling High-Performance Components: A Look at Tom's Hardware Recommendations</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-ace-your-social-media-game-essential-video-marketing-techniques-on-facebook/"><u>[New] Ace Your Social Media Game Essential Video Marketing Techniques on Facebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-strategic-use-of-outdoor-light-for-internal-comfort/"><u>[New] In 2024, Strategic Use of Outdoor Light for Internal Comfort</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-interpreting-single-photos-as-video-chronicles/"><u>[Updated] Interpreting Single Photos as Video Chronicles</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/enhancing-live-performance-dynamics-for-2024/"><u>Enhancing Live Performance Dynamics for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-vector-databases-for-ai-progress/"><u>Exploring Vector Databases for AI Progress</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersive-experiences-awaiting-unraveling-facebooks-metaverse-intentions/"><u>Immersive Experiences Awaiting: Unraveling Facebook's Metaverse Intentions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-sony-xperia-10-v-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Sony Xperia 10 V FRP Without Computer</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-yielding-yearly-yield-channel-to-currency-conversion/"><u>In 2024, Yielding Yearly Yield Channel to Currency Conversion</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/m1-or-m2-which-mac-wins-comparative-analysis-of-apple-mac-mini-and-mac-studio-performance/"><u>M1 or M2 – Which Mac Wins? Comparative Analysis of Apple Mac Mini and Mac Studio Performance</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor Play 40C | Dr.fone</u></a></li>
 </ul></div>
 
