@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why is iPogo not working On Poco F5 5G? Fixed | Dr.fone
-date: 2024-07-14T10:02:37.682Z
-updated: 2024-07-15T10:02:37.682Z
+date: 2024-12-06T07:59:54.622Z
+updated: 2024-12-11T16:02:42.481Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,7 +29,6 @@ iPogo is a free to use Pokémon Go++ mod which can be downloaded as an APK file 
 - You keep track of Pokémon spawns, quests and raids using the feed on your iPogo.
 
 With all these amazing benefits at hand, it seems almost unfair to not be able to make the best of it if iPogo keeps crashing or stops working. Let’s look into the probable reasons why your iPogo is not working and explore methods to solve this dilemma.
-
 
 ## Part 1: Common problem that iPogo is not working
 
@@ -84,19 +83,21 @@ Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, inst
 
 Now, grab your iPhone and get it connected with the PC using the lightening cable. Once done, hit on “Get Started” to begin spoofing.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Check Location**
 
 You will notice a map on the screen now. As it comes, you got to click on ‘Centre On’ to accurately pin point the GPS to your location.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Enable Teleport Mode**
 
@@ -104,13 +105,14 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Start Teleporting**
 
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Now, the location is changed. You can now open any location based app on your iPhone and check the location. It will show the location you have selected.
@@ -139,6 +141,10 @@ The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glow
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
 Depending on the specific Pokémon you want to evolve, you might need additional items or even need to perform a particular task. Some Pokémon will need to be walked as your Buddy Pokémon before they can evolve. Others can be evolved through trading them. Others can only evolve with the help of evolution items like the Sun Stone.
@@ -162,6 +168,10 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Cottonee | Sun Stone and 50 Cottonee candy | Whimsicott |
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
@@ -190,6 +200,10 @@ Throughout your game, Professor Willow will need your help to learn more about P
 Among the different types of research the professor sends you is field research. You can collect your field research tasks by spinning the Photo Disc at a PokéStop. You can only collect and work on three field research tasks simultaneously, though a fourth one will open if you receive bonus research. Moreover, you and your friends can work together to complete the same field research if you all go to the same PokéStop on the same day.
 
 As you’re completing your field research tasks, you can collect your rewards, earn stamps, and unlock breakthroughs. Hopefully, one of the rewards you receive will include the Sun Stone, allowing you to evolve some of your Pokémon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Special Research
 
@@ -225,8 +239,6 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
@@ -242,9 +254,6 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set up mock location on your phone](https://images.wondershare.com/drfone/guide/vl-connect-android-3.png)
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
@@ -255,11 +264,13 @@ Finally, to start getting Sun Stones and other rarer items more efficiently, you
 
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
-
-
 
 ## Reasons why Pokémon GPS does not Work On Poco F5 5G?
 
@@ -280,11 +291,19 @@ There is a possibility that the Wi-Fi is not working and this is the main reason
 
 ![Turn On Wi Fi iPhone](https://drfone.wondershare.com/2020/Turn_On_Wi-Fi_iPhone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fixture 2: Reload the game
 
 This is another important aspect that should be taken care of if the Pokémon Go GPS not working. Reloading the game makes sure that it is refreshed and this also leads to issue fixture when it comes to GPS signals. Do this by simply pressing the home button and returning to the home screen. Open a new application or do something else for the moment. Enter the multitasking screen by double-pressing the home screen button. Swipe to the Pokémon Go card and reenter the game.
 
 ![Reload game iPhone](https://drfone.wondershare.com/2020/Reload_game_iPhone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fixture 3: Restart the Phone
 
@@ -334,6 +353,10 @@ The location will be locked on the iPhone and it will display the same location 
 
 ![virtual location 6](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: 3 Ways to fix Pokémon GPS not working on Android devices
 
 The android devices might also get into an issue that is under discussion. To make sure that the problem is fixed it is advised to follow the 3 most important ways that are discussed in this section.
@@ -344,9 +367,6 @@ Swipe down to access the notification panel of the program. Make sure that the l
 
 ![Turn on location service andriod](https://drfone.wondershare.com/2020/Turn_on_location_service_andriod.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Restart the Poco F5 5G device
 
 This is another important way to get the GPS signal as it will refresh the phone. Just long-press the power button and select the option of restart from the screen that appears.
@@ -363,9 +383,6 @@ This is another important aspect. There are auto-updates disabled by some users 
 
 The Dr. Fone Virtual location is the best and the most advanced program that can be used to make sure that location spoofing is made easy. The program is not only easy to use but it has been developed to get the players the best location services that they want. For all the location and AR-based games, it is advised to use this program as it will overcome all sorts of issues. With Dr. Fone's virtual location it is easy to make sure that the location is spoofed for iOS that does not let it do otherwise. Dr. Fone will not only get you the lifetime of updates but will also ensure that you get the best results with respect to location.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -378,9 +395,20 @@ The Dr. Fone Virtual location is the best and the most advanced program that can
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-explore-the-best-9-gif-recorders-for-windows-seamless-animation-saving/"><u>[New] 2024 Approved Explore the Best 9 GIF Recorders for Windows Seamless Animation Saving</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-fixing-half-silenced-facebook-video-volume/"><u>[New] Fixing Half-Silenced Facebook Video Volume</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-laughable-film-grabber-review/"><u>2024 Approved Laughable Film Grabber Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-ultimate-guide-to-longer-instagram-videos/"><u>2024 Approved The Ultimate Guide to Longer Instagram Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-tips-to-effortlessly-insert-music-into-video-editing-sessions/"><u>2024 Approved Tips to Effortlessly Insert Music Into Video Editing Sessions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-basketball-enthusiasts-guide-to-online-viewing/"><u>In 2024, Basketball Enthusiast's Guide to Online Viewing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-ios-chatgpt-dominates-web-app-experience/"><u>Why iOS ChatGPT Dominates Web App Experience</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 5G? | Dr.fone
-date: 2024-12-04T13:50:56.605Z
-updated: 2024-12-05T17:52:54.711Z
+date: 2024-12-09T04:46:39.856Z
+updated: 2024-12-12T06:54:41.344Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,10 +29,6 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2. Pokémon Go Sun Stone Evolutions Explained
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
@@ -45,9 +41,17 @@ Pokémon Sun Stone evolutions will require you to collect the Sun Stone and a ce
 
 You can always check out how to evolve your Pokémon in your Pokédex.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
@@ -89,10 +93,6 @@ Among the different types of research the professor sends you is field research.
 
 As you’re completing your field research tasks, you can collect your rewards, earn stamps, and unlock breakthroughs. Hopefully, one of the rewards you receive will include the Sun Stone, allowing you to evolve some of your Pokémon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Special Research
 
 With field research, you have some flexibility. You can visit PokéStops when you’re up for them, and you can even discard some tasks if they’re too difficult for you. With special research, you don’t have all that much flexibility.
@@ -100,6 +100,10 @@ With field research, you have some flexibility. You can visit PokéStops when yo
 Professor Willow will contact you directly and give you specific tasks you must complete. You can’t disregard or discard them.
 
 As a rule, special research will be more involved and will likely last longer than field research. However, your rewards will usually be much more valuable, and you’ll exponentially increase your chances of obtaining a Sun Stone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Gyms and PokeStops
 
@@ -112,10 +116,6 @@ Usually, it’s in your best interest to go to more popular areas with more Pok�
 ## Part 5. How to Gather Sun Stones Efficiently
 
 ![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Field research, special research, and spinning gyms and PokéStops are the only ways you could acquire the Sun Stone in Pokémon Go. However, that doesn’t mean you’ll need to grind day in and day out, trying to explore as much of your neighborhood as possible while playing. You can always make things a bit more efficient than that.
 
@@ -142,10 +142,6 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 ![choose the Realme 12 5G device you want to connect to dr.fone](https://images.wondershare.com/drfone/guide/vl-connect-android-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6. On your phone, tap **Allow USB Debugging**;
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
@@ -154,6 +150,10 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Pay Attention to Community Days and Special Events
 
 Finally, to start getting Sun Stones and other rarer items more efficiently, you’ll always want to pay close attention to community days and special events. Pokémon Go is a very active game with frequent high-rewarding events that could happen at any time. Since these events are time-limited, you’ll always want to know precisely when they start and end.
@@ -161,7 +161,7 @@ Finally, to start getting Sun Stones and other rarer items more efficiently, you
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -173,6 +173,10 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 iSpoofer is a location spoofer that allows you to change your location on your device. This is useful for games like Pokemon Go, where you can catch Pokemons from different regions without leaving your home. However, iSpoofer is not available for download anymore. If you are looking for an alternative to iSpoofer, you can use Dr.Fone Virtual Location. Here's how you can use Dr.Fone Virtual Location to spoof your location on your Realme 12 5G.
 
 [![avatar](https://drfone.wondershare.com/images/alice-mj.png)](https://drfone.wondershare.com/author/alice-mj/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 iSpoofer is one of the most useful tools for iOS users, that’s designed to simulate a user's GPS location. With iSpoofer, you can change your current location to anywhere in the world and access geo-restricted content without any hassle. While the tool has several real-world applications, the majority of users use iSpoofer to fake their location to catch rare Pokemon in Pokemon Go.
 
@@ -256,7 +260,7 @@ Step 4 - The pointer will move to the selected location automatically. Finally, 
 That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtual Location (iOS).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pokemon Go No GPS Signal? Here's Every Possible Solution On Realme 12 5G
@@ -292,6 +296,10 @@ Before taking any drastic measures, make sure that the location services on your
 
 After that, you can restart the app and check if it would fix the GPS Pokemon Go issue or not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 2: Grant the Pokemon Go app Location Access
 
 Turning on the location services on your iPhone is not enough and you need to grant the GPS access to the Pokemon Go app. To fix the Pokemon Go GPS problem on your iPhone, simply visit its Settings > Privacy > Location Services. Now, from the list of the installed apps, select Pokemon Go and make sure it can access the GPS on your iPhone while running (or always).
@@ -306,17 +314,9 @@ To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Priv
 
 ![iphone precise location](https://images.wondershare.com/drfone/2020/pokemon/iphone-precise-location.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 4: Step Into an Open Area
 
 If you're currently in an area with poor GPS reception due to buildings or trees, try moving to an open area with a clear view of the sky. This can significantly improve your GPS signal strength.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 5: Restart the App and the Realme 12 5G device
 
@@ -338,19 +338,11 @@ You can just slide down the Control Center and tap on the GPS button to enable t
 
 ![android location services](https://images.wondershare.com/drfone/2020/pokemon/android-location-services.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2: Grant Location access to Pokemon Go
 
 If you have not granted the location services permission to Pokemon Go, then you can get the no GPS signal error on it. To fix the Pokemon Go GPS issues, you can go to its Settings > Location > App-based Permissions and enable the GPS access for Pokemon Go.
 
 ![pokemon go location access](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-access.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Reinstall the Pokemon Go App
 
@@ -363,6 +355,10 @@ As listed above, one of the reasons for this Pokemon Go GPS bug could be a corru
 If the Pokemon Go GPS is not accurate on your device, then you need to change its accuracy index on your phone. You can just go to your phone’s Settings > Location > Location Mode and set it to “High Accuracy” so that Pokemon Go can accurately display your present location.
 
 ![android location mode accuracy](https://images.wondershare.com/drfone/2020/pokemon/android-location-mode-accuracy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Contact Pokemon Go Support
 
@@ -381,6 +377,10 @@ If you are still getting Pokemon Go no GPS signal on your device, then you can u
 - There is no need to jailbreak your iPhone to spoof its location with Dr.Fone – Virtual Location (iOS) and it won’t compromise your account as well.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 I’m sure that after reading this post, you would be able to fix any Pokemon Go GPS problem on your iOS or Android device. Though, if the Pokemon Go GPS bug is still troubling you, then consider using Dr.Fone – Virtual Location (iOS). It is a user-friendly and 100% secure desktop application that would let you change your iPhone location anywhere you want in seconds.
 
@@ -402,17 +402,18 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://program-issues.techidaily.com/solved-connection-to-blizzard-game-server-lost/"><u>[SOLVED] Connection to Blizzard Game Server Lost</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-dominate-the-digital-arena-audience-expansion-on-youtube/"><u>[Updated] In 2024, Dominate the Digital Arena Audience Expansion on Youtube</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-compendium-for-professionals-in-vivacut-video-editing/"><u>2024 Approved The Ultimate Compendium for Professionals in VivaCut Video Editing</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/do-interactions-impact-chatgpts-knowledge-growth/"><u>Do Interactions Impact ChatGPT's Knowledge Growth?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Honor Play 8T | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-professional-recorder-capture-studio-win10-edition/"><u>In 2024, Professional Recorder Capture Studio Win10 Edition</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-infinix-zero-5g-2023-turbo-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Infinix Zero 5G 2023 Turbo FRP Without Computer</u></a></li>
-<li><a href="https://windows11.techidaily.com/no-more-surprises-how-microsoft-excel-stops-forcing-dates-on-you/"><u>No More Surprises: How Microsoft Excel Stops Forcing Dates on You</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-ultimate-sky-battle-drone-racing-fundamentals-and-top-5-fpv-titans/"><u>The Ultimate Sky Battle Drone Racing Fundamentals & Top 5 FPV Titans</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-youtube-seo-techniques-for-2024/"><u>[New] The Ultimate Guide to YouTube SEO Techniques for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1716069624410-updated-2024-approved-leveraging-built-in-recorders-on-mate-1020-and-p2010-series-to-screen-capture/"><u>[Updated] 2024 Approved Leveraging Built-In Recorders on Mate 10/20 & P20/10 Series to Screen Capture.</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-vimeo-video-editing-top-5-techniques-for-cuts-and-trimming-for-2024/"><u>[Updated] Mastering Vimeo Video Editing Top 5 Techniques for Cuts & Trimming for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-keyiphones-best-podcast-players-ranked/"><u>2024 Approved KeyiPhone's Best Podcast Players Ranked</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-guide-to-economic-warfare-and-empire-expansion-in-offworld-trading-company-insights-from-a-veteran-player/"><u>A Guide to Economic Warfare and Empire Expansion in Offworld Trading Company: Insights From a Veteran Player.</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/logitech-g203-webcam-driver-download-for-windows-users-latest-versions-included/"><u>Logitech G203 Webcam Driver Download for Windows Users: Latest Versions Included</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-transforming-ogv-files-into-gifs-using-top-ranked-gif-creation-tools/"><u>Ultimate Guide: Transforming OGV Files Into GIFs Using Top-Ranked GIF Creation Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/vr-tech-comparison-apples-vision-pro-vs-meta-quest-understanding-the-differences-in-tracking-space/"><u>VR Tech Comparison: Apple's Vision Pro Vs. Meta Quest - Understanding the Differences in Tracking Space</u></a></li>
 </ul></div>
 

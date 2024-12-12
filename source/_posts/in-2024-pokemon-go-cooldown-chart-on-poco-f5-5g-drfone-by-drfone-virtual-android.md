@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Poco F5 5G | Dr.fone
-date: 2024-07-14T10:02:57.815Z
-updated: 2024-07-15T10:02:57.815Z
+date: 2024-12-06T20:24:17.577Z
+updated: 2024-12-12T03:19:11.051Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -54,6 +58,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -132,16 +140,12 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 3:** Teleport your location on Pokémon Go
@@ -156,13 +160,9 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
 
 ## How to use Pokemon Go Joystick on Poco F5 5G?
 
@@ -171,8 +171,6 @@ Pokemon Go is one of the most popular augmented reality location-based games tha
 ![Pokemon Go Joystick Hack Banner](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-1.jpg)
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/qLfCHnwsagk"></iframe>
-
-
 
 ## Part 1: What’s the Need for a Pokemon Go Joystick?
 
@@ -190,9 +188,6 @@ A Pokemon Go spoofing iOS/Android solution can easily change your present locati
 
 Please note that the use of any location spoofing or Pokemon Go hack (joystick) is against the terms of Niantic. Therefore, if your account is found using these hacks, then Niantic can display warning messages. If after getting multiple warnings, the hack is still being detected, then it can lead to a temporary or even a permanent ban of your account.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
 
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
@@ -216,6 +211,10 @@ Firstly, you can just connect your iOS device to the computer and launch Dr.Fone
 Once your iPhone is connected, its present location would automatically be displayed on the screen. To spoof the Pokemon Go location on iOS, select the “Teleport Mode” option and enter the target location’s address/name/coordinates on the search bar.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
@@ -245,24 +244,16 @@ To start with, you can just go to the Play Store page of the GPS Joystick app an
 
 ![GPS Joystick Android Install](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer APK the default mock location app.
 
 **Step 2: Set up the preferences to fake GPS on Pokemon Go**
 
 Great! Now all you need to do is launch the GPS Joystick app and go to its Settings to spoof your location. Here, you can enter the exact coordinates of the target location to spoof.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![GPS Joystick Enter Coordinates](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-4.jpg)
 
 Besides that, you can also tap on the map option to directly enter the address or the name of the target location.
@@ -290,6 +281,10 @@ At first, make sure that your Poco F5 5G is rooted before you install this Pokem
 You can now launch the application and go to its Settings to enable the Root Mode. Also, make it the default mock location app by visiting the Developer Option on your phone.
 
 ![FGL Pro Root Mode](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Start Simulating the movement of your Poco F5 5G**
 
@@ -334,9 +329,17 @@ As aforementioned, dawn stone is an evolution item that is used to evolve certai
 
 Kirlia is a small humanoid Pokémon whose upper body and arms are white while the waist and legs are light green. This makes it appear as though it is wearing tights. Kirlia's natural abilities include synchronization and trace. It loves dancing on sunny mornings and becomes more beautiful when they sense e positive emotions of trainers. A vast majority of Kirlia live in the cities, although some are still found in the forest. Kirlia evolved from Ralts and has two possible evolutions, namely Gardevoir and Gallade. If it reaches level 30, it evolves to Gardevoir. However, if it is male and given a dawn stone, it will evolve to Gallade.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Snorunt
 
 Snorunt is an ice-type Pokémon that was introduced in Generation III. It is also referred to as the "Snow Hat Pokémon." You can find Snorunt in seafoam café, snow canyon, or even in Mysterious Grotto. Furthermore, you can obtain it by trading or Pokémon Roulette. Snorunt can evolve into Glalie or Froslass. If it reaches level 42, Snorunt evolves to Glalie. For Snorunt to evolve into Froslass, it requires a dawn stone. However, the Snorunt must be a female to evolve to Froslass.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. Hacks and Tricks to get Dawn Stone Pokémon
 
@@ -354,30 +357,29 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3.** You should see three icons on the top-right of the subsequent page. Click the third icon to switch to the teleport mode. At the top-left, enter the location of the place you want to teleport to and click "Go."
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 4.** When the program has found the location, a dialog box will appear in the background. Click "Move Here" to teleport to this location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Use Pokémon Gotcha
 
 Pokémon Go-tcha makes hunting Pokémon and evolution items much easier. With this tool, you can go for a hunt without looking at your smartphone. When you run Go-tcha Evolve on the Pokémon Go application, you can set color animations and vibrations to alert you about Pokémon and pokestops that are in range. Moreover, you can use the auto-catch feature so that you don't have to respond to alerts. You can also check on time, your stats, and leverage the new pedometer feature to count your steps. This program comes with various exciting colors for you to choose from and a bunch of other great features.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Use iTools
 
 iTools location spoofer is another good GPS mocking tool that is suitable for Pokémon Go games. By faking the GPS location, you can easily access territories where rare Pokémon or evolution items are available while seated at home or in the office. This program supports iOS 12 devices or earlier versions. However, there are scores of people who have complained about several crashes. Nevertheless, you can try it if you have got some penny to spare.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -391,9 +393,20 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-ultimate-10-final-cut-pro-enhancers/"><u>[New] 2024 Approved The Ultimate 10 Final Cut Pro Enhancers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-beyond-ustream-live-streaming-choices/"><u>[New] Beyond Ustream Live Streaming Choices</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-cutting-edge-text-motion-designs/"><u>[New] In 2024, Cutting-Edge Text Motion Designs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-the-great-debate-should-you-go-for-obs-or-bandicam/"><u>[Updated] 2024 Approved The Great Debate Should You Go for OBS or Bandicam?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-trends-transforming-facebook-ad-campaigns/"><u>[Updated] 2024 Trends Transforming Facebook Ad Campaigns</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-speedy-strategies-capturing-your-screen-in-a-flash-dell/"><u>[Updated] In 2024, Speedy Strategies Capturing Your Screen in a Flash (Dell)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/master-the-skill-of-learning-behind-screen-scenes/"><u>Master the Skill of Learning Behind Screen Scenes</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-the-digital-age-a-guide-to-9-key-educational-technologies-for-students/"><u>Navigating the Digital Age: A Guide to 9 Key Educational Technologies for Students</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/step-by-step-guide-to-embedding-youtube-content-in-different-powerpoint-editions/"><u>Step-by-Step Guide to Embedding YouTube Content in Different PowerPoint Editions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-80-pro-straight-screen-edition-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor 80 Pro Straight Screen Edition? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

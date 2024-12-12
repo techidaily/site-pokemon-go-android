@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Poco F5 5G? | Dr.fone
-date: 2024-07-14T10:01:58.277Z
-updated: 2024-07-15T10:01:58.277Z
+date: 2024-12-07T11:22:54.389Z
+updated: 2024-12-12T01:02:45.288Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,11 +21,6 @@ Pokemon Go is one of the most popular augmented reality location-based games tha
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/qLfCHnwsagk"></iframe>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What’s the Need for a Pokemon Go Joystick?
 
 If you are an avid Pokemon Go player, then you might already know that the game demands us to step outside to catch Pokemons or participate in raids. Sadly, not everyone can travel so much on their own. Therefore, you might consider using a Pokemon Go joystick on iOS/Android under the following circumstances.
@@ -128,6 +123,10 @@ You can now launch the application and go to its Settings to enable the Root Mod
 
 ![FGL Pro Root Mode](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Start Simulating the movement of your Poco F5 5G**
 
 Great! Now, you can just launch the FGL Pro app on your phone and tap on the search icon to look for the target location. You can now adjust the location on the map and tap on the Start icon. There will be a GPS joystick location on the map that would let you simulate your movement accordingly on the map.
@@ -144,6 +143,10 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 
     ![Pokemon Go Cooldown Chart](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Make sure that the Pokemon Go joystick you are using is a reliable solution (like the ones listed above).
 - If you have already got a warning on your Pokemon Go account, then consider creating another account for using any fake GPS Pokemon Go hack instead.
 
@@ -156,6 +159,10 @@ Pokemon Go is Niantic’s most successful game that has taken the world by storm
 ## Part 1: Will the iSpoofer back on 2020?
 
 iSpoofer has been shut down. All its applications, websites, and other related services have been terminated. iSpoofer for pogo installation does not exist. If any website claims to give access to the application or iSpoofer direct download, it is fake. Also, the new Pokemon Go application version which is 0.195.0 has been updated to detect applications like iSpoofer, so on being detected, it may lead to a warning, or a permanent ban as well. And we don’t see the certainty to get it back soon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Detailed guide of iSpoofer for pogo installation
 
@@ -179,6 +186,10 @@ Follow the tutorial above for ispoofer for pogo installation. A mock location ha
 
 ![pokemon go ispoofer view](https://images.wondershare.com/drfone/2020/2020/pokemon-go-ispoofer-view.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Following these steps, disconnect your phone and launch Pokemon Go. From here you can either use the joystick to move around or use a “.gpx” file to add a preset route for you to move around. That would look like this -
 
 ![gpx file for preset route](https://images.wondershare.com/drfone/2020/2020/gpx-file-for-preset-route.jpg)
@@ -193,9 +204,6 @@ iSpoofer for pogo installation has the following disadvantages -
 
 All these issues are overcome with great detail by Dr. Fone Virtual Location (iOS) by Wondershare.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: Safer tool to spoof pokemon- drfone virtual location
 
 Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations. [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) by Wondershare is the new, safer app to spoof in Pokemon Go. The app uses mock location services to help you teleport to anywhere across the world. This also allows you to be safe from the detection software in Pokemon Go.
@@ -208,6 +216,10 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 - **The map view gives a 360o view –** By scrolling around the screen, you can get to see all the routes around you and plan accordingly.
 - **Auto-walk feature -** The game has an auto-walk feature in case you do not want to use the joystick to move around manually.
 - **Keyboard movement commands –** The player can also use the A, S, W and D keys on the keyboard to move around
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step by Step Guide to Install and use Dr. Fone Virtual Location -
 
@@ -235,12 +247,17 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 
 Your spoofed location is now the default location of your phone, and all the apps will recognize it. The maps app on your phone looks like this –
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The teleportation is now complete. Enjoy playing the game with no lags or errors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Alert
 
@@ -250,15 +267,16 @@ The notice looks like this -
 
 ![pokemon go account ban](https://images.wondershare.com/drfone/2020/2020/pokemon-go-account-ban.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The cool-down period between two locations is based on distance and you can refer to the table below to understand the time you need to wait before logging in again.
 
 ![cooldown time](https://images.wondershare.com/drfone/2020/2020/cooldown-time.jpg)
 
 Most gamers wait for the standard 2 hours before logging in again. This gives them access to all the game’s features like before.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We hope that this article has been informative, about Dr Fone Virtual Location and ispoofer for pogo installation. You can now spoof locations with ease by using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app. Vigilance is needed, and spoofing must be done by following all rules of cool down. This would prevent you from being caught by Niantic, and by Officer Jenny. We would like you to enjoy the game throughout without having to lose any of your levels and Pokemon.
@@ -271,7 +289,9 @@ If you're a regular Pokemon go player then the title of this article would have 
 
 One of the most convenient ways for Pokemon go trading without having to travel is by using some virtual location servers just like discord servers. Next, you need to make friends with other Pokemon go players who stay in far-off places. Remember, that these friends must be on your virtual location server. Only then, you can do Pokemon go trading with them. Hence, make sure to have your friends on your server. One of the most popular and easy-to-use virtual location servers is the Dr.Fone - Virtual Location. Using this you can shift your location to any location in the world. Dr. Fone is highly user-friendly and can easily change your location, let us learn to use the [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), shall we?
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to use Dr.Fone - Virtual Location to teleport to any location
 
@@ -280,6 +300,10 @@ Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any
 - **Tweak your location:** Using Dr.Fone - Virtual Location, you can change your location very easily. You can use this feature while playing virtual reality games and also to stay undercover from nosy relatives.
 - **Set the speed to mock GPS location:** While playing virtual reality location-based games, you can also set the pace of movement of your GPS. This will help you to become better at the game!
 - **Joystick simulated motion:** you can use the in-app joystick for simulating motion and moving around on the map.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step-by-step Tutorial
 
@@ -309,12 +333,7 @@ Subsequently, activate the "teleport mode" by clicking the icon shown in the ima
 
 Upon clicking on "go", a pop-up will appear showing you the distance of the location you have chosen. Tap on “Move Here” and the location would now be set to the location entered by you. Click on "center on" to check your location.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-
 
 ## Part 2: Which pokemon can you evolve with trading?
 
@@ -339,11 +358,6 @@ You need a Special Trade whenever you wish to trade a legendary Pokemon or a shi
 
 Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
 
-
-
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -356,9 +370,26 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-your-youtube-click-through-rate-upload-schedule-insights/"><u>[New] 2024 Approved Maximizing Your YouTube Click-Through Rate Upload Schedule Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ommon-youtube-shorts-when-thumbnails-disappear-without-notice-for-2024/"><u>[New] Common YouTube Shorts When Thumbnails Disappear Without Notice for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-streamlined-signal-synchronizer-for-podcasters/"><u>[Updated] Streamlined Signal Synchronizer For Podcasters</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722877208183-apples-latest-mystery-in-depth-rumors-on-design-specs-and-when-you-can-get-your-hands-on-the-apple-ring/"><u>Apple's Latest Mystery: In-Depth Rumors on Design, Specs, and When You Can Get Your Hands On The Apple Ring</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/forge-corporate-icons-without-spending-a-dime/"><u>Forge Corporate Icons Without Spending a Dime</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-toolkit-for-animating-letters/"><u>In 2024, Ultimate Toolkit for Animating Letters</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unlocking-the-secret-how-to-display-youtube-playlists-on-websites/"><u>In 2024, Unlocking the Secret How to Display YouTube Playlists on Websites</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-stability-overcoming-frequent-freezes-and-crashes-in-elex-ii-on-pcs/"><u>Mastering Stability: Overcoming Frequent Freezes and Crashes in Elex II on PCs</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/secure-your-vms-with-ease-using-aomeis-powerful-backup-manager-tool/"><u>Secure Your VMs with Ease Using AOMEI's Powerful Backup Manager Tool</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Honor X50 GT? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Here are Some Pro Tips for Pokemon Go PvP Battles On Realme 12+ 5G | Dr.fone
-date: 2024-11-28T23:32:25.729Z
-updated: 2024-12-05T22:28:47.768Z
+date: 2024-12-10T06:28:27.575Z
+updated: 2024-12-11T17:13:16.668Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,10 +21,6 @@ Ever since the Pokemon Go PvP mode has been introduced by Nintendo, there has be
 
 ![pokemon pvp battle tips banner](https://images.wondershare.com/drfone/2020/pokemon-pvp-battle-tips-banner.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Pro Strategies to Follow in PvP Pokemon Go Battles
 
 If you want to be good at the Pokemon Go PvP battles, then you must understand how the game works. Once you are ready, I would recommend some of these Pokemon PvP strategies that are followed by pro players.
@@ -41,6 +37,10 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 
 The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 2: Master all the Battle Moves
 
 Ideally, there are four different moves in any PvP Poke battle that you must master. The more battles you partake in, the better you would become.
@@ -52,11 +52,19 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 
 ![moves in pokemon pvp](https://images.wondershare.com/drfone/2020/moves-in-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 3: Check your Opponent’s Pokemons
 
 This has to be the most important thing that you should check before you start any Pokemon Go PvP battle. Right before starting the battle, you can check a list of the prospective opponents in your league. You can have a glimpse of their main Pokemons and pick your Pokemons accordingly so that you can counter their picks.
 
 ![opponent screen pokemon pvp](https://images.wondershare.com/drfone/2020/opponent-screen-pokemon-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 4: Know the current Meta
 
@@ -72,10 +80,6 @@ Now, instead of going with your ultimate attack, only perform the mild one. Your
 
 ![shield baiting strategy pokemon pvp](https://images.wondershare.com/drfone/2020/shield-baiting-strategy-pokemon-pvp.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tip 6: Learn to Counter Fast Moves
 
 To make the most of your shield and energy levels, you should learn how to counter moves. The first way to do this is by picking your Pokemons wisely. Your Pokemon would automatically get less damage if it can counter your opponent’s Pokemon.
@@ -84,11 +88,23 @@ During any PvP Poke battle, keep a count of your opponent’s moves to calculate
 
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 7: Sacrifice Swap
 
 This might sound surprising, but sometimes we have to sacrifice a Pokemon in a fight to win the battle. For instance, you can consider sacrificing a Pokemon that is at low energy and won’t be of much help later.
 
 In this way, you can swap it in the battle and let it take all the charge attack of your opponent. Once the Pokemon is sacrificed and has drained the opponent’s Pokemon, you can place another Pokemon to claim the victory.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: What Changes should be implemented in Pokemon Go PvP?
 
@@ -140,10 +156,6 @@ In the end, make sure that you have a perfect Pokemon that can end the battle an
 
 ![skarmory in pokemon go](https://images.wondershare.com/drfone/2020/skarmory-in-pokemon-go.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Secrets about the new Mechanics in PvP Pokemon Go Battles
 
 Lastly, if you want to level up in PvP Poke battles, then you should get to know about these three important mechanisms.
@@ -174,19 +186,11 @@ There are many fake GPS apps available that you can install, but only a few of t
 
 In this article, we will discuss more PGSharp and ban.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why Pokémon Go Account Get Banned
 
 The Niantic, the developer of Pokémon Go, is particular about the safety of the game. The main priority of them with Pokémon GO is to provide a fair game experience to players worldwide. If Niantic finds something wrong with the terms of the game, then it may ban your account.
 
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The following are the reasons that may cause to ban your account:
 
@@ -213,13 +217,13 @@ Now, when it gets installed, you can opt for a free trial or paid option. For a 
 
 ![pgsharp plan](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
@@ -230,10 +234,6 @@ Now, once you got the beta key, fill it in the login details to use the PGSharp.
 The best part is that the app needs no root or jailbreak your device, making it a secure fake GPS tool for android.
 
 Your account will not get banned when you use PGSharp to spoof Pokémon Go with little smartness.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Maximum Safe Distance to Teleport with PGSharp
 
@@ -260,10 +260,6 @@ Dr.Fone - Virtual Location also saves you from a ban and doesn’t require jailb
 To use it, you will need to install it on your device from the official site or click the "_Try It Free_" button below directly. Once installed, connect your Realme 12+ 5G to your computer and click on get the started icon. Now you have the world map-like interface where you can search for any desired location to spoof. So, all in all, it is very easy to use for a novice too. The best part is that it causes no ban like other unsafe spoofing apps.
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -311,6 +307,10 @@ For this step, you’ve got nothing to do. All three objectives have been automa
 
 **Rewards:** One Fast TM, One Charged TM, and 3 Rare Candies
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Giovani Special Research Task
 
 ![giovani special research](https://images.wondershare.com/drfone/2020/giovani-special-research.jpg)
@@ -319,11 +319,11 @@ After completing the quest above, Giovani Special Research or Looming in the Sha
 
 ![a troubling situation task](https://images.wondershare.com/drfone/2020/a-troubling-situation-task.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On completing one research step, you will be given a reward called the Super Rocket Radar. Like the Rocket Radar, the Super Rocket Radar can be equipped and unequipped from your Bag. This reward doesn't only show Giovani’s hideout, it also shows some of his Grunts hideouts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. What does the Pokemon Go Giovani Counter Contain?
 
@@ -350,7 +350,7 @@ Once you defeat Team Go Rocket's second lineup creatures, you will have to battl
 Now you know the best Giovani Pokemon Go counters to use against each lineup of creatures, leverage it to advance to the next phase of the game where you will face the big bad boss himself, Giovani.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3. Tips to Beat Giovani in Pokemon Go
@@ -407,20 +407,20 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-earning-strategies-for-successful-youtube-shorts-what-you-need-and-how-much/"><u>[New] In 2024, Earning Strategies for Successful Youtube Shorts What You Need & How Much?</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-how-to-share-vimeo-video-online/"><u>[New] In 2024, How to Share Vimeo Video Online</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transform-your-imagery-with-ar-and-accessible-luts/"><u>[New] Transform Your Imagery with AR & Accessible LUTs</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-expert-tips-to-ensure-seamless-and-timed-google-collaborative-sessions/"><u>[Updated] In 2024, Expert Tips to Ensure Seamless and Timed Google Collaborative Sessions</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-linuxs-best-pick-screen-capture-and-save-tools/"><u>2024 Approved Linux's Best Pick Screen Capture & Save Tools</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-motorola-moto-g13-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Motorola Moto G13? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-se-2022-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone SE (2022) Data From iTunes? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor Magic5 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme Narzo N55? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-nokia-g22-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Nokia G22 to New Phone | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor 90 Lite? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor Magic V2? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/resolving-the-avcodecdll-file-absence-issue-step-by-step-guide/"><u>Resolving the Avcodec.dll File Absence Issue: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elevate-your-ears-10-pro-tips-for-excellent-sound-quality/"><u>[Updated] 2024 Approved Elevate Your Ears 10 Pro Tips for Excellent Sound Quality</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-mastering-the-art-of-digital-image-combination/"><u>[Updated] Mastering the Art of Digital Image Combination</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-cutting-edge-editing-advanced-strategies-for-using-the-background-erase-feature/"><u>2024 Approved Cutting Edge Editing Advanced Strategies for Using the Background Erase Feature</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210790284-9780648595014-author-fears-and-how-to-overcome-them/"><u>Author Fears and How to Overcome Them | Free Book</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/can-an-issued-graphics-card-compromise-pc-performance-and-stability-insights-from-yl-computing-experts/"><u>Can an Issued Graphics Card Compromise PC Performance & Stability? - Insights From YL Computing Experts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/descargas-gratuitas-de-conversion-de-archivos-como-transformar-tu-video-mp3-en-formato-mov-sin-coste/"><u>Descargas Gratuitas De Conversión De Archivos: Cómo Transformar Tu Vídeo MP3 en Formato MOV Sin Coste</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-honor-80-pro-straight-screen-edition-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Honor 80 Pro Straight Screen Edition to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ins-and-outs-of-tracking-text-message-read-receipts/"><u>The Ins and Outs of Tracking Text Message Read Receipts</u></a></li>
+<li><a href="https://win11.techidaily.com/track-down-windows-shot-files-home/"><u>Track Down Windows Shot Files' Home</u></a></li>
 </ul></div>
 
