@@ -1,7 +1,7 @@
 ---
 title: Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco X5 | Dr.fone
-date: 2024-07-14T09:57:10.344Z
-updated: 2024-07-15T09:57:10.344Z
+date: 2024-12-13T20:51:00.668Z
+updated: 2024-12-18T17:19:55.553Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -55,6 +55,10 @@ Here are some of these popular Discord servers that you can join to find Pokemon
 
 ![dicord server pokedex100](https://images.wondershare.com/drfone/2020/202009/dicord-server-pokedex100.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Find Pokemon Go Friend Codes on Reddit?
 
 While some Discord groups are closed, most of the Reddit subs are open. It might surprise you, but some of the Pokemon-based Reddit subs even have millions of members. This would make it pretty easy for you to find Pokemon Go friend codes on Reddit. All you need to do is join these groups and find the mega thread for exchanging PoGo friend codes.
@@ -71,6 +75,10 @@ While some Discord groups are closed, most of the Reddit subs are open. It might
 - Pokemon Go Instinct
 
 ![pokemon go sub reddit](https://images.wondershare.com/drfone/2020/202009/pokemon-go-sub-reddit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Other Places to Find Pokemon Go Friend Codes
 
@@ -113,6 +121,10 @@ Once you have found Pokemon Go codes for friends, you can add them to your netwo
 
 ![pokemon go add friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-add-friend-codes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 6: How to Find new Pokemons to Level-up in the Game?
 
 Adding friends in Pokemon Go is not enough as you need to have some powerful Pokemon to win battles. Since going out and looking for Pokemons is not that feasible, consider using [Dr.Fone – Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Using this trusted application, you can easily spoof your iPhone location to catch tons of Pokemons.
@@ -126,8 +138,6 @@ Adding friends in Pokemon Go is not enough as you need to have some powerful Pok
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 Now when you know how to make new friends in Pokemon Go, you can easily expand your network. As you can see, you can find Pokemon Go friend codes from Reddit, Facebook, Discord, and several other social platforms. Though, to win more battles and level-up in the game, you can consider using Dr.Fone – Virtual Location (iOS). It is a 100% trusted application that would let you spoof your iPhone location so that you can catch your favorite Pokemons remotely.
-
-
 
 ## Where Is the Best Place to Catch Dratini On Poco X5
 
@@ -165,9 +175,6 @@ Dratini has a 5% spawning chance every day, so if you have the time, you can spe
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
 This is quite a common question for those who are new to the Pokémon universe. Basically, Dratini nests and spawn points are the same for a period of two weeks. The nests then migrate leaving the spawn points to spawn different types of Pokémon.
@@ -177,8 +184,9 @@ If the Dratini nest migrates, it can still come back in the future. You should a
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
 As mentioned earlier, Dratini can be found in certain places around the world. If you live outside these regions, you cannot be able to get Dratini. The best way to go about getting Dratini in such cases is to virtually relocate your device. This means that you can take your device to Tokyo nest sites even if you live in Africa.
@@ -212,9 +220,6 @@ Now go to the top side of your computer screen and click on the third icon on th
 
 The image below shows an example of coordinates entered for Rome, Italy.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
@@ -233,22 +238,17 @@ This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-
-
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
 
-
-
 ## Pokemon Go Error 12 Failed to Detect Location On Poco X5?
 
 Pokemon Go is a popular game that has taken the world by storm. It is an augmented reality game that allows players to catch Pokemon in the real world using their smartphones. However, many players have reported encountering the "Failed to detect location (12)" error while playing the game. This error can be frustrating as it prevents players from playing the game properly. In this article, we will discuss what causes the "Failed to detect location (12)" error in Pokemon Go and how you can fix it on your Poco X5.
 
 Pokémon Go has been on the nerves of its players and this is all because of the AR notion that it presents. The failed to detect location 12 is one of the most common errors that are faced by the players while playing this game. You might not believe but the GPS signals and the location settings on iPhone or Android are the two main reasons for this error. It can be resolved with ease and this article has been written to get the work done with ease. Applying the methods explained will ensure that you get the best results overall.
-
 
 ## Part 1: Why is Location Important in Pokémon Go?
 
@@ -262,9 +262,17 @@ The best part of this attribute is that it is the center of the user experience 
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### iii. Place Attribution
 
 The system within the system that has been designed by the game developers makes sure that the location inaccuracies are accounted for. This also means that the 4-meter accuracy of the GPS is further enhanced to deal with the perfect location identification of each player.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Ways to Fix Error 12 on Pokémon Go
 
@@ -286,15 +294,16 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 2: Location Activation
 
 This is another important and easy way to make sure that the Pokémon failed to detect location 12 error is resolved with ease and perfection. To execute the process the steps are mentioned as follows:
 
 **Step 1.** Open the settings on your Phone to start with:
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![pokemon error 12 4](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_4.jpg)
 
 **Step 2.** Tap on the passwords and security to proceed with the process:
@@ -313,13 +322,15 @@ Just long-press the power button and choose the reboot option from the menu that
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
-
-
 
 ### The Process
 
@@ -328,6 +339,10 @@ Just long-press the power button and choose the reboot option from the menu that
 To begin the process, download and install the program to get going with the process.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Enable Virtual Location**
 
@@ -345,9 +360,6 @@ The center on the button on the next screen is to be clicked to get the accurate
 
 On the upper right corner click the icon on the third to begin teleportation or spoofing to be precise. Enter the name of the place where you want to teleport to.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 5: Move to the teleported location**
@@ -362,12 +374,13 @@ The location will be locked by the program and your iPhone will also show the sa
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the state-of-the-art program to overcome Pokémon go unable to detect location 12 on iOS devices. It has an intuitive interface and it also allows the users to overcome the issues that traditional spoofing programs present. It is being updated constantly which also means that you will be able to get the best results. There is no program on the internet that can resolve the error that failed to detect location 12 in Pokémon go as easily as this one does.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -381,9 +394,19 @@ The location will be locked by the program and your iPhone will also show the sa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-techniques-for-manipulating-iphone-photos/"><u>[New] Expert Techniques for Manipulating iPhone Photos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-stream-talent-twitter-live-broadcast-basics/"><u>[New] Stream Talent Twitter Live Broadcast Basics</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-concealing-confidentiality-blurring-identity-in-recordings/"><u>[Updated] Concealing Confidentiality Blurring Identity in Recordings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bridging-gaps-using-samsung-flow-for-device-synergy/"><u>Bridging Gaps: Using Samsung Flow for Device Synergy</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-honor-90-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-extract-gif-content-seamlessly-on-various-devices/"><u>How To Extract GIF Content Seamlessly on Various Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-xiaomi-redmi-13c-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Xiaomi Redmi 13C 5G</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Magic 6 Pro | Dr.fone</u></a></li>
+</ul></div>
 

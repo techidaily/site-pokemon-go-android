@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12+ 5G | Dr.fone
-date: 2024-12-06T08:31:32.476Z
-updated: 2024-12-12T12:19:18.275Z
+date: 2024-12-13T19:38:10.068Z
+updated: 2024-12-18T22:40:53.066Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,10 +26,6 @@ There are a limited number of Rare Candy in Pokemon Go Fire Red. However, you ca
 When you use a Rare Candy, you get enough Exp. Points to move to the next level. This means that it is best to use them for getting to the next level, especially when it becomes too challenging. Although you get to the next level, you will not earn any Effort Value Points, which will make your Pokemon weaker than it would have been if you had leveled up through training.
 
 ![Pokemon Rare Candy Trainer Card](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to get rare candy in Pokemon Go Fire Red?
 
@@ -60,7 +56,7 @@ With Dr.Fone - Virtual Location launched on your computer, connect your smartpho
 ![search for the required location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Teleport to Targeted Location**
@@ -85,6 +81,10 @@ You would have to visit certain locations in order to get Pokemon Go Rare Candy 
 - Take a journey to the Ghost Tower
 - When you get to the Safari Zone Warden’s House, check behind the boulder.
 - You may also use Meowth or any other Pokemon that has Pickup abilities and try your luck.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Getting Pokémon Go Fire Red Rare Candy with cheat codes
 
@@ -128,10 +128,6 @@ Wait for it to be activated and then save it.
 
 ![Enter details of the cheat code](https://images.wondershare.com/drfone/2020/my-boy-pokemon-fire-red-cheat-codes-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4 –** Enter the Pokéstop and deactivate the cheat code.
 
 **Step 5 –** Go to your computer and type in “PC > Item Storage”.
@@ -159,7 +155,7 @@ The Mystery Box is a particular object in Pokémon Go that briefly roots the myt
 ![mystery box pokemon go](https://drfone.wondershare.com/2020/mystery-box-pokemon-go.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Reportedly, you are required to have the mobile version of Home connected to your Nintendo Account. This can be carried out simply by downloading the Home app from Your Realme 12+ 5G store and tracking the instructions given on your screen in the initialization process of your app. After connecting the mobile Home application to your Nintendo account, track the steps below to connect Pokémon go to Home App:
@@ -170,21 +166,17 @@ Reportedly, you are required to have the mobile version of Home connected to you
 
 ![pokemon settings](https://drfone.wondershare.com/2020/pokemon-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Click ‘Sign In’ in your Nintendo Account. A pop up will appear asking for permission to sign in to 'nintendo.com,' pressing “Continue” will redirect to the website to log in.
 
 ![sign in to your account](https://drfone.wondershare.com/2020/sign-in-to-your-account.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Enter your username and password. Press ‘OK’ to return to the previous screen.
 
 ![](https://drfone.wondershare.com/2020/enter-your-password.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 On execution of the above instructions, follow the directions below to move a Pokémon Go creature to Home App:-   Open Pokémon Go and access the ‘Main Menu’ by pressing the PokeBall icon.
 
@@ -198,6 +190,10 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![click on send pokemon](https://drfone.wondershare.com/2020/click-on-send-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Press Continue
 
 ![press continue button](https://drfone.wondershare.com/2020/press-continue-button.jpg)
@@ -206,6 +202,10 @@ On execution of the above instructions, follow the directions below to move a Po
 - Click ‘Next’
 
 ![select the pokemon](https://drfone.wondershare.com/2020/select-the-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Tap ‘Transport’ to accept after confirming your pick.
 
@@ -250,21 +250,25 @@ Subsequently, connect your PC or laptop with the Dr. Fone application. Also, per
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Imitate your GPS position:**
 
 Select your current location on the map. Next, click the leftmost button on the top-right corner of the window to start the ‘Teleport’ mode. Then search the places you wish to mock your position with, and press ‘Go’ after the selection.
 
 ![virtual location 8](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Imitate Movement between steps:**
 
 To start the simulation, make a movement and traverse to the ‘Move Here’ button to reach multiple times. By default, the motion is adjusted to ‘1’, but it can be replaced by the user to switch the program correspondingly.
 
 ![virtual location 9](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The simulated position will emerge as genuine for the Pokémon Go app, and it will believe that you are moving between the two designated positions chosen on the Dr. Fone GUI screen. At the foot of the screen, the motion speed can also be tuned using the sliding menu. This way, you can use the false maneuver of the position of Dr. Virtual Fone without having the need to understand it. Also, your application will not be banned.
 
@@ -281,7 +285,7 @@ To grant permission to the system to mock movement by picking out the right opti
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to get Shiny Meltan in Pokémon Go?
@@ -301,10 +305,6 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 Pokemon Go is probably one of the most popular location-based augmented reality games that encourage us to step out. Sadly, players can’t explore their surroundings or travel to play the game all the time. That’s why they often take the assistance of a Pokemon Go joystick. While Pokemon joysticks are extremely popular, they have some downfalls as well if you don’t pick the right tool. Therefore, in this post, I will list the risks and benefits of using a Pokemon Go joystick hack to help you make up your mind.
 
 ![Pokemon Go Joystick Banner](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Part 1: Pokemon Go Joystick 101: Things to Know**
 
@@ -352,6 +352,10 @@ While there are numerous benefits of using a Pokemon Go joystick, its constant u
 
     ![Pokemon Go Account Ban](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
     To avoid the banning of your Pokemon Go account, you can consider a “cooldown duration”. This simply suggests waiting for a specific duration before changing your location in the game.
 
     ![Pokemon Go Cooldown Duration](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-4.jpg)
@@ -376,10 +380,6 @@ As you can see, picking a reliable Pokemon Go joystick is the most important thi
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 I hope that after following this guide, you would be able to know more about the fake GPS Pokemon Go hacks. As you can see, I have included all kinds of benefits and limitations of using a Pokemon Go joystick in this guide. If you don’t want to get your account banned for using a Pokemon joystick, then consider going with a reliable option like
@@ -400,22 +400,19 @@ I hope that after following this guide, you would be able to know more about the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-rank-8-real-world-video-promoters-for-success/"><u>[New] Rank 8 Real-World Video Promoters for Success</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-streamlined-steps-capturing-your-dell-screen-in-a-minute/"><u>[New] Streamlined Steps Capturing Your Dell Screen in a Minute</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unlock-social-media-success-a-comprehensive-10-step-plan-for-2024/"><u>[New] Unlock Social Media Success A Comprehensive 10-Step Plan for 2024</u></a></li>
-<li><a href="https://win-webster.techidaily.com/1728492323177-2/"><u>「ツイッターから削除された画像の復元手順がわかりませんか？2つのシンプルな解決策」</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-syma-x5c-review-best-drone-for-beginner/"><u>2024 Approved Syma X5C Review Best Drone for Beginner</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970020-9781088231968-bajo-las-manos-de-la-misericordia/"><u>Bajo las manos de la Misericordia | Free Book</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/guide-to-cost-free-text-animations-onlineoff-for-2024/"><u>Guide to Cost-Free Text Animations (Online/Off) for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme GT 3? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/remove-the-lock-of-asus-rog-phone-8-pro-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Asus ROG Phone 8 Pro</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/top-picks-free-fb-to-mp4-file-transformers/"><u>Top Picks Free FB to MP4 File Transformers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-elevating-your-content-becoming-a-staff-pick-favorite-on-vimeo/"><u>[New] 2024 Approved Elevating Your Content Becoming a Staff Pick Favorite on Vimeo</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-winning-the-subscriber-race-on-youtube/"><u>[New] In 2024, Winning the Subscriber Race on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-ion-air-pro-3-visionary-revolutionizing-action-video/"><u>[New] ION Air Pro 3 Visionary - Revolutionizing Action Video</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-simplify-multitasking-with-picture-in-picture-feature-ios/"><u>[New] Simplify Multitasking with Picture in Picture Feature (iOS)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-the-simple-guide-to-hosting-efficient-zoom-chats/"><u>[Updated] In 2024, The Simple Guide to Hosting Efficient Zoom Chats</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-strategic-pricing-analysis-cloud-services-financial-face-for-2024/"><u>[Updated] Strategic Pricing Analysis Cloud Services' Financial Face for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-boost-your-podcast-visibility-with-seo-tactics/"><u>2024 Approved Boost Your Podcast Visibility with SEO Tactics</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-a-step-by-step-manual-to-instagram-highlight-image-creation/"><u>In 2024, A Step-by-Step Manual to Instagram Highlight Image Creation</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
 </ul></div>
 

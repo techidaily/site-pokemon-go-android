@@ -1,7 +1,7 @@
 ---
 title: Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Poco X5 | Dr.fone
-date: 2024-07-14T09:57:39.801Z
-updated: 2024-07-15T09:57:39.801Z
+date: 2024-12-13T20:13:48.617Z
+updated: 2024-12-18T21:18:44.438Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -43,18 +43,23 @@ Reportedly, you are required to have the mobile version of Home connected to you
 
 On execution of the above instructions, follow the directions below to move a Pokémon Go creature to Home App:-   Open Pokémon Go and access the ‘Main Menu’ by pressing the PokeBall icon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![access main menu](https://drfone.wondershare.com/2020/access-main-menu.jpg)
 
 - Open ‘Settings’ and go to Home.
 
 ![open settings](https://drfone.wondershare.com/2020/open-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Press on ‘Send Pokémon’
 
 ![click on send pokemon](https://drfone.wondershare.com/2020/click-on-send-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Press Continue
 
@@ -68,6 +73,10 @@ On execution of the above instructions, follow the directions below to move a Po
 - Tap ‘Transport’ to accept after confirming your pick.
 
 ![tap transport](https://drfone.wondershare.com/2020/tap-transport.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Press ‘Done’
 
@@ -84,10 +93,11 @@ On execution of the above instructions, follow the directions below to move a Po
 
 - Select ‘View Transferred Pokémon’
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![view your transferred pokemon](https://drfone.wondershare.com/2020/view-your-transferred-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Confirm that you want to Receive by pressing ‘Receive Pokémon’
 
@@ -103,9 +113,6 @@ You can use the faux location of [Dr. Fone](https://tools.techidaily.com/wonders
 
 Install the ‘Dr. Fone toolkit’ from the official website after downloading it. After installation, launch the toolkit and select the ‘Virtual Location’ tab.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 **Step 2: Connect:**
@@ -124,9 +131,6 @@ Select your current location on the map. Next, click the leftmost button on the 
 
 To start the simulation, make a movement and traverse to the ‘Move Here’ button to reach multiple times. By default, the motion is adjusted to ‘1’, but it can be replaced by the user to switch the program correspondingly.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 9](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
 The simulated position will emerge as genuine for the Pokémon Go app, and it will believe that you are moving between the two designated positions chosen on the Dr. Fone GUI screen. At the foot of the screen, the motion speed can also be tuned using the sliding menu. This way, you can use the false maneuver of the position of Dr. Virtual Fone without having the need to understand it. Also, your application will not be banned.
@@ -220,6 +224,10 @@ Remember to close all the background apps and launch PGSHARP. Now, you are ready
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** You will need a free beta key to install the PGSharp on your device.
 
 ## Part 4: How to Spoof GPS on iPhone Without ban?
@@ -236,10 +244,11 @@ Plus, with this, you also do not need to jailbreak your device. It doesn’t bre
 
 ### Spoof Your Location to a Certain Place
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With the Dr.Fone virtual location iOS, you can set your location to the desired place. You only need to choose the location on the map interface and click on the move here button. It is very easy-to-use app that a novice can also operate it easily.
 
@@ -251,17 +260,21 @@ The best part is that you can simulate the route according to your desire with D
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/save-you-from-ban-while-spoofing-pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There you will get a walking speed and vehicle speed option that you can customize according to your needs to catch Pokémon.
 
 To use this app, you only need to install and launch it on your device from the official site. It is easy to install and easy to use, as well.
-
-
 
 ## Conclusion
 
 Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. If you own iPhone, you can use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app to spoof GPS. Both these spoofing apps are best, safe, and secure to use on Android and iOS. For PGSharp, you can install it from Google Play Store, and for Dr.Fone, you need to visit the official site to install it on your system.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Poco X5
 
@@ -317,6 +330,10 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 ![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 
 You can opt for other safer tools for route creator. Perhaps it is raining and you can’t step out. Or it is already late in the night. What do you do? Just fake it! Dr.Fone comes with advanced features to help you iSpoofer gpx routes and fake your locations in simple steps.
@@ -341,12 +358,13 @@ You can also add your favorite iSpoofer gpx routes. To add any spot into your fa
 
 ![Enter address and click Go](https://images.wondershare.com/drfone/guide/search-favorites.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The Bottom Line**
 
 Being a first timer, you may find it very complicated to fake your gps location. But Pokemon map creator makes it easy. Dr. Fone virtual location works seamlessly with your iOS device to take you virtually to any place in the world, from the comfort of your living room.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -360,9 +378,26 @@ Being a first timer, you may find it very complicated to fake your gps location.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-craft-viral-instagram-moments-by-incorporating-tiktok-wisdom-for-2024/"><u>[New] Craft Viral Instagram Moments by Incorporating TikTok Wisdom for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-perfecting-pace-and-flow-in-film-using-kinemaster/"><u>[Updated] 2024 Approved Perfecting Pace and Flow in Film Using Kinemaster</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-viewing-voids-to-viral-videos-the-top-ten-reasons-and-cures-for-zero-traffic-for-2024/"><u>[Updated] From Viewing Voids to Viral Videos The Top Ten Reasons & Cures for Zero Traffic for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-top-10-switch-battlecars-for-gamers-unleashed/"><u>[Updated] Top 10 Switch Battlecars for Gamers Unleashed</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/3-ways-to-track-apple-iphone-13-pro-max-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>3 Ways to Track Apple iPhone 13 Pro Max without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/digital-duet-syncing-videos-for-twitter-and-tumble/"><u>Digital Duet Syncing Videos for Twitter and Tumble</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-vivo-y28-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Vivo Y28 5G?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/layered-comfort-selecting-snug-winter-themes-for-filming-for-2024/"><u>Layered Comfort Selecting Snug Winter Themes for Filming for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Life360 Circle Everything You Need to Know On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor X8b | Dr.fone</u></a></li>
+</ul></div>
 

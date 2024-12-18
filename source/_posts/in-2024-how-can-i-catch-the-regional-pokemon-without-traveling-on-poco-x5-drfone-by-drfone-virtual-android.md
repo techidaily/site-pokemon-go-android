@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Can I Catch the Regional Pokémon without Traveling On Poco X5 | Dr.fone
-date: 2024-07-14T09:58:47.254Z
-updated: 2024-07-15T09:58:47.254Z
+date: 2024-12-17T20:04:14.512Z
+updated: 2024-12-18T19:11:34.515Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -35,6 +35,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![kanto pokemon](https://images.wondershare.com/drfone/2020/202010/kanto-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Taouros:** North America.
 - **Farfetch’d:** Asia.
 - **Mr. Mime:** Europe.
@@ -42,9 +46,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ### Gen 2/ Johto Pokémon
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![johto pokemon](https://images.wondershare.com/drfone/2020/202010/johto-pokemon.jpg)
 
 - **Heracross:** South America/ Southern Florida.
@@ -53,6 +54,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - **Tropius:** The Middle East and Africa.
 - **Torkoal:** Southeast Asia.
@@ -66,9 +71,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ### Gen 4/ Sinnoh Pokémon
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![sinnoh pokemon](https://images.wondershare.com/drfone/2020/202010/sinnoh-pokemon.jpg)
 
 - **Pachirisu:** Canada.
@@ -130,8 +132,6 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
 
-
-
 ## Part 3: Tips to help catch Regional Pokémon
 
 Catching regional Pokémon is just like catching any regular Pokémon. When they spawn near your location, you catch it by throwing a Poke ball at it. If the Poke ball is seen shaking, it means that the Pokémon is resisting and may just pop out from the ball in which case you may have to throw another one at it. Now, if you are traveling and you have limited time or a number of spawns then here are a few tips you can utilize to enhance your chances of landing a catch.
@@ -141,6 +141,10 @@ Catching regional Pokémon is just like catching any regular Pokémon. When they
 - **Keep Consistent:** The algorithm of the game is quite complex but eventually, a pattern emerges. You will notice that if you keep practicing with great or excellent catches with the smaller (low XP) Pokémon, it increases your chances of catching the ones that put up a fight.
 - **Save your Berries:** Feeding a Pokémon with Razz Berries increases your assurances of catching the Pokémon while also giving you a 15x bonus when you land a successful catch. Save your berries for those persistent Pokémon spawns.
 - **Use Powerful Poke balls:** Last but definitely not least, use powerful balls like the Great Ball or Ultra Ball to maximize your chances of catching Pokémon. You should also remember that these are diminishable resources so use them wisely. On catching a Pokémon with a Great ball you will get 15x and with an Ultra ball you would get 2x so utilize them accordingly to catch rare and super rare Pokémon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -157,20 +161,16 @@ In the game, players control a female or male character. It starts with three Po
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
 
@@ -252,11 +252,12 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
@@ -265,18 +266,17 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
-
-
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
 
 Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in Kanto. That’s why you cannot find Mewtwo in Platinum. And, if you want to obtain Mewtwo, you have to migrate or trade for one.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
@@ -284,19 +284,21 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
-
-
-
-
 ## Ways to trade pokemon go from far away On Poco X5?
 
 If you're a regular Pokemon go player then the title of this article would have truly intrigued you. Pokemon go is one of the most exciting and interesting virtual reality games which has been doing rounds in the gamers community. The game needs you to go around from place to place. One cannot play the game indoors. Trading in Pokemon go is one of the essential features. However, according to Pokemon go trading rules, a player needs to travel around. However, there are some extremely useful hacks using which you needn't travel around for Pokemon go trading. You can do it remotely all by sitting at your home!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Trade pokemon go from far away
 
 One of the most convenient ways for Pokemon go trading without having to travel is by using some virtual location servers just like discord servers. Next, you need to make friends with other Pokemon go players who stay in far-off places. Remember, that these friends must be on your virtual location server. Only then, you can do Pokemon go trading with them. Hence, make sure to have your friends on your server. One of the most popular and easy-to-use virtual location servers is the Dr.Fone - Virtual Location. Using this you can shift your location to any location in the world. Dr. Fone is highly user-friendly and can easily change your location, let us learn to use the [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), shall we?
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to use Dr.Fone - Virtual Location to teleport to any location
 
@@ -336,7 +338,9 @@ Upon clicking on "go", a pop-up will appear showing you the distance of the loca
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Which pokemon can you evolve with trading?
 
@@ -361,9 +365,6 @@ You need a Special Trade whenever you wish to trade a legendary Pokemon or a shi
 
 Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -376,9 +377,20 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-optimize-your-online-presence-with-linked-fb-stories/"><u>[New] In 2024, Optimize Your Online Presence with Linked FB Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-aural-ascendancy-mastering-sound-integration-on-reels-for-2024/"><u>[Updated] Aural Ascendancy Mastering Sound Integration on Reels for 2024</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/exploring-the-essential-strategies-of-the-art-of-war-with-insights-from-yl-software/"><u>Exploring the Essential Strategies of 'The Art of War' With Insights From YL Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-and-restore-functionality-of-face-id-on-iphone-x-xs-xr-devices-with-proven-methods/"><u>How to Fix and Restore Functionality of Face ID on iPhone X, XS, XR Devices with Proven Methods</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-charting-your-financial-course-the-3-step-methodology-for-estimating-youtube-income/"><u>In 2024, Charting Your Financial Course The 3-Step Methodology for Estimating YouTube Income</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-high-end-fb-photo-and-film-artist-free-access/"><u>In 2024, High-End FB Photo & Film Artist (Free Access)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor Magic 5? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-samsung-galaxy-f14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
 

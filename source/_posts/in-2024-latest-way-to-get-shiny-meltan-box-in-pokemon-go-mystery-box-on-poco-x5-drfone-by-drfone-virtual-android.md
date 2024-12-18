@@ -1,7 +1,7 @@
 ---
 title: In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Poco X5 | Dr.fone
-date: 2024-07-14T09:58:48.552Z
-updated: 2024-07-15T09:58:48.552Z
+date: 2024-12-13T21:23:42.316Z
+updated: 2024-12-18T16:31:42.365Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,6 +25,10 @@ The Mystery Box is a particular object in Pokémon Go that briefly roots the myt
 
 ![mystery box pokemon go](https://drfone.wondershare.com/2020/mystery-box-pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Reportedly, you are required to have the mobile version of Home connected to your Nintendo Account. This can be carried out simply by downloading the Home app from Your Poco X5 store and tracking the instructions given on your screen in the initialization process of your app. After connecting the mobile Home application to your Nintendo account, track the steps below to connect Pokémon go to Home App:
 
 - Start Pokémon Go.
@@ -32,6 +36,10 @@ Reportedly, you are required to have the mobile version of Home connected to you
 - Advance to ‘Settings’ and scroll downwards and click Pokémon Home
 
 ![pokemon settings](https://drfone.wondershare.com/2020/pokemon-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Click ‘Sign In’ in your Nintendo Account. A pop up will appear asking for permission to sign in to 'nintendo.com,' pressing “Continue” will redirect to the website to log in.
 
@@ -52,6 +60,10 @@ On execution of the above instructions, follow the directions below to move a Po
 - Press on ‘Send Pokémon’
 
 ![click on send pokemon](https://drfone.wondershare.com/2020/click-on-send-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Press Continue
 
@@ -75,15 +87,16 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![click on tap to start](https://drfone.wondershare.com/2020/click-on-tap-to-start.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Click ‘Yes’ on the Pokémon Go Link message.
 
 ![proceed by clicking on yes](https://drfone.wondershare.com/2020/proceed-by-clicking-on-yes.jpg)
 
 - Select ‘View Transferred Pokémon’
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![view your transferred pokemon](https://drfone.wondershare.com/2020/view-your-transferred-pokemon.jpg)
 
 - Confirm that you want to Receive by pressing ‘Receive Pokémon’
@@ -93,8 +106,9 @@ On execution of the above instructions, follow the directions below to move a Po
 By following the steps above, you will be awarded a Mystery Box in Pokémon Go, and you can activate it by advancing to your item bag.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Use Virtual Location to catch the Pokémon Go creature
 
 You can use the faux location of [Dr. Fone](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to imitate your orientation without making a move and collect exclusive Pokémon. The mock location of Dr.Fone lets you simulate your position and permits your mobile application to presume that you have selected the application interface of Dr.Fone without any restrain or recognition from developers of Pokémon Go. Follow the instructions below to catch Pokémon any place without making any movement.
@@ -105,11 +119,19 @@ Install the ‘Dr. Fone toolkit’ from the official website after downloading i
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Connect:**
 
 Subsequently, connect your PC or laptop with the Dr. Fone application. Also, permit the location services to retrieve the location of your device. Then, press on the ‘Get Started’ button to use the services of Dr. Fone.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Imitate your GPS position:**
 
@@ -127,6 +149,10 @@ The simulated position will emerge as genuine for the Pokémon Go app, and it wi
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
 **Step 5: Movement Simulation between more than two spots:**
@@ -135,9 +161,6 @@ Dr. Fone's application also permits you to replicate activity between more than 
 
 To grant permission to the system to mock movement by picking out the right options, press the 'March' button. You will be required to do the Pokémon Go walking illusion at some point. Dr. Fone's virtual movement imitation application eases your life and lets you do the job without being concerned about travel costs.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
 ## Part 2: How to get Shiny Meltan in Pokémon Go?
@@ -191,9 +214,6 @@ It’s possible that the Pokemon Routes are not showing up because you’re too 
 
 ### The Pokemon Go application has no adequate location access on your smartphone
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![pokemon go location access](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-5.JPG)
 
 Is Pokemon Go Route not working on your end? Well, it’s possibly because the application has limited or restricted access to GPS on your smartphone. Don’t worry. It’s nothing serious. You can easily fix this kind of misconfiguration by adjusting your privacy settings.
@@ -207,6 +227,10 @@ Pokemon Go Routes and most of the game’s main features require a reliable inte
 ![update pokemon go app](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-6.JPG)
 
 Keep in mind that the Pokemon Go Routes is an additional game feature. That’s why you first need to update your existing Pokemon Go app before you can access it. The Routes is definitely not available to old versions of Pokemon Go mobile software.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The current software version of your smartphone is not compatible with the Pokemon Go Routes feature
 
@@ -226,8 +250,6 @@ Is Pokemon Go Route not working on your mobile device? Don’t sweat it. There a
 
 In simple terms, DeFit is a third-party application that allows trainers to play Pokemon Go without moving physically. You can walk the required distance for egg hatching or explore Routes from the comfort of your own home. However, there have been reports recently about Pokemon Go DeFit not working. Is there a substitute for this software? The short answer is absolutely yes. Wondershare Dr.Fone has a powerful Virtual Location feature that works exactly like DeFit. It can also simulate GPD movement to complete Pokemon Go Routes without going outdoors. Do you want to try it? Here’s a short guide for you.
 
-
-
 - **Step 1:** Download Wondershare Dr.Fone from its [<u>official website.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) Right after, install it on your computer.
 - **Step 2:** Open the newly installed software on your desktop. Once it fully loads up, connect your smartphone immediately using a data cable. Follow the on-screen instructions to establish a secure connection between the computer and your device.
 - **Step 3:** Access the left-side panel and then click **Toolbox.** Navigate to the main dashboard afterward and then click **Virtual Location.** If it’s your first time using this feature, let Wondershare Dr.Fone download the additional resources needed.
@@ -243,14 +265,9 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Pokemon Go players must try the Routes and explore this feature. It’s indeed an incredible development that can certainly take your game experience to a whole new level. Is Pokemon Go Route not working on your end? Don’t worry. It’s not a big problem. Refer to the troubleshooting tips listed above. One of them can surely help you a lot in this regard. If you need a substitute for the Pokemon Go DeFit that’s not working on your smartphone, try [<u>Wondershare Dr.Fone.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It has a potent Virtual Location feature that is capable of simulating GPS movements needed in Pokemon Go. Download it for free.
-
-
 
 ## Planning to Use a Pokemon Go Joystick on Poco X5?
 
@@ -328,14 +345,15 @@ As you can see, picking a reliable Pokemon Go joystick is the most important thi
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 I hope that after following this guide, you would be able to know more about the fake GPS Pokemon Go hacks. As you can see, I have included all kinds of benefits and limitations of using a Pokemon Go joystick in this guide. If you don’t want to get your account banned for using a Pokemon joystick, then consider going with a reliable option like
 
 [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking, it will let you enjoy a dedicated GPS joystick and simulate your device movement remotely.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -349,9 +367,26 @@ I hope that after following this guide, you would be able to know more about the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-best-ff-browser-add-ons-for-fb-videos-for-2024/"><u>[New] Best FF Browser Add-Ons for FB Videos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gradual-volume-lessening-in-music-creation-garageband/"><u>[New] Gradual Volume Lessening in Music Creation (Garageband)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-easy-methods-to-incorporate-subtitles-on-vimeo/"><u>[Updated] 2024 Approved Easy Methods to Incorporate Subtitles on Vimeo</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-navigating-snapchat-for-twitter-vids-distribution/"><u>2024 Approved Navigating Snapchat for Twitter Vids Distribution</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-hid-keyboard-drivers-now-simple-download-and-quick-update-processes/"><u>Get Your HID Keyboard Drivers Now: Simple Download & Quick Update Processes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/giggle-engine-photo-assembler-for-2024/"><u>Giggle Engine Photo Assembler for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-poco-c50-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-srgb-adoption-over-traditional-rgb-techniques/"><u>In 2024, Srgb Adoption Over Traditional Rgb Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unveiling-the-mystery-of-instagrams-most-trusted-6-techniques-for-building-a-fanbase/"><u>In 2024, Unveiling the Mystery of Instagram's Most Trusted 6 Techniques for Building a Fanbase</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-to-create-compelling-vlogger-dialogue-plans-for-2024/"><u>Techniques to Create Compelling Vlogger Dialogue Plans for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlocking-iphone-shot-potential-adopt-these-10-principles/"><u>Unlocking iPhone Shot Potential Adopt These 10 Principles</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Poco X5 | Dr.fone
-date: 2024-07-14T09:58:23.948Z
-updated: 2024-07-15T09:58:23.948Z
+date: 2024-12-12T20:27:38.220Z
+updated: 2024-12-18T20:56:32.159Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -19,6 +19,10 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -30,6 +34,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -130,14 +138,15 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
 
@@ -151,19 +160,10 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco X5
 
 Pokemon Go is a game that encourages players to interact with each other. One of the ways to do this is by adding friends in the game. By adding friends, you can send gifts, trade Pokemon, and even participate in raids together. However, finding friends in Pokemon Go can be a bit challenging, especially if you don’t know anyone who plays the game. But don’t worry, we have got you covered. In this guide, we will show you some reliable ways to get Pokemon Go friend codes for Poco X5.
@@ -171,6 +171,10 @@ Pokemon Go is a game that encourages players to interact with each other. One of
 If you have been playing Pokemon Go for a while, then you might already know how tough it can be to add friends. For instance, if you want to fight with other trainers, then you need to look for their Pokemon Go friend codes. Thankfully, there are some reliable social platforms to find Pokemon Go friends. In this post, I will let you know about them and would also list how to add friends in Pokemon Go.
 
 ![pokemon go friend codes banner](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes-banner.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Where to find Pokemon Go Friend Codes?
 
@@ -206,6 +210,10 @@ Here are some of these popular Discord servers that you can join to find Pokemon
 
 ![dicord server pokedex100](https://images.wondershare.com/drfone/2020/202009/dicord-server-pokedex100.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Find Pokemon Go Friend Codes on Reddit?
 
 While some Discord groups are closed, most of the Reddit subs are open. It might surprise you, but some of the Pokemon-based Reddit subs even have millions of members. This would make it pretty easy for you to find Pokemon Go friend codes on Reddit. All you need to do is join these groups and find the mega thread for exchanging PoGo friend codes.
@@ -222,6 +230,10 @@ While some Discord groups are closed, most of the Reddit subs are open. It might
 - Pokemon Go Instinct
 
 ![pokemon go sub reddit](https://images.wondershare.com/drfone/2020/202009/pokemon-go-sub-reddit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Other Places to Find Pokemon Go Friend Codes
 
@@ -264,6 +276,10 @@ Once you have found Pokemon Go codes for friends, you can add them to your netwo
 
 ![pokemon go add friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-add-friend-codes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 6: How to Find new Pokemons to Level-up in the Game?
 
 Adding friends in Pokemon Go is not enough as you need to have some powerful Pokemon to win battles. Since going out and looking for Pokemons is not that feasible, consider using [Dr.Fone – Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Using this trusted application, you can easily spoof your iPhone location to catch tons of Pokemons.
@@ -278,9 +294,6 @@ Adding friends in Pokemon Go is not enough as you need to have some powerful Pok
 
 Now when you know how to make new friends in Pokemon Go, you can easily expand your network. As you can see, you can find Pokemon Go friend codes from Reddit, Facebook, Discord, and several other social platforms. Though, to win more battles and level-up in the game, you can consider using Dr.Fone – Virtual Location (iOS). It is a 100% trusted application that would let you spoof your iPhone location so that you can catch your favorite Pokemons remotely.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Poco X5
 
 According to the original gameplay, you need to be physically present on the battleground to catch the Pokémon. It means you can only catch those characters which are present near your location. But, you can go after special characters present away from your town or city. This is why you will look for location spoofing options.
@@ -296,6 +309,10 @@ In this article, we will discuss more PGSharp and ban.
 The Niantic, the developer of Pokémon Go, is particular about the safety of the game. The main priority of them with Pokémon GO is to provide a fair game experience to players worldwide. If Niantic finds something wrong with the terms of the game, then it may ban your account.
 
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The following are the reasons that may cause to ban your account:
 
@@ -342,14 +359,15 @@ There is no limit to the maximum teleport distance with PGSharp. You can go to a
 
 But yes, you should not change the location frequently, as it will cause you trouble in the game.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Part 3: Can I Spoof On My Main Account?
 
 Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account. You should not use your main account to fake GPS with PGSharp. First, create a PTC account and then install PGSharp to spoof Pokémon Go without a ban.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
 
@@ -365,17 +383,13 @@ To use it, you will need to install it on your device from the official site or 
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
 
-
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Pokemon Go is a very interesting game and brings a lot of fun while playing. With reliable and trusted apps like PGsharp for android, you can spoof it without a ban. For iOS, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app is best for fake GPS without a ban. Try these apps now to get more fun in the game without getting a ban.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -389,9 +403,18 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-chronic-removal-method-for-youtubes-bite-sized-videos/"><u>[New] In 2024, Chronic Removal Method for YouTube's Bite-Sized Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-complete-guide-to-earnings-via-video-ads-on-youtube/"><u>[New] The Complete Guide to Earnings via Video Ads on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-elevate-your-content-on-facebook-using-wirecast-for-2024/"><u>[Updated] Elevate Your Content on Facebook Using Wirecast for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-amateurs-to-pros-transformative-steps-in-gopro-timelapses/"><u>[Updated] From Amateurs to Pros Transformative Steps in GoPro Timelapses</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-fixes-for-file-explorer-not-responding-problems-in-windows-11/"><u>Effective Fixes for 'File Explorer Not Responding' Problems in Windows 11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/enhancing-friendships-through-shared-musical-experiences-on-spotify/"><u>Enhancing Friendships Through Shared Musical Experiences on Spotify</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-freezing-frames-optimize-your-call-of-duty-vanguard-experience/"><u>No More Freezing Frames - Optimize Your Call of Duty: Vanguard Experience</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Poco X5? | Dr.fone
-date: 2024-07-14T09:58:43.410Z
-updated: 2024-07-15T09:58:43.410Z
+date: 2024-12-13T20:16:02.567Z
+updated: 2024-12-18T17:34:19.390Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -43,9 +43,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
@@ -56,6 +53,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
 
 **11\. Zapdos:** Once you have got the National Pokédex, you speak to Professor Oak. The professor tells you about Zapdos who roams the grasses of Sinnoh. Like with Articuno, you to be prudent in your hunting to catch this Level 60 legendary Pokemon.
@@ -64,10 +65,11 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **13\. Regirock:** Located in Rock Peak Ruins, Regirock is a level 30 legendary Pokemon in the Platinum version. Transfer the Regigigas obtained from the 11th movie and team up with it. After that, you can access a special cave in Route 228, where you will find another cave. Go there with Regigigas Platinum and enter a new cave. You will find a status in the cave. Go up to it and Regirock will attack you.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
@@ -82,11 +84,16 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2.1 Action Replay Codes
 
@@ -112,6 +119,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -120,13 +131,15 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -142,16 +155,15 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
-
-
-
-
 ## Hacks to do pokemon go trainer battles For Poco X5
 
 With the launch of the Pokémon Go battle league, the trainer battles are seen as one of the options that can be used to compete and do it the hard way. As the name suggests it is a feature in Pokémon Go that lets you battle as a trainer against the other trainers. Pokémon Go trainer battles are a great way to enhance your skills as the rules are different from the gym and raid battles which are also a great feature of this game. The Pokémon CP limits are granted to each league from which the trainer needs to choose one.
 
 ![Pokemon go hacks 1](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What is the Point of Trainer Battles in Pokémon Go?
 
@@ -161,9 +173,6 @@ The best part is that the teams are assembled by the trainers themselves. The po
 
 Now you want to make sure that the charged attacks are learned and how they can be used as a weapon against the other players. The Pokémon should also be chosen as per the ability as different Pokémon have different charged attack ability overall. The Pokémon is of a different kind as all benefit from the charge attack in different states. It also means that you get to choose Pokémon like Tyranitar which will get you to through the battle with highly advanced skills. Typhlosion is a dual-type Pokémon and the raids which are done using it benefit the trainers as compared to single types.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: What can you get from trainer battles Pokémon go?
 
 This part will deal with the rewards which the trainers will get for the battles which they will fight. There are three different types of rewards that you can win when it comes to trainer battles. These are as follows:
@@ -245,6 +254,10 @@ Dr. Fone is perhaps the best and the most used program for the Pokémon trainer 
 Are you ready to defeat Giovani effortlessly in Pokemon Go? Keep reading.
 
 Giovani is the grand commander of the Team Go Rocket crime syndicate. The big boss appears stronger every month as he also changes his lineup of creatures monthly. This means your lineup of Pokemon Go Giovani counters would have to change subsequently. So how do you know the best Giovani Pokemon Go counters to use against the Team Go Rocket boss when next you meet him? Well, that's left for this guide to answer. Here you will learn about how to defeat this monster and how to find him. Without wasting your time, let's start with how to find Giovani in Pokemon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1. How to Find the Giovani in Pokemon
 
@@ -340,25 +353,29 @@ Guide to Use Dr.fone Virtual Location to Get Stronger Pokemon in Giovanni Pokemo
 
 **Step 2:** The interface above will appear on your screen. With the aid of a lightning cable, connect your iPhone to a PC, then click on the Virtual Location icon. A new interface will pop up as shown in the image below
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 Click on Get Started to change your location.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Your current location will appear on the PC screen. Switch location by entering the name or address of the place in the field at the upper left corner of the application.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** The interface below will pop up on your screen. Click on the Move Here icon to teleport to your chosen location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 And now you are good to have one of the strongest Pokemon on your team when fighting against Giovani. Leverage the Dr.Fone- Virtual Location program as it will help you ease the stress of catching stronger Pokemon remotely on your device without jailbreaking it.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -372,9 +389,18 @@ And now you are good to have one of the strongest Pokemon on your team when figh
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-best-webcam-accessories-top-10-secure-solutions/"><u>[New] In 2024, Best Webcam Accessories Top 10 Secure Solutions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/urbocharge-your-youtube-videos-swift-render-and-transfer-strategies-for-2024/"><u>[New] Turbocharge Your YouTube Videos Swift Render & Transfer Strategies for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-5-screen-recorder-for-chromebook-free-extensions-for-2024/"><u>[Updated] Top 5 Screen Recorder for Chromebook Free Extensions for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/a-compreranly-approach-to-high-quality-ps3-video-capture-for-2024/"><u>A Compreranly Approach to High-Quality PS3 Video Capture for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-bringing-text-to-life-3d-creation-in-photo/"><u>In 2024, Bringing Text to Life 3D Creation in PHOTO</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-realme-gt-5-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Realme GT 5 Pro Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-c55-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-fast-to-slow-a-comprehensive-guide-to-windows-live-movie-makers-slow-motion-effect/"><u>Updated From Fast to Slow A Comprehensive Guide to Windows Live Movie Makers Slow Motion Effect</u></a></li>
+</ul></div>
 

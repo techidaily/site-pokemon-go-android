@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Poco X5 | Dr.fone
-date: 2024-07-14T09:56:57.225Z
-updated: 2024-07-15T09:56:57.225Z
+date: 2024-12-16T16:28:31.846Z
+updated: 2024-12-18T20:39:25.861Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -36,6 +36,10 @@ This detailed guide for iSpoofer installation is for those who still possess the
 **Step 3 –** A map will load on your computer screen, which allows you to enter or point the location. Enter the location of your choice and click on “MOVE”. And that is it! Three simple steps and you have spoofed!
 
 ![change your phone location](https://images.wondershare.com/drfone/2020/2020/change-your-phone-location.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to use the iSpoofer when you play pokemon
 
@@ -84,15 +88,27 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4 –** Select the “teleport” option by clicking on the icon on the top right corner. Then, in the text box, enter the city or the location’s exact name or the coordinates in the “latitude, longitude” format.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5 –** After entering your location, select the “GO” option.
 
 **Step 6 –** The app will show you an option that says “Move Here”. Click on it, and now you have successfully spoofed to your location of choice.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Your spoofed location is now the default location of your phone, and all the apps will recognize it. The maps app on your phone looks like this –
 
@@ -124,6 +140,10 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -134,9 +154,6 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -160,8 +177,9 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | \>1500 km | 2 hour |
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -225,6 +243,10 @@ It is a very simple-to-use application and provides robust results if you follow
 
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
 
 Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how to teleport in Pokémon Go](https://drfone.wondershare.com/virtual-location/teleport-in-pokemon-go.html) safely? Meet Dr.Fone - Virtual Location! This powerful GPS location spoofing software lets you use a fake location without risking a ban. No jailbreak is required. Unlock the Pokémon Go map in restricted areas, and enjoy keyboard and joystick modes for seamless movement.
@@ -232,6 +254,10 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
@@ -245,18 +271,12 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Voila! You have teleported your location to the desired place.
@@ -265,19 +285,10 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to get the dragon scale and evolution-enabled pokemon On Poco X5?
 
 The Dragon Scale is a special item in Pokémon Go that is used to evolve Seadra into Kingdra. To get a Dragon Scale in the game, you need to complete the 7-day Research Breakthrough. This means that you need to complete a Field Research task every day for 7 days to get the Dragon Scale. Once you have the Dragon Scale, you can use it to evolve Seadra into Kingdra.
@@ -323,6 +334,10 @@ Unfold the top right area of the initial option before reaching Dr. Fone's GUI, 
 
 ![virtual location 08](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
 
 ![virtual location 09](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -347,10 +362,13 @@ Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, w
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -364,9 +382,21 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-constructing-premium-canon-timelapse-movies/"><u>[New] 2024 Approved Constructing Premium Canon Timelapse Movies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-perfecting-video-productions-by-adding-youtube-music/"><u>[Updated] Perfecting Video Productions by Adding YouTube Music</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-speech-clarity-mastering-googles-translation-technology-for-2024/"><u>[Updated] Speech Clarity Mastering Google’s Translation Technology for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-choose-from-the-finest-7-android-browsers-without-ads/"><u>2024 Approved Choose From the Finest 7 Android Browsers Without Ads</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-motorola-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Motorola Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-realme-c67-4g-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Realme C67 4G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722999426890-mastering-the-streets-in-yakuza-like-a-dragon-on-pc-top-tips-and-tricks/"><u>Mastering the Streets in Yakuza: Like a Dragon on PC – Top Tips and Tricks!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/twelve-south-compass-pro-unveiled-the-pinnacle-of-portable-tripod-reviews/"><u>Twelve South Compass Pro Unveiled: The Pinnacle of Portable Tripod Reviews</u></a></li>
+</ul></div>
 

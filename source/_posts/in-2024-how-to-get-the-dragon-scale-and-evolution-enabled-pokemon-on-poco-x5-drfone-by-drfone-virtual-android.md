@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco X5? | Dr.fone
-date: 2024-07-14T09:58:25.113Z
-updated: 2024-07-15T09:58:25.113Z
+date: 2024-12-11T17:34:20.007Z
+updated: 2024-12-18T17:34:39.569Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -56,9 +56,6 @@ You can click the ‘Get Started’ button to initiate the action as soon as you
 
 Unfold the top right area of the initial option before reaching Dr. Fone's GUI, which permits you to imitate maneuver amid the two spots. Pick the positioning pin and click on the ‘transfer here’ button in the search bar.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 08](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
@@ -67,9 +64,6 @@ To begin the replication, you will be required to make a movement and traverse t
 
 The change location will act as genuine for the Pokémon Go application, and it will presume that the player is moving in between the two points you chose on the Dr. Fone GUI screen. At the foot of the screen, the rate of motion can also be modified, making use of the gliding menu. By following these steps, you can use the fake motion of the position of Dr. Virtual Fone without needing to understand it, and your app will not be banned.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
@@ -88,6 +82,10 @@ Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, w
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
@@ -99,8 +97,9 @@ If you have been playing Pokemon games (like Sun/Moon or Sword/Shield), then you
 ![Pokemon Team Building Banner](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: What are Some Good Pokemon Team Examples?
 
 To understand the dynamics of team composition, you should know that there are ideally different kinds of Pokemons:
@@ -126,13 +125,29 @@ This is one of the most balanced Pokemon teams that would work in almost every s
 
 ![Balanced Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Drainer, Tanker, Cleric, and 3 Sweepers (Physical/Special/Mixed)
 
 In some situations (when there are lots of sweepers in the opponent’s team), this team would excel. Your support Pokemons (drainers and clerics) would boost the HP of sweepers while the tanker would take the damage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Rayquaza, Arceus, Dialga, Kyogre, Palkia, and Groudon
 
 This is one of the most legendary teams in Pokemon that any player can have. The only issue is catching these legendary Pokemons can take a lot of time and effort, but it would certainly be worth it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Garchomp, Decidueye, Salazzle, Araquanid, Metagross, and Weavile
 
@@ -147,6 +162,10 @@ Since there could be so many ways for coming up with a Pokemon team, I would rec
 ### Tip 1: Consider your strategy
 
 The most important thing that you need to know is the overall strategy that you have to focus on game. For instance, at times, players would like to play defensively while others want to focus on attacking. Therefore, you can come up with a team composition according to your needs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 2: Try to attain a balanced team
 
@@ -172,7 +191,15 @@ The overall interface would largely vary on the game that you are playing. Let�
 
 ![Swap Pokemon in a Team](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There you go! By following these tips, you would be able to come up with a winning Pokemon team for different games. I have included various examples of Pokemon team combinations here that you can also apply. Besides that, you can also follow the above-listed tips to create different styles of amazing teams in Pokemon games like Sword/Shield or Sun/Moon like a pro.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4 solution to get rid of pokemon fail to detect location On Poco X5
 
@@ -225,6 +252,10 @@ If the right permissions are not given to the application then it can also lead 
 
 ![Pokemon failed to detect location 5](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **ii.** Click on the app's icon on the next screen
 
 ![Pokemon failed to detect location 6](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_6.jpg)
@@ -235,14 +266,8 @@ If the right permissions are not given to the application then it can also lead 
 
 **iv.** Clear data and cache and restart the Poco X5 device to get the issue fixed.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pokemon failed to detect location 8](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Dr.Fone Virtual location change your location in one click
 
 To fix the fake GPS Pokémon go failed to detect location [Dr. Fone's virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the state of the art program that can be used. It is not only the best but also allows the users to overcome the issues that are presented by the other similar programs. With this program, it is easy to make sure that the overall game performance improves in terms of location detection. You can teleport with ease using this program. With an intuitive interface and a professional team backing the program, you get the ultimate results. Not only Pokémon but all the location-based and AR games this program is a boon.
@@ -291,11 +316,6 @@ Your iPhone will show the same location as on the program and this finishes the 
 
 Dr. Fone's virtual location is the best and the most advanced program that will make sure that you get the best results. It will not only enhance your gaming experience but will also remove the Pokémon go GPS joystick that failed to detect location error with perfection. It is the best program that is easy to use and there are guides online that further foster the process. With this program, it is easy to get a step ahead for all AR and location-based games and to enjoy to your fullest.
 
-
-
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -308,9 +328,20 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unfolding-wonders-your-practical-guide-to-travel-vlogging/"><u>[New] In 2024, Unfolding Wonders Your Practical Guide to Travel Vlogging</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-harnessing-onscreen-power-expert-tips-on-cropping-images/"><u>2024 Approved Harnessing Onscreen Power Expert Tips on Cropping Images</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/fixing-windows-audio-pops-and-unexpected-sounds-simple-tips-and-tricks/"><u>Fixing Windows Audio Pops & Unexpected Sounds - Simple Tips & Tricks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-x50-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco X6? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-snatching-the-best-videos-from-facebook-feed/"><u>In 2024, Snatching the Best Videos From Facebook Feed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/is-your-windows-update-stuck-at-100-here-are-6-fixes/"><u>Is Your Windows Update Stuck at 100%? Here Are 6 Fixes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/1725287877794-winxvideo-ai-webcam/"><u>Winxvideo AI - 화면 이미지, Webcam, 오디오 버전 변환</u></a></li>
+<li><a href="https://win-blog.techidaily.com/xcom-2-stability-solutions-for-windows-users-eliminate-freezes-and-enjoy-uninterrupted-gaming/"><u>XCOM 2 Stability Solutions for Windows Users - Eliminate Freezes and Enjoy Uninterrupted Gaming</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Realme 12 5G? | Dr.fone
-date: 2024-12-09T09:44:11.881Z
-updated: 2024-12-11T18:57:41.600Z
+date: 2024-12-13T17:46:18.807Z
+updated: 2024-12-18T17:17:33.228Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -32,6 +32,10 @@ Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how 
 
 ![nearby option](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 3:** Then, click **Route.**
 
 ![pokemon go route](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-2.jpg)
@@ -46,10 +50,6 @@ As previously mentioned, the root causes of the Pokemon Go Routes glitch vary fr
 
 ![pokemon go route missing](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### There are no recorded Routes near your location
 
 It’s possible that the Pokemon Routes are not showing up because you’re too far from them. Try to move around and see if the walking paths will finally appear on your radar. In this case, all you need to do is find the perfect spot where Routes are recorded.
@@ -58,15 +58,15 @@ It’s possible that the Pokemon Routes are not showing up because you’re too 
 
 ![pokemon go location access](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-5.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Is Pokemon Go Route not working on your end? Well, it’s possibly because the application has limited or restricted access to GPS on your smartphone. Don’t worry. It’s nothing serious. You can easily fix this kind of misconfiguration by adjusting your privacy settings.
 
 ### Your internet connection is unstable while playing Pokemon Go
 
 Pokemon Go Routes and most of the game’s main features require a reliable internet connection. If you’re connected to slow and unstable internet access, the Pokemon Go app will not load up properly. That’s probably the reason why Pokemon Go Routes are not completing or working at all on your end.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### You’re using an outdated Pokemon Go app version
 
@@ -100,7 +100,7 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - **Step 5:** Calibrate the necessary settings according to your liking. Start by choosing your preferred type and number of trips. Right after, adjust the movement speed by moving the slider from left to write. Then, click **Move Here** to commence the simulation. If you wish to reset your inputs, click **Clear** instead.
@@ -110,14 +110,6 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 - **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -134,6 +126,10 @@ With the launch of the Pokémon Go battle league, the trainer battles are seen a
 The best part is that the teams are assembled by the trainers themselves. The point of the trainer battles is that a winning team is chosen while competing with the other players. The trainer battles Pokémon Go also lets the trainers choose the best players that would charge and power up Pokémon. Different spoils are embedded within the trainer battles and they all are worth trying. Once the trainer battles he is rewarded three times per day as a normal team leader. As an AI team leader, you can get the reward once every day.
 
 ![Pokemon go hacks 2](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you want to make sure that the charged attacks are learned and how they can be used as a weapon against the other players. The Pokémon should also be chosen as per the ability as different Pokémon have different charged attack ability overall. The Pokémon is of a different kind as all benefit from the charge attack in different states. It also means that you get to choose Pokémon like Tyranitar which will get you to through the battle with highly advanced skills. Typhlosion is a dual-type Pokémon and the raids which are done using it benefit the trainers as compared to single types.
 
@@ -154,6 +150,10 @@ No matter that you win or lose a battle these rewards are credited to your accou
 The rematches that are done in the trainer battles also account for the leveling up in all the medals as well as the other rewards that are explained.
 
 ![Pokemon go hacks 3](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Does CP Matter in Trainer Battles?
 
@@ -177,15 +177,15 @@ You need to make sure that the virtual location is clicked from all options and 
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Accurate location**
 
 In the next window click center on to get the accurate location.
 
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Teleport**
 
@@ -204,10 +204,6 @@ The system understands the desired place and then you need to click to move here
 The location has been fixed to the desired place. Your iPhone will also show the location that you have selected. This completes the process in full.
 
 ![virtual location 6](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features of the Program**
 
@@ -230,10 +226,6 @@ Pokémon Go has been on the nerves of its players and this is all because of the
 ## Part 1: Why is Location Important in Pokémon Go?
 
 The best part of this game is that it has been compiled keeping in view the location mechanics. The location analytics of the game has made sure that it becomes the overnight sensation. Three main attributes are associated with the location framework of the game. These attributes also show how important the location is for the game. Understanding these attributes will also make sure that the user can overcome the errors such as failed to detect location 12 GPS joystick 2019.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### i. Physical World Attribute
 
@@ -267,14 +259,6 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 2: Location Activation
 
 This is another important and easy way to make sure that the Pokémon failed to detect location 12 error is resolved with ease and perfection. To execute the process the steps are mentioned as follows:
@@ -286,6 +270,10 @@ This is another important and easy way to make sure that the Pokémon failed to 
 **Step 2.** Tap on the passwords and security to proceed with the process:
 
 ![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3.** Tap to turn on the location to finish the process and eliminate the failed to detect location 12 Pokémon Go errors.
 
@@ -299,11 +287,19 @@ Just long-press the power button and choose the reboot option from the menu that
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Process
 
@@ -318,6 +314,10 @@ To begin the process, download and install the program to get going with the pro
 Connect your iPhone and enable virtual location from the options of the program. Hit get started to begin the spoof.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Locate yourself**
 
@@ -361,16 +361,22 @@ The location will be locked by the program and your iPhone will also show the sa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>[New] 2024 Approved How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-proactive-measures-for-managing-comments-on-educational-videos/"><u>[New] Proactive Measures for Managing Comments on Educational Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-efficient-viewing-strategies-for-instagram-content/"><u>[Updated] Efficient Viewing Strategies for Instagram Content</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-gameplay-audio-problems-for-warzone-players-on-both-pc-and-consoles/"><u>How to Fix Gameplay Audio Problems for Warzone Players on Both PC and Consoles</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco C51? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-f54-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy F54 5G Device</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-perfect-pacing-with-pitch-a-comprehensive-guide-to-adding-and-editing-timestamps-in-final-cut-pro-x-for-2024/"><u>Updated Perfect Pacing with Pitch A Comprehensive Guide to Adding and Editing Timestamps in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-recording-to-reality-a-detailed-look-at-the-sj-cam-s6/"><u>[New] From Recording to Reality A Detailed Look at the SJ-CAM S6</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-exploring-hololens-by-microsoft-a-3d-dream-come-true/"><u>[Updated] 2024 Approved Exploring HoloLens by Microsoft A 3D Dream Come True</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728475862435-windows-11/"><u>如何在 Windows 11 中成功回收被删除的文件 - 自由版</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/corsair-h115i-and-windows-updates-overcoming-driver-errors-in-latest-oses/"><u>Corsair H115i and Windows Updates: Overcoming Driver Errors in Latest OSes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-winx-dvd-author-software-ultimate-free-dvd-creator-and-burner-tool-for-windows-11-users/"><u>Free WinX DVD Author Software: Ultimate Free DVD Creator & Burner Tool for Windows 11 Users</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722964808760-get-your-behringer-usb-soundcard-drivers-now/"><u>Get Your Behringer USB Soundcard Drivers Now</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-the-step-by-step-journey-of-becoming-an-ez-grabber-user/"><u>In 2024, The Step-By Step Journey of Becoming an EZ Grabber User</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mayhem-for-happy-birthdays/"><u>Multilingual Mayhem for Happy Birthdays</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/upscaling-your-youtube-visuals-for-2024/"><u>Upscaling Your YouTube Visuals for 2024</u></a></li>
 </ul></div>
 

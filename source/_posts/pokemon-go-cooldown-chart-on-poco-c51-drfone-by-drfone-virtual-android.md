@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco C51 | Dr.fone
-date: 2024-07-14T09:59:32.721Z
-updated: 2024-07-15T09:59:32.721Z
+date: 2024-12-16T17:42:05.883Z
+updated: 2024-12-18T16:33:36.495Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -50,6 +54,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -101,9 +109,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -116,6 +121,10 @@ It is a very simple-to-use application and provides robust results if you follow
 - Always log off from Pokémon before teleporting so the game does not detect your actions. For logging out, go to settings in your game by clicking the Pokeball in the center of the screen. Scroll down to locate and click the logout button.
 
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
 
@@ -145,19 +154,19 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
 
 ## Here are Some Pro Tips for Pokemon Go PvP Battles On Poco C51
 
@@ -181,6 +190,10 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 
 ![leagues in pokemon pvp](https://images.wondershare.com/drfone/2020/leagues-in-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
 
 ### Tip 2: Master all the Battle Moves
@@ -192,19 +205,25 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 - **Shield:** This would shield your Pokemon from the enemy attacks. In the starting, you would only get 2 shields per battle.
 - **Swapping:** Since you get 3 Pokemons, don’t forget to swap them during the battle. You can only swap Pokemons once in every 60 seconds.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![moves in pokemon pvp](https://images.wondershare.com/drfone/2020/moves-in-pokemon-pvp.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 3: Check your Opponent’s Pokemons
 
 This has to be the most important thing that you should check before you start any Pokemon Go PvP battle. Right before starting the battle, you can check a list of the prospective opponents in your league. You can have a glimpse of their main Pokemons and pick your Pokemons accordingly so that you can counter their picks.
 
 ![opponent screen pokemon pvp](https://images.wondershare.com/drfone/2020/opponent-screen-pokemon-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 4: Know the current Meta
 
@@ -212,9 +231,6 @@ In nutshell, Meta Pokemons are the ones that are considered superior to other pi
 
 There are several sources like the Silph Arena, PvPoke, and Pokebattler that you can check to know the current meta Pokemons.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip 5: Shield Baiting Strategy
 
 This is one of the most effective Pokemon Go PvP strategies that you must try. You might already know that there are two kinds of charged attacks a Pokemon can do (mild and strong). During the battle, you need to first poke your enemy and have enough energy for both moves.
@@ -287,6 +303,10 @@ In the end, make sure that you have a perfect Pokemon that can end the battle an
 
 ![skarmory in pokemon go](https://images.wondershare.com/drfone/2020/skarmory-in-pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Secrets about the new Mechanics in PvP Pokemon Go Battles
 
 Lastly, if you want to level up in PvP Poke battles, then you should get to know about these three important mechanisms.
@@ -307,8 +327,6 @@ Switching is another strategic account in the new mechanism of Pokemon PvP battl
 
 There you go! I’m sure that after reading this post, you would be able to know every important thing about PvP Poke battles. From the meta Pokemons for PvP battles to essential mechanisms, I have listed it all in this guide. Now, it is time for you to implement these tips and become a Pokemon Go PvP champion in no time!
 
-
-
 ## What Legendaries Are In Pokemon Platinum On Poco C51?
 
 Pokemon Platinum is an engaging role-playing video game introduced by Nintendo and Game Freak. Released in 2008 in Japan, Platinum is an enhanced version of Pokemon Pearl and Diamond.
@@ -319,9 +337,6 @@ In the game, players control a female or male character. It starts with three Po
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
@@ -410,13 +425,15 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -432,9 +449,6 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -447,9 +461,16 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-leap-into-the-spotlight-with-tiktok-lives/"><u>[New] In 2024, Leap Into the Spotlight with TikTok Lives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-exhilarating-viewing-experience-with-elite-blu-ray-players/"><u>[Updated] Exhilarating Viewing Experience with Elite Blu-Ray Players</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-streamline-your-filming-gameplay-on-fbx/"><u>[Updated] In 2024, Streamline Your Filming - Gameplay on FBX</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-oppo-f23-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Oppo F23 5G</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-insiders-guide-to-watermark-free-images-for-2024/"><u>The Insider's Guide to Watermark-Free Images for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 90 Pro | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Poco X5? | Dr.fone
-date: 2024-07-14T09:57:16.516Z
-updated: 2024-07-15T09:57:16.516Z
+date: 2024-12-15T16:25:23.254Z
+updated: 2024-12-18T17:05:26.813Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -31,8 +31,9 @@ Following are the additional evolution items observed in Pokémon Go:
 ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 
 The pokemon go dragon scale is one of the new evolution objects that can be employed in association with Pokemon Candy to evolve some of the generation 1 Pokemon to new generation 2 evolutions. The dragon scale is extremely strong and rigid. We can only make use of our Dragon Scale on a specific Pokemon. Dragon scale pokemon go evolutions contain the alteration of Seadra into Kingdra by combining the dragon scale along with 100 Horsea candies - making Kingdra a sturdy pocket monster ideal for raids and taking charge over the gyms.
@@ -55,13 +56,14 @@ You can click the ‘Get Started’ button to initiate the action as soon as you
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Mirroring Motion amid steps:**
 
 Unfold the top right area of the initial option before reaching Dr. Fone's GUI, which permits you to imitate maneuver amid the two spots. Pick the positioning pin and click on the ‘transfer here’ button in the search bar.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 08](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
@@ -82,6 +84,10 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
@@ -89,13 +95,12 @@ Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, w
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
-
-
 
 ## Here are Some of the Best Pokemon Discord Servers to Join On Poco X5
 
@@ -143,9 +148,6 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 1. Once you have obtained the invite link for the Pokemon Go Discord server, just go to the Discord app or the website and click on the “Add Server” option from the sidebar.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Discord Add a Server](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-5.jpg)
 
 2. Now, you will be given an option to either create a new server or simply join an existing server. From here, you can select an option to join an existing server instead.
@@ -157,6 +159,10 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
 
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 3: Some Popular Pokemon Discord Servers to Join**
 
@@ -204,8 +210,6 @@ From these Pokemon Go Discord servers, you can easily know the spawning or raid 
 
 That’s a wrap, everyone! I’m sure that after reading this post, you would be able to search all kinds of Pokemon Discord servers. Apart from reliable Discord server directories, you can also browse various popular Pokemon Go Discord servers out there. Go ahead and search some other local and interesting Pokemon Discord servers on your own and use a tool like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS) to catch Pokemons remotely.
 
-
-
 ## Here are Some Pro Tips for Pokemon Go PvP Battles On Poco X5
 
 _**“How to plan the PvP Pokemon matches and are there some strategies that I need to implement in the PoGo PvP battles?”**_
@@ -227,6 +231,10 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 - **Master League:** No CP limit
 
 ![leagues in pokemon pvp](https://images.wondershare.com/drfone/2020/leagues-in-pokemon-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
 
@@ -261,6 +269,10 @@ Now, instead of going with your ultimate attack, only perform the mild one. Your
 
 ![shield baiting strategy pokemon pvp](https://images.wondershare.com/drfone/2020/shield-baiting-strategy-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 6: Learn to Counter Fast Moves
 
 To make the most of your shield and energy levels, you should learn how to counter moves. The first way to do this is by picking your Pokemons wisely. Your Pokemon would automatically get less damage if it can counter your opponent’s Pokemon.
@@ -269,9 +281,6 @@ During any PvP Poke battle, keep a count of your opponent’s moves to calculate
 
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip 7: Sacrifice Swap
 
 This might sound surprising, but sometimes we have to sacrifice a Pokemon in a fight to win the battle. For instance, you can consider sacrificing a Pokemon that is at low energy and won’t be of much help later.
@@ -289,6 +298,10 @@ Even after the much-anticipated release of PoGo PvP, a lot of players are not sa
 - The PoGo PvP battles are more centric on the picks and less on the actual battle. Players would like more strategic moves and in-battle options to help them fight.
 
 ![cp iv level trick pokemon](https://images.wondershare.com/drfone/2020/cp-iv-level-trick-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Select the Best Pokemons for PvP Battles?
 
@@ -328,6 +341,10 @@ In the end, make sure that you have a perfect Pokemon that can end the battle an
 
 ![skarmory in pokemon go](https://images.wondershare.com/drfone/2020/skarmory-in-pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Secrets about the new Mechanics in PvP Pokemon Go Battles
 
 Lastly, if you want to level up in PvP Poke battles, then you should get to know about these three important mechanisms.
@@ -346,8 +363,11 @@ Switching is another strategic account in the new mechanism of Pokemon PvP battl
 
 ![mechanism in pokemon pvp battle](https://images.wondershare.com/drfone/2020/mechanism-in-pokemon-pvp-battle.jpg)
 
-There you go! I’m sure that after reading this post, you would be able to know every important thing about PvP Poke battles. From the meta Pokemons for PvP battles to essential mechanisms, I have listed it all in this guide. Now, it is time for you to implement these tips and become a Pokemon Go PvP champion in no time!
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
+There you go! I’m sure that after reading this post, you would be able to know every important thing about PvP Poke battles. From the meta Pokemons for PvP battles to essential mechanisms, I have listed it all in this guide. Now, it is time for you to implement these tips and become a Pokemon Go PvP champion in no time!
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -361,9 +381,22 @@ There you go! I’m sure that after reading this post, you would be able to know
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-discovering-the-most-engaging-facebook-vids/"><u>[New] Discovering the Most Engaging Facebook Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-hidden-layer-capturing-chats-as-fb-media-files-for-2024/"><u>[New] The Hidden Layer Capturing Chats as FB Media Files for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-guide-to-the-best-10-cost-free-photo-hosters/"><u>[Updated] Ultimate Guide to the Best 10 Cost-Free Photo Hosters</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1726028114902-mp4/"><u>大容量メディアを効率的にMP4形式へ:オンラインツールとオフライン方法</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-poco-x5-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-poco-c51-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacr-bluetooth-fm-transmitter-the-compact-model-cp24-and-its-shortcomings-analyzed-in-detail/"><u>Criacr Bluetooth FM Transmitter - The Compact Model CP24 and Its Shortcomings Analyzed in Detail</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-advanced-editing-tips-remove-the-unnecessary-picture-border/"><u>In 2024, Advanced Editing Tips Remove the Unnecessary Picture Border</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/spectacular-sites-featuring-rich-3d-and-golden-text-for-2024/"><u>Spectacular Sites Featuring Rich 3D and Golden Text for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tsdvd/"><u>ビデオ・TSフォルダーを簡単にDVDへ書き込む方法 - 無料ツール</u></a></li>
+</ul></div>
 

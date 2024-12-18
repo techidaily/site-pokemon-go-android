@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco X5 | Dr.fone
-date: 2024-07-14T09:57:15.370Z
-updated: 2024-07-15T09:57:15.370Z
+date: 2024-12-16T18:31:02.072Z
+updated: 2024-12-18T16:08:22.165Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,15 +26,13 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -132,6 +130,10 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
@@ -142,6 +144,10 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
@@ -150,25 +156,13 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 Voila! You have teleported your location to the desired place.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Poco X5
 
@@ -209,14 +203,19 @@ To spoof location with PGSharp, your first need to install it from the Google Pl
 
 Now, when it gets installed, you can opt for a free trial or paid option. For a free trial, you will need a free beta key to use the app. For the paid version, you will need a license key that the app developer will provide you.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![pgsharp plan](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
@@ -254,15 +253,9 @@ To use it, you will need to install it on your device from the official site or 
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
 
-
-
 ## Conclusion
 
 Pokemon Go is a very interesting game and brings a lot of fun while playing. With reliable and trusted apps like PGsharp for android, you can spoof it without a ban. For iOS, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app is best for fake GPS without a ban. Try these apps now to get more fun in the game without getting a ban.
-
-
-
-
 
 ## Ultimate guide to get the meltan box pokemon go For Poco X5
 
@@ -270,11 +263,19 @@ If you are a huge Pokemon fan and loves to play pokemon go, you will definitely 
 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is the meltan box and how does it work?
 
 Meltan, the mythical Pokemon is also described as a Hex Nut Pokemon. A major part of its body is built from liquid metal and its shape is fluid. It generates electricity using the metal that it absorbs from the outside sources. The pokemon uses its arms and legs to corrode metal and absorb it into its own body.
 
 ![meltan pokemon](https://images.wondershare.com/drfone/2020/meltan-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The meltan box is actually a mystery box that you cannot receive through the traditional method. It requires you to make an unconventional move to get this box and catch this different pokemon. The process involved to get the meltan box pokemon go include the following:
 
@@ -297,6 +298,10 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 **Step 3:** Choose the option “Open Pokemon GO Settings”.
 
 ![pokemon switch pair1](https://images.wondershare.com/drfone/2020/pokemon-switch-pair1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** When asked, select the option “YES”. This will allow the game to begin the search for a Pokemon Go account that you can pair with.
 
@@ -342,12 +347,13 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Tips to get more meltan boxes
 
 There is a lot of confusion among the Pokemon trainers regarding how to get meltan in pokemon go. Here, we share a few tips for doing the same and reducing your confusion to zero.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip No.1: Transfer Pokemon to Win a Mystery Box
 
@@ -357,6 +363,10 @@ With the help of pairing and connecting your Pokemon Go to the Nintendo Switch, 
 
 If you cannot establish a pair with your Nintendo Switch, you can always look for your friends. In case you don’t have a Nintendo Switch with a copy of Let’s Go Pikachu, do not worry. You can still obtain a shiny meltan pokemon go mystery box. You can send Pokemon to your friend’s Nintendo switch and bang… you get the chance to catch the mythical pokemon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip No.3: Use Dr. Fone Virtual Location Service
 
 You can catch not just one but several Meltans through the mystery box. All you need to do is move around in your area and discover the meltan available near you. But not every time, you can get this lucky to obtain the opportunity to maximize your mystery box. If this is what you are thinking, then we are happy to say that you are wrong!
@@ -365,16 +375,11 @@ With the help of [Dr.Fone- Virtual Location](https://tools.techidaily.com/wonder
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
-
-
 It is well-known that Pokemon Go is a location-based game that offers several services only according to your location. You might find it difficult to maximize your pokemon go meltan box without moving or looking for services out of your region. Dr.Fone Virtual Location is here to help. With this service provider's help, you can change your location and enjoy the unlimited fun that you had always desired. It will also be a great rescue for you if you cannot catch a meltan in your region. Try it and get the Hex Nut Pokemon.
 
 ## Conclusion
 
 Resolving your query about getting meltan box and offering you a detailed guide and assistance, we aim to help you continue your fun-experience with the game. Play, look for and find all the meltan! You can then evolve your meltan into a formidable Melmetal. You will need around 400 meltan candy to evolve into Melmetal, so be sure to catch as many as possible and enjoy!
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -388,9 +393,26 @@ Resolving your query about getting meltan box and offering you a detailed guide 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exploring-earning-potential-an-uncomplicated-triad-technique-for-youtube-profit-analysis/"><u>[New] 2024 Approved Exploring Earning Potential An Uncomplicated Triad Technique for YouTube Profit Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-a-youtubing-brand-from-scratch-with-these-8-courses/"><u>[New] In 2024, Building a YouTubing Brand From Scratch with These 8 Courses</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-snagit-screen-recording-a-guide/"><u>[New] In 2024, Snagit Screen Recording A Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-cutting-edge-gifs-from-tiktok-a-guide-for-creators/"><u>[Updated] In 2024, Cutting-Edge GIFs From TikTok A Guide for Creators</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/edgeai-optimized-coolers-unveiling-frores-aircell-pak-series-ideal-up-to-25-watt-systems/"><u>EdgeAI Optimized Coolers - Unveiling Frore's Aircell PAK Series, Ideal Up To 25 Watt Systems</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor X9a? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-unveiling-fake-followers-trap-on-youtube-landscapes/"><u>In 2024, Unveiling Fake Followers' Trap on YouTube Landscapes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-technology-the-ultimate-resource-by-toms-hardware-specialists/"><u>Mastering Technology: The Ultimate Resource by Tom's Hardware Specialists</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/snapshots-of-progress-windows-10s-new-features-for-2024/"><u>Snapshots of Progress Windows 10'S New Features for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-directx-issues-in-call-of-duty-warzone-for-pc-gamers/"><u>Solving DirectX Issues in Call of Duty: Warzone for PC Gamers</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-oppo-find-x7-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Oppo Find X7</u></a></li>
+</ul></div>
 

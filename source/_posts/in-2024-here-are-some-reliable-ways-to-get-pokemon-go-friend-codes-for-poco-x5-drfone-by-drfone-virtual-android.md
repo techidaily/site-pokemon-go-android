@@ -1,7 +1,7 @@
 ---
 title: In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco X5 | Dr.fone
-date: 2024-07-14T09:58:19.060Z
-updated: 2024-07-15T09:58:19.060Z
+date: 2024-12-16T16:36:12.570Z
+updated: 2024-12-18T16:10:09.241Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -20,6 +20,10 @@ Pokemon Go is a game that encourages players to interact with each other. One of
 If you have been playing Pokemon Go for a while, then you might already know how tough it can be to add friends. For instance, if you want to fight with other trainers, then you need to look for their Pokemon Go friend codes. Thankfully, there are some reliable social platforms to find Pokemon Go friends. In this post, I will let you know about them and would also list how to add friends in Pokemon Go.
 
 ![pokemon go friend codes banner](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes-banner.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Where to find Pokemon Go Friend Codes?
 
@@ -127,7 +131,9 @@ Adding friends in Pokemon Go is not enough as you need to have some powerful Pok
 
 Now when you know how to make new friends in Pokemon Go, you can easily expand your network. As you can see, you can find Pokemon Go friend codes from Reddit, Facebook, Discord, and several other social platforms. Though, to win more battles and level-up in the game, you can consider using Dr.Fone – Virtual Location (iOS). It is a 100% trusted application that would let you spoof your iPhone location so that you can catch your favorite Pokemons remotely.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Poco X5
 
@@ -163,6 +169,10 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 ![teleport to desired location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_Step 6:_** Finally, it will show you that chosen location that you typed and you can then check your current location on your phone which shows the same place.
 
 ![current location in program](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -171,9 +181,6 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Best AR Games like Pokémon GO
 
 If you want a game like Pokémon Go but want a different storyline and characters, we will list down AR games that you can try to play yourself. In addition, you can check other similar AR games below.
@@ -182,10 +189,11 @@ If you want a game like Pokémon Go but want a different storyline and character
 
 If you like zombie movies, this game is the right one to download. “The Walking Dead: Our World” is a game where you can play as a zombie hunter, explore the environment, and save the world. This game uses the player’s GPS location, where they release new challenges that can be found in your town or area. This game also allows users to play and shoot zombies with their friends or group where you can reap big rewards.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![the walking dead: our world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160) _
@@ -195,6 +203,10 @@ If you like zombie movies, this game is the right one to download. “The Walkin
 Dragon Quest Walk is a game for those people who love watching or reading about magical adventures. In this game, you embarge on different quests where you fight off different magical creatures. As you win more battles, your character levels up, and you can access more parts of the game. In addition, you can find different quests in different locations that you need to win and even some collectibles that you can use.
 
 ![dragon quest walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.square_enix.android_googleplay.dqwalkj&hl=en&gl=US) _
 
@@ -221,6 +233,10 @@ Ghost Busters World is a game that was created and inspired by the Ghost Busters
 
 ![ghost busters world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android) _
 
 ### 10\. Geocaching
@@ -232,9 +248,6 @@ If you love searching and hunting for treasure, then Geocaching is the perfect g
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503) _
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### 9\. Zombies, Run
 
 For those players who are into running or are physically fit, you playing the game Zombies, Run! is the right game for you. In Zombies, Run!, players are encouraged to run as you are running away from zombies in the game. You will be given missions that you have to complete in the zombie apocalypse and listen to the narrations from the game to know their challenges. They track your every movement and then reward you with different gifts.
@@ -270,9 +283,6 @@ The Witcher: Monster Slayer is a game that will be a big hit for gamers who like
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647) _
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. The Walk
 
 If you love going for walks, then The Walk is the game that you should try to elevate your walking experience. In this game, you are given different goals per day that you must complete gaining rewards. This game will change your boring daily walks and make them more exciting, unique, and interesting.
@@ -315,6 +325,10 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US) _
 - _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181) _
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 These are all the games that are similar to Pokémon Go and something that you can try on your own time to see the different concepts of how AR is integrated into this game. Though the games require you to walk and track your GPS, it will motivate you to move a little and get out of the room. If you are not keen on doing that, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), can also help you to virtually go to any place on the earth without having to get up from your couch. These games will surely entertain not only you but also the friends that you can play with.
@@ -331,6 +345,10 @@ It's worth mentioning here that this AR-game is absolutely convenient to play. N
 
 Through this article, we will discuss all you need to know about Greninja. So, without any further delay, let's get started.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Who is Mega greninja?
 
 ![Mega greninja pokemon](https://images.wondershare.com/drfone/2020/mega-greninja-pokemon-pic-1.png)
@@ -346,6 +364,10 @@ There are various weaknesses of this pokemon which include “Fighting”, “Gr
 ![strength mega Greninja Pokemon](https://images.wondershare.com/drfone/2020/strength-mega-Greninja-Pokemon-pic-2.jpg)
 
 Greninja is resistant to “Water”, “Fire”, “Ice”, “Dark”, “Steel” and finally “Ghost”. Also, this pokemon is immune to “Psychic”. This pokemon’s presence can be very intimidating for its opponents, it would not be wrong if we say that Greninja is quite unpredictable. There is no doubt that the counter attacks of Greniaja prove to be very dangerous for its enemies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Greninja?
 
@@ -369,6 +391,10 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 ![dr.fone change location](https://images.wondershare.com/drfone/2020/dr_fone-change-location-pic-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** If you have executed the prior steps or directions successfully, then you will see a new window that shows your actual location on a map will get displayed on your screen. Now, make sure that your displayed location on moa is accurate, if not, then click on “Center On,” with the help of this, you’ll be able to make your location correct.
 
 ![Dr.fone centre on](https://images.wondershare.com/drfone/2020/Dr_fone-centre-on-pic-6.jpg)
@@ -383,9 +409,6 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 **Step 5:** If you have followed the directions accurately, your actual location on the map will now be set to “Italy”. You can confirm your location from the Pokemon Go’s map. Finally, below we have provided a screenshot of how the location will be shown.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dr.fone location changed](https://images.wondershare.com/drfone/2020/Dr_fone-location-changed-pic-9.jpg)
 
 **Step 6:** Also, you’ll see that the location on your iPhone would have also changed now to “Italy” or any other place that you have entered earlier.
@@ -395,7 +418,6 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 ## Conclusion
 
 So, we have reached the end of this article. We hope that you found the article quite useful as well as insightful. We also hope that with the help of the setup guide for Dr.Fone you can now easily catch your favourite pokemon by teleporting to different locations across the world. If you have any doubts or suggestions related to this article, then feel free to write it down in the comment section. So, this was all from our side for now. Stay Tuned
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -409,9 +431,21 @@ So, we have reached the end of this article. We hope that you found the article 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-tricks-to-flawless-screen-casting-on-mobile-and-desktop/"><u>[New] In 2024, Tricks to Flawless Screen Casting on Mobile and Desktop</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unveiling-strategies-to-stand-out-with-a-great-podcast-name/"><u>[New] In 2024, Unveiling Strategies to Stand Out with a Great Podcast Name</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-color-changes-11-essential-tips/"><u>[Updated] 2024 Approved Mastering Color Changes 11 Essential Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-step-by-step-how-to-conduct-real-time-calls-via-whatsapp-on-pc-for-2024/"><u>[Updated] Step by Step How to Conduct Real-Time Calls via WhatsApp on PC for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-90-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-your-digital-experience-with-memoji-animation-in-facetime-advanced-research-scanners-and-effective-dog-training-tips-discover-whats-new-on-abbyy-blo12/"><u>Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-vivo-s18-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo S18 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-master-videoleap-to-capture-up-close-footage/"><u>In 2024, Master Videoleap to Capture Up-Close Footage</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-voicemod-proven-techniques-for-opening-and-fixing-issues/"><u>Revive Your Voicemod: Proven Techniques for Opening & Fixing Issues</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-color-richness-the-role-of-look-up-tables-in-adobe-photos-for-2024/"><u>Unlocking Color Richness The Role of Look-Up Tables in Adobe Photos for 2024</u></a></li>
+</ul></div>
 

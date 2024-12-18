@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Realme 12 Pro+ 5G | Dr.fone
-date: 2024-12-01T21:07:55.445Z
-updated: 2024-12-06T08:19:15.385Z
+date: 2024-12-12T17:50:04.492Z
+updated: 2024-12-18T21:51:39.779Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -20,7 +20,7 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What does Soft Banned & Cooldown Mean?
@@ -32,6 +32,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
@@ -136,10 +140,6 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -156,13 +156,13 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## iPogo will be the new iSpoofer On Realme 12 Pro+ 5G?
 
@@ -191,7 +191,7 @@ If the iSpoofer for Pogo is not working, then you can make a simple search for s
 ![iOS-App-Store-pic-3](https://images.wondershare.com/drfone/2020/2020/iOS-App-Store-pic-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### In-built spoofing with VPNs
@@ -227,16 +227,12 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 ![Drfone-Location-map-on-globe-pic-7](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3** \- Then you can change your location from your current place to anywhere you want to go. This can be quite close or even as far as some other country. However, for Pokemon Go purposes, keep it close. Then click on ‘Move Here’.
 
 ![Move-Here-drfone-pic-8](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4** \- Your location change will happen automatically and within a few minutes, the new location will be registered on every site that you go to. So, you are covered!
 
@@ -250,6 +246,10 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 - Try not to make abrupt location changes - keep it nearby initially and slowly try to increase your radius. An abrupt change can draw attention.
 
 ![Quick tips-for-no-ban-pic-10](https://images.wondershare.com/drfone/2020/2020/Quick%20tips-for-no-ban-pic-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That being said, there aren’t any well-researched and ground rules as to how your spoofing should be so that you remain undetected. All we can do is pick up tips from someone else’s expertise. Apps like Dr.Fone will help you change your [virtual location](https://drfone.wondershare.com/virtual-location/fake-snapchat-location.html) without getting your account banned as they are designed to do this very job with perfection.
 
@@ -290,7 +290,7 @@ Dratini has a 5% spawning chance every day, so if you have the time, you can spe
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
@@ -326,13 +326,13 @@ Next, click on “Get Started”; you will now be able to start the spoofing pro
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
@@ -341,7 +341,7 @@ The image below shows an example of coordinates entered for Rome, Italy.
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
@@ -361,7 +361,7 @@ This is how your location will be viewed on another iPhone device.
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## In conclusion
@@ -384,24 +384,19 @@ When you need to, you can teleport your device to an area where Dratini is popul
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-elevating-your-4k-entertainment-tvs-vs-projection-technology/"><u>[New] Elevating Your 4K Entertainment TVs vs Projection Technology</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-experience-ultimate-quality-leading-4k-converters/"><u>[New] Experience Ultimate Quality Leading 4K Converters</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-beginners-guide-to-interpreting-facebook-metrics/"><u>[Updated] Beginner's Guide to Interpreting Facebook Metrics</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/apple-unveils-most-memorable-super-bowl-weekend-advertisement-skipping-the-big-game-entirely-insights-from-zdnet/"><u>Apple Unveils Most Memorable Super Bowl Weekend Advertisement, Skipping the Big Game Entirely - Insights From ZDNet</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor 90 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor X50i+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-bypassing-identification-to-explore-instagram-stories-desktop-android-ios/"><u>In 2024, Bypassing Identification to Explore Instagram Stories [Desktop, Android, iOS]</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-enhance-your-photos-with-top-insta-editors/"><u>In 2024, Enhance Your Photos with Top Insta Editors</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-from-iphone-7-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code From iPhone 7 in the Best Ways</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-11-to-ipad-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 11 to iPad? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/inside-and-out-a-full-guide-to-theta-s-features-for-2024/"><u>Inside & Out A Full Guide to Theta S Features for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/introducing-b550-xts-vocal-interface-and-acoustic-harmony/"><u>Introducing B550-XT's Vocal Interface & Acoustic Harmony</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Google Pixel Fold? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-quantum-megadesk-pure-4k-multi-touch/"><u>[New] 2024 Approved Quantum MegaDesk Pure 4K Multi-Touch</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered/"><u>[New] In 2024, Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-twitchs-stage-to-youtube-writers-guide-to-cross-platform-content/"><u>[Updated] In 2024, From Twitch's Stage to YouTube’ Writers Guide to Cross-Platform Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-step-by-step-username-modification-guide-for-meet-sessions/"><u>[Updated] In 2024, Step-by-Step Username Modification Guide for Meet Sessions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/master-the-process-of-modifying-user-identities-on-windows-11/"><u>Master the Process of Modifying User Identities on Windows 11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revive-your-data-on-mac-celebrating-the-best-8-recovery-apps/"><u>Revive Your Data on Mac: Celebrating the Best 8 Recovery Apps</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-pinnacle-of-picture-quality-best-players-24-for-2024/"><u>The Pinnacle of Picture Quality Best Players '24 for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-c51-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-potential-the-dell-g5-5090-awaits-in-budget-friendly-power-and-extensive-feature-selection/"><u>Unlocking Potential: The Dell G5 5090 Awaits in Budget-Friendly Power & Extensive Feature Selection</u></a></li>
 </ul></div>
 
