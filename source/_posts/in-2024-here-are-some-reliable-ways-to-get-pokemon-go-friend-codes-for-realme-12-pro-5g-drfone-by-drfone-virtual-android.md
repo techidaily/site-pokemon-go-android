@@ -1,7 +1,7 @@
 ---
 title: In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme 12 Pro 5G | Dr.fone
-date: 2024-12-02T12:25:06.132Z
-updated: 2024-12-05T17:12:07.166Z
+date: 2024-12-19T21:24:54.192Z
+updated: 2024-12-26T16:33:22.918Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -55,6 +55,10 @@ Here are some of these popular Discord servers that you can join to find Pokemon
 
 ![dicord server pokedex100](https://images.wondershare.com/drfone/2020/202009/dicord-server-pokedex100.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Find Pokemon Go Friend Codes on Reddit?
 
 While some Discord groups are closed, most of the Reddit subs are open. It might surprise you, but some of the Pokemon-based Reddit subs even have millions of members. This would make it pretty easy for you to find Pokemon Go friend codes on Reddit. All you need to do is join these groups and find the mega thread for exchanging PoGo friend codes.
@@ -86,6 +90,10 @@ Poke Friends is one of the most popular mobile apps, listing thousands of PoGo f
 
 ![poke friends mobile app](https://images.wondershare.com/drfone/2020/202009/poke-friends-mobile-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **PoGo Trainer Club**
 
 This is another popular online directory to add friends in Pokemon Go. You can enter the name of any person or get results nearby/international. There is also a provision to know more about a trainer and their Pokemons before adding them.
@@ -99,7 +107,7 @@ Pokemon Go Friend Code is a dedicated online directory having thousands of train
 ![pokemon go friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - **Other sources**
@@ -116,6 +124,10 @@ Once you have found Pokemon Go codes for friends, you can add them to your netwo
 4. Now, you can enter their unique Pokemon friend code that would send them an add request. You can also view your Pokemon Go trainer code from here and share it with others.
 
 ![pokemon go add friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-add-friend-codes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 6: How to Find new Pokemons to Level-up in the Game?
 
@@ -140,10 +152,6 @@ Giovani is the grand commander of the Team Go Rocket crime syndicate. The big bo
 ## Part 1. How to Find the Giovani in Pokemon
 
 Locating Giovani’s hideout is never a walk in the park as you need to complete some daunting tasks. A detailed explanation of each task is given below:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. A Troubling Situation Task
 
@@ -211,13 +219,13 @@ Once you defeat Team Go Rocket's second lineup creatures, you will have to battl
 
 Now you know the best Giovani Pokemon Go counters to use against each lineup of creatures, leverage it to advance to the next phase of the game where you will face the big bad boss himself, Giovani.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3. Tips to Beat Giovani in Pokemon Go
 
 ![giovani](https://images.wondershare.com/drfone/2020/giovani.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Just as you did against Team Go Rocket Leaders, Arlo, Cliff, and Sierra, you need a Pokemon stronger than two of Giovani’s. With that, you can use the same Pokemon twice, thereby keeping your choice for Legendary Shadow Pokemon safe till you need it to beat Giovani.
 
@@ -245,10 +253,6 @@ Click on Get Started to change your location.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Your current location will appear on the PC screen. Switch location by entering the name or address of the place in the field at the upper left corner of the application.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -257,11 +261,11 @@ Click on Get Started to change your location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And now you are good to have one of the strongest Pokemon on your team when fighting against Giovani. Leverage the Dr.Fone- Virtual Location program as it will help you ease the stress of catching stronger Pokemon remotely on your device without jailbreaking it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Legendaries Are In Pokemon Platinum On Realme 12 Pro 5G?
 
@@ -272,10 +276,6 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
@@ -317,6 +317,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
 **15\. Registeel:** Located in the Iron Ruins cave on Iron Island, Registeel is accessible only if you have Regigigas on your team. Enter the cave with a Metal Coat, and as you go up to the statue in the cave, Registeel – the level 30 Pokemon – will attack.
@@ -328,6 +332,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
@@ -342,7 +350,7 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -365,10 +373,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -376,10 +380,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
@@ -391,11 +391,11 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
-According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
 ## Conclusion
 
@@ -415,20 +415,18 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-customize-with-confidence-google-pixel-tunes/"><u>[New] 2024 Approved Customize with Confidence Google Pixel Tunes</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-financial-gains-the-youtube-money-flow-from-1m-views/"><u>[New] 2024 Approved Financial Gains The Youtube Money Flow From 1M Views</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-best-mp3-extractors-from-tiktok-online-and-at-zero-price/"><u>[New] Best MP3 Extractors From TikTok - Online & at Zero Price</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-sprout-screencapture-transform-your-pc-footage-game/"><u>[New] Sprout ScreenCapture Transform Your PC Footage Game</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-complete-razer-kiyo-webcam-review/"><u>2024 Approved Complete Razer Kiyo Webcam Review</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/foremost-8-smartphone-gaming-experiences-on-the-market/"><u>Foremost 8 Smartphone Gaming Experiences on the Market</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor Play 8T? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/iew-figures-for-earning-living-on-youtube-for-2024/"><u>Key View Figures for Earning Living on YouTube for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mixing-masterclass-for-dji-miniair-2-owners-no-cost-here/"><u>Mixing Masterclass for DJI Mini/Air 2 Owners - No Cost Here</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme V30T? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-pixelpatch-artisan-online-design-symphony/"><u>[New] 2024 Approved PixelPatch Artisan Online Design Symphony</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-sky-to-framing-a-compreenasive-review-of-the-drone-dji-spark/"><u>[New] From Sky to Framing A Compreenasive Review of the Drone DJI Spark</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-finest-8-platforms-for-sharing-3d-text-psd-files/"><u>[Updated] The Finest 8 Platforms for Sharing 3D Text PSD Files</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-poco-m6-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Poco M6 Pro 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/navigating-through-youtubes-adsense-revenue-understanding-payments-per-thousand-views-for-2024/"><u>Navigating Through Youtube’s AdSense Revenue Understanding Payments per Thousand Views for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/solving-the-unbootable-windows-10-error-a-step-by-step-guide-with-images/"><u>Solving the Unbootable Windows 10 Error: A Step-by-Step Guide with Images</u></a></li>
+<li><a href="https://win-trending.techidaily.com/step-by-step-tutorial-for-transforming-voc-recordings-into-common-digital-audio-files-such-as-mp3-aac-m4a-on-windowsmac-systems/"><u>Step-by-Step Tutorial for Transforming VOC Recordings Into Common Digital Audio Files Such as MP3, AAC, M4A on Windows/Mac Systems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Tecno Spark Go (2024) | Dr.fone</u></a></li>
 </ul></div>
 

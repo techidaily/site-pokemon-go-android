@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Nubia Red Magic 9 Pro+? | Dr.fone
-date: 2024-07-14T09:48:29.433Z
-updated: 2024-07-15T09:48:29.433Z
+date: 2024-12-23T19:46:19.908Z
+updated: 2024-12-26T23:13:01.144Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,16 +27,21 @@ In this post, we will learn about all legendaries in Platinum version. You will 
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
 
 **1\. Giratina:** First encountered in its powerful Origin Forme, Girartina exists, after defeating Cyrus, at the ened of the Distortion World. The Level 47 Pokemon occurs before you get the National Dex. When you flee from it or KO it, the Pokemon re-appears at the end of Turnback Cave after you defeat the Elite Four. You have to reach Giratina within 30 rooms, and advisably, never turn back; else you will be left at the cave’s beginning.
 
 **2\. Uxie:** Found in found in Acuity Cavern in the middle of Lake Acuity, Uxie is one of the three legendary Pokemon scattered around Sinnoh after you have battled and qwelled Giratina. The Level 50 Pokemon is reachable by walking or riding up without any fear of attack. This is one of the popular platinum legendaries.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 3](https://images.wondershare.com/drfone/Platinum-legendaries-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **3\. Azelf:** Located in Valor Cavern, in the middle of Lake Valor, Azelf is the Blue Pokemon in the trio. The Level 50 Pokemon does not attack you as you walk or ride up to it. Spray Super Repels as you move towards the Pokemon and surf onto the rocky island housing a cave to catch it.
 
@@ -78,9 +83,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -123,7 +125,9 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -139,14 +143,11 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
-
-
 ## Hacks to do pokemon go trainer battles For Nubia Red Magic 9 Pro+
 
 With the launch of the Pokémon Go battle league, the trainer battles are seen as one of the options that can be used to compete and do it the hard way. As the name suggests it is a feature in Pokémon Go that lets you battle as a trainer against the other trainers. Pokémon Go trainer battles are a great way to enhance your skills as the rules are different from the gym and raid battles which are also a great feature of this game. The Pokémon CP limits are granted to each league from which the trainer needs to choose one.
 
 ![Pokemon go hacks 1](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_1.jpg)
-
 
 ## Part 1: What is the Point of Trainer Battles in Pokémon Go?
 
@@ -155,6 +156,10 @@ The best part is that the teams are assembled by the trainers themselves. The po
 ![Pokemon go hacks 2](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_2.jpg)
 
 Now you want to make sure that the charged attacks are learned and how they can be used as a weapon against the other players. The Pokémon should also be chosen as per the ability as different Pokémon have different charged attack ability overall. The Pokémon is of a different kind as all benefit from the charge attack in different states. It also means that you get to choose Pokémon like Tyranitar which will get you to through the battle with highly advanced skills. Typhlosion is a dual-type Pokémon and the raids which are done using it benefit the trainers as compared to single types.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: What can you get from trainer battles Pokémon go?
 
@@ -178,9 +183,6 @@ The rematches that are done in the trainer battles also account for the leveling
 
 In Pokémon trainer battle it indeed matters and this is one of the basic phenomena that will take you and your team to the next level. The CP stands for combat power and it means the power of your Pokémon. As a trainer when you battle more and more the XP increases and the CP as well. This CP will also help you to get a step ahead of others in terms of Pokémon that you own. The candies are used to make sure that the CP of the Pokémon is increased. It also means that you get the best Pokémon on the battlefield that will be able to counter offense the other Pokémon on the field. There are two ways to get higher CP. Firstly you can evolve a Pokémon and secondly you can also power up an existing Pokémon. Both are the choices and the result is completely up to you. Use candies and power up your Pokémon to a higher level. It will also ensure that you get the best results on the battlefield. The weight and the size of the Pokémon also affect the CP score so you need a Pokémon that is both agile and lightweight to get the best results.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: Tips to level up Pokémon before doing the Pokémon go trainer battles
 
 To get the best out of Pokémon Go battle another trainer it is advised to get the [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). This program has been specifically developed to change the iOS location and the added features also get you a step ahead of our competitors in Pokémon trainer battles.
@@ -204,6 +206,10 @@ You need to make sure that the virtual location is clicked from all options and 
 In the next window click center on to get the accurate location.
 
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Teleport**
 
@@ -235,11 +241,19 @@ The location has been fixed to the desired place. Your iPhone will also show the
 
 Dr. Fone is perhaps the best and the most used program for the Pokémon trainer battle. There are no doubt other methods to charge up your Pokémon as well as the CP but this program is the best of all. With the Dr. Fone location changer, you can summon nearby Pokémon for aid while in battle and this increases the chances of your victory. As Pokémon is a location-based game so the prowess of Dr. Fone - location changer even increases. Get this program now to be at the top of your game and beat your competitors.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pokémon Go Cooldown Chart On Nubia Red Magic 9 Pro+
 
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
@@ -278,8 +292,9 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Actions that Do trigger cooldown?
 
 The main reasons for a soft ban are GPS spoofing, changing your location to a distant place in a short time, and traveling too fast to combat playing while driving. Sharing accounts is another reason.
@@ -323,8 +338,9 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Dropping a ball
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -374,18 +390,15 @@ Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
-
-
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -399,9 +412,24 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-a-thorough-insight-into-obs-recording-technology/"><u>[New] 2024 Approved A Thorough Insight Into OBS Recording Technology</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-breaking-into-livestreaming-your-pathway-to-youtube-and-twitch-via-obs/"><u>[New] 2024 Approved Breaking Into Livestreaming Your Pathway to YouTube & Twitch via OBS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-greatest-satirical-serenades/"><u>2024 Approved The Greatest Satirical Serenades</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-poco-x5-pro-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Poco X5 Pro? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-xiaomi-civi-3-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Xiaomi Civi 3 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-transformation-mp4-plus-srt-success/"><u>In 2024, The Ultimate Transformation MP4 + SRT Success</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/seamless-conversion-of-legacy-email-data-migrating-from-edb-to-a-new-exchange-server-platform/"><u>Seamless Conversion of Legacy Email Data - Migrating From EDB to a New Exchange Server Platform</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-htc-u23-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any HTC U23 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-70-lite-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor 70 Lite 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/44oh44o844k5zue5ypluso6kgt77ya44k944ol44o844op44oz44oh44kj44kr44og44gl44kj5rai44gi44gf44ov44kh44kk44or5b6p5ywd5pa55rov44ks5a2m44g2/"><u>データ回収術：ソニーハンディカムから消えたファイル復元方法を学ぶ</u></a></li>
+</ul></div>
 

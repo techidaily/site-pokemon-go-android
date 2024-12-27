@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Nubia Red Magic 9 Pro+? | Dr.fone
-date: 2024-07-14T09:48:18.384Z
-updated: 2024-07-15T09:48:18.384Z
+date: 2024-12-22T23:28:11.268Z
+updated: 2024-12-27T05:23:36.416Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,8 +21,6 @@ Pokemon Go is one of the most popular augmented reality location-based games tha
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/qLfCHnwsagk"></iframe>
 
-
-
 ## Part 1: What’s the Need for a Pokemon Go Joystick?
 
 If you are an avid Pokemon Go player, then you might already know that the game demands us to step outside to catch Pokemons or participate in raids. Sadly, not everyone can travel so much on their own. Therefore, you might consider using a Pokemon Go joystick on iOS/Android under the following circumstances.
@@ -39,9 +37,6 @@ A Pokemon Go spoofing iOS/Android solution can easily change your present locati
 
 Please note that the use of any location spoofing or Pokemon Go hack (joystick) is against the terms of Niantic. Therefore, if your account is found using these hacks, then Niantic can display warning messages. If after getting multiple warnings, the hack is still being detected, then it can lead to a temporary or even a permanent ban of your account.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
 
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
@@ -70,13 +65,14 @@ Afterward, you can select the target location and the interface would automatica
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Simulate the iPhone Movement with a joystick**
 
 To use the Pokemon Go joystick iOS solution, you can select the One-stop or Multi-stop mode from the top. Now, you can drop the pins on the map as per your requirements to set up a route to cover.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
 Afterward, you can enter the number of times you want to cover the route and even set up a preferred speed. Lastly, click on the “March” button to start the simulation on the map. You can also use a joystick at the bottom to move around realistically on Pokemon Go.
@@ -97,6 +93,10 @@ To start with, you can just go to the Play Store page of the GPS Joystick app an
 
 ![GPS Joystick Android Install](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer APK the default mock location app.
 
 **Step 2: Set up the preferences to fake GPS on Pokemon Go**
@@ -111,18 +111,6 @@ Besides that, you can also tap on the map option to directly enter the address o
 
 You can further visit the GPS Joystick settings to set up preferred walking, jogging, or running speeds for the simulated movement.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![GPS Joystick Set Speed](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-6.jpg)
 
 **Step 3: Start simulating the movement on your Android**
@@ -178,6 +166,10 @@ Dratini undergoes two different evolutions
 
 The first un-evolved version is the serpentine Dratini that looks like a snake and continues shedding its skin as it grows. When you get to level 30, Dratini evolves into Dragonair, and at level 55 it becomes Dragonite
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Dragonair
 
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
@@ -189,6 +181,10 @@ Dragonair has the ability to stretch its wings so it can fly. It has a huge amou
 This is a Pokémon character that truly resembles a dragon and is the second evolution of Dratini. It has a yellow thick body, and a couple of antennae that come out of its forehead. It has a striated underbelly. The body is quite large when compared to the small wings.
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Where can I find the Dratini nest?
 
@@ -207,6 +203,10 @@ This is quite a common question for those who are new to the Pokémon universe. 
 If the Dratini nest migrates, it can still come back in the future. You should always keep an eye at the spawn point where you first encountered your first Dratini Nest; it may come back once more and you can continue farming Dratini.
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
@@ -233,6 +233,10 @@ Next, click on “Get Started”; you will now be able to start the spoofing pro
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
@@ -241,10 +245,11 @@ Now go to the top side of your computer screen and click on the third icon on th
 
 The image below shows an example of coordinates entered for Rome, Italy.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
@@ -262,19 +267,16 @@ This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-
-
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
 
-
-
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Ultimate Guide to Catch the Regional-Located Pokemon For Nubia Red Magic 9 Pro+
 
 ![complete your pokedex with regional pokemon](https://images.wondershare.com/drfone/article/2024/03/catch-all-pokemon-go-regional-exclusives-1.jpg)
@@ -288,6 +290,10 @@ Alternatively, players can use virtual location-changing tools like Wondershare 
 ## Part 1. What Are Regional Pokemon?
 
 Regional Pokemon are exclusive creatures in Niantic’s Pokemon GO AR game that only live in specific regions across the globe. The area in which a particular Pokemon can be found depends on the nature of that Pokemon. For example, Tropius can only be found in tropical parts of the continent.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. How Regional Pokemon in Pokemon GO Work
 
@@ -341,8 +347,6 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 
 1. Download the app from [<u>the official website</u>](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/) and install it on your computer.
 
-
-
 3. Click **Toolbox**in the upper left part of the screen and select **Virtual Location**.
 
 ![wondershare dr.fone’s home page](https://images.wondershare.com/drfone/guide/drfone-home.png)
@@ -363,6 +367,10 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 12. The app’s location will now change on PC.
 
 ![verify location change on the computer](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 14. You should also check your mobile device’s location to confirm it’s changed.
 
@@ -404,11 +412,6 @@ Completing your Pokedex and becoming the ultimate Pokemon trainer in Niantic’s
 
 Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fone and its Virtual Location Changer feature to change their mobile device’s GPS location. This helpful feature lets players move without moving and travel to specific regional spawn points without physically going there.
 
-
-
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -421,9 +424,20 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-tiny-snippets-deciphered-important-facts/"><u>[New] 2024 Approved Tiny Snippets Deciphered Important Facts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ccessing-your-subscriber-details-directly-for-2024/"><u>[New] Accessing Your Subscriber Details Directly for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-90-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boost-your-earnings-on-youtube-shorts-a-guide-for-2024/"><u>Boost Your Earnings on YouTube Shorts A Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-numero-italiani-uniti-da-1-a-1000-esplorazioni/"><u>I Numero Italiani Uniti: Da 1 a 1000 Esplorazioni</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme Narzo N53? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-maximize-focus-with-enhanced-zoom-on-google-meet/"><u>In 2024, How to Maximize Focus with Enhanced Zoom on Google Meet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-ultimate-review-best-camcorders-to-try/"><u>In 2024, Ultimate Review Best Camcorders to Try</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-making.techidaily.com/tutorial-penuh-gambar-untuk-klon-terusnya-hdd-ke-ssd-sandisk-di-windows-11/"><u>Tutorial Penuh Gambar Untuk Klon Terusnya HDD Ke SSD Sandisk Di Windows 11</u></a></li>
+</ul></div>
 

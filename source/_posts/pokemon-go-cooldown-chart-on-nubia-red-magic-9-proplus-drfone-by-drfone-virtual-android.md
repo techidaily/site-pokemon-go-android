@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Nubia Red Magic 9 Pro+ | Dr.fone
-date: 2024-07-14T09:48:09.182Z
-updated: 2024-07-15T09:48:09.182Z
+date: 2024-12-19T17:10:08.326Z
+updated: 2024-12-27T01:40:57.609Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -54,6 +58,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -97,6 +105,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -121,6 +133,10 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
@@ -148,26 +164,25 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Ways to trade pokemon go from far away On Nubia Red Magic 9 Pro+?
 
 If you're a regular Pokemon go player then the title of this article would have truly intrigued you. Pokemon go is one of the most exciting and interesting virtual reality games which has been doing rounds in the gamers community. The game needs you to go around from place to place. One cannot play the game indoors. Trading in Pokemon go is one of the essential features. However, according to Pokemon go trading rules, a player needs to travel around. However, there are some extremely useful hacks using which you needn't travel around for Pokemon go trading. You can do it remotely all by sitting at your home!
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Trade pokemon go from far away
 
 One of the most convenient ways for Pokemon go trading without having to travel is by using some virtual location servers just like discord servers. Next, you need to make friends with other Pokemon go players who stay in far-off places. Remember, that these friends must be on your virtual location server. Only then, you can do Pokemon go trading with them. Hence, make sure to have your friends on your server. One of the most popular and easy-to-use virtual location servers is the Dr.Fone - Virtual Location. Using this you can shift your location to any location in the world. Dr. Fone is highly user-friendly and can easily change your location, let us learn to use the [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), shall we?
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to use Dr.Fone - Virtual Location to teleport to any location
 
@@ -178,17 +193,15 @@ Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any
 - **Joystick simulated motion:** you can use the in-app joystick for simulating motion and moving around on the map.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step-by-step Tutorial
 
 **Step 1: Launch the Tool**
 
 Firstly you need to install the Dr.Fone - Virtual Location setter on your phone. Now on the interface click on "Virtual Location" from the options that you'd see on your screen. Then click on "get started"
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 **Step 2: Connect Device**
@@ -213,8 +226,6 @@ Upon clicking on "go", a pop-up will appear showing you the distance of the loca
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-
-
 ## Part 2: Which pokemon can you evolve with trading?
 
 Evolution is one of the most important aspects of the game Pokemon go. You can evolve several pokemons just by trading them. There are several pokemon that you can evolve using trading. Given below is the list of the different pokemon that can benefit from evolution.
@@ -230,6 +241,10 @@ Evolution is one of the most important aspects of the game Pokemon go. You can e
 
 However, trading Pokemons in Pokemon go could be slightly tricky without having at least one close friend in the games who is also of a considerable level. Only then, you will be able to evolve your pokemon by trading.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to do the special trade?
 
 You need a Special Trade whenever you wish to trade a legendary Pokemon or a shiny Pokemon in Pokemon Go. These pokemon are very rare to find and hence you won’t want to trade these rare Pokemons very often, however, you can trade a rare Pokemon only once per day. To trade a rare Pokemon would also need to be a Great or Best friend, two of the highest levels of friendship in the game Pokemon go. To increase your friendship level you need to battle and trade more and more. It'll take quite a bit of time to reach that stature of a friendship level. This could cost as much as one million, this amount will however decrease with increasing friendship levels.
@@ -237,10 +252,6 @@ You need a Special Trade whenever you wish to trade a legendary Pokemon or a shi
 ## Final Words
 
 Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
-
-
-
-
 
 ## Why does the pokemon go battle league not available On Nubia Red Magic 9 Pro+
 
@@ -306,6 +317,10 @@ Here’s a list of exciting updates that will be included in the upcoming season
 - Season 5 will be completed once you reach rank 7 which will earn you the Elite Charged TM rather than an Elite Fast TM.
 - In Season 5 few Pokémon’s will get new updated move sets which the trainers can use to train and prepare for upcoming tournaments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Tips you want to level up your pokemon go?
 
 The basics you need to learn to play Pokémon go is catching Pokémon and powering them up. Other than that there are ways you can speed power up your Pokémon to increase CP to higher levels. The overall Pokémon’s collected, evolved or powered up, and battles fought in Battle League will win you points to level up in Pokémon Go.
@@ -329,9 +344,6 @@ There are several adjustments to the program that makes it fun to use. You can a
 - You can set the speed according your choice and all other apps would track you as your pointer is teleported manually or automatically.
 - You can also use a free hand joystick to move the pointer on the map according to the movement of your finger.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip #2
 
 - You can set up multiple lures on several Poke stops and return to those exact coordinates to catch your lured Pokémon.
@@ -341,17 +353,17 @@ There are several adjustments to the program that makes it fun to use. You can a
 - In order to attain a Pokémon who once powered up to its maximum potential can give you a battle worthy breed, you will need to sickle through a couple of them in order find one worth powering up.
 - You can also evolve weaker Pokémon and harvest them for candy which you can use to power up your star Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip #4
 
 - Use Lucky Egg to double your XPs earned to increase the chances of getting Pokémon which when evolved spews more XP and Candy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -365,9 +377,20 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-crafting-cinematic-experiences-in-w11-interface/"><u>[New] Crafting Cinematic Experiences in W11 Interface</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-quest-for-thrills-a-chronicle-of-action-adventures-best-ten/"><u>[New] In 2024, Quest for Thrills A Chronicle of Action-Adventures' Best Ten</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-quick-start-to-recording-iphone-memos/"><u>[New] Quick Start to Recording iPhone Memos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-definitive-guide-to-valheim-agriculture-for-2024/"><u>[New] The Definitive Guide to Valheim Agriculture for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-gopro-hero5-black-vs-yi-4k-action-camera-which-is-better-2023-update/"><u>[Updated] GoPro Hero5 Black Vs. Yi 4K Action Camera Which Is Better? -2023 Update</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-12-mini-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone 12 mini Without Previous Owner?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/streamlining-projects-using-azures-speech-service/"><u>Streamlining Projects Using Azure's Speech Service</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-100-pro-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor 100 Pro? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

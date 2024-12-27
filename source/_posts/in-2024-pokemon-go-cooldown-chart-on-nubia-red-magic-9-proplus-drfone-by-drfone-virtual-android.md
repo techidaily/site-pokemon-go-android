@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Nubia Red Magic 9 Pro+ | Dr.fone
-date: 2024-07-14T09:49:18.509Z
-updated: 2024-07-15T09:49:18.509Z
+date: 2024-12-20T04:25:20.499Z
+updated: 2024-12-26T21:46:20.137Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -51,9 +51,17 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -140,35 +148,35 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
-
-
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Preparation to Beat Giovani in Pokemon Go For Nubia Red Magic 9 Pro+
 
 Are you ready to defeat Giovani effortlessly in Pokemon Go? Keep reading.
 
 Giovani is the grand commander of the Team Go Rocket crime syndicate. The big boss appears stronger every month as he also changes his lineup of creatures monthly. This means your lineup of Pokemon Go Giovani counters would have to change subsequently. So how do you know the best Giovani Pokemon Go counters to use against the Team Go Rocket boss when next you meet him? Well, that's left for this guide to answer. Here you will learn about how to defeat this monster and how to find him. Without wasting your time, let's start with how to find Giovani in Pokemon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1. How to Find the Giovani in Pokemon
 
@@ -240,12 +248,13 @@ Once you defeat Team Go Rocket's second lineup creatures, you will have to battl
 
 Now you know the best Giovani Pokemon Go counters to use against each lineup of creatures, leverage it to advance to the next phase of the game where you will face the big bad boss himself, Giovani.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3. Tips to Beat Giovani in Pokemon Go
 
 ![giovani](https://images.wondershare.com/drfone/2020/giovani.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Just as you did against Team Go Rocket Leaders, Arlo, Cliff, and Sierra, you need a Pokemon stronger than two of Giovani’s. With that, you can use the same Pokemon twice, thereby keeping your choice for Legendary Shadow Pokemon safe till you need it to beat Giovani.
 
@@ -281,6 +290,10 @@ Click on Get Started to change your location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And now you are good to have one of the strongest Pokemon on your team when fighting against Giovani. Leverage the Dr.Fone- Virtual Location program as it will help you ease the stress of catching stronger Pokemon remotely on your device without jailbreaking it.
 
 ## How to use Pokemon Go Joystick on Nubia Red Magic 9 Pro+?
@@ -289,9 +302,11 @@ Pokemon Go is one of the most popular augmented reality location-based games tha
 
 ![Pokemon Go Joystick Hack Banner](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/qLfCHnwsagk"></iframe>
-
-
 
 ## Part 1: What’s the Need for a Pokemon Go Joystick?
 
@@ -331,9 +346,6 @@ Firstly, you can just connect your iOS device to the computer and launch Dr.Fone
 
 Once your iPhone is connected, its present location would automatically be displayed on the screen. To spoof the Pokemon Go location on iOS, select the “Teleport Mode” option and enter the target location’s address/name/coordinates on the search bar.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
@@ -353,6 +365,10 @@ Afterward, you can enter the number of times you want to cover the route and eve
 **Video Guide:** Teleport to anywhere in the world!
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/FfhgWxnARqo" id="video-iframe-t"></iframe>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3.2 Use a Pokemon Go Joystick APK for Android Devices
 
@@ -378,9 +394,6 @@ Besides that, you can also tap on the map option to directly enter the address o
 
 You can further visit the GPS Joystick settings to set up preferred walking, jogging, or running speeds for the simulated movement.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![GPS Joystick Set Speed](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-6.jpg)
 
 **Step 3: Start simulating the movement on your Android**
@@ -407,6 +420,10 @@ Great! Now, you can just launch the FGL Pro app on your phone and tap on the sea
 
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
 
 If you want to avoid getting your account banned and still use a reliable spoofing app for Pokemon Go, then consider the following tips:
@@ -422,7 +439,6 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 
 There you go! By now, you would be able to implement these spoofing Pokemon Go tips and tricks. As you can see, there can be so many Pokemon Go spoofing iOS/Android solutions that you can explore. While there are plenty of Pokemon Go spoofer APK tools for Android devices, iOS users can try [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking your device, it will let you spoof its location and even simulate its movement to catch Pokemons remotely.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -435,9 +451,20 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-recording-games-via-steam/"><u>[New] In 2024, The Ultimate Guide to Recording Games via Steam</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-videographers-choice-high-quality-camera-lenses-reviewed/"><u>[New] In 2024, Videographers’ Choice High-Quality Camera Lenses Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nraveling-the-best-video-formats-for-youtube-success-for-2024/"><u>[New] Unraveling the Best Video Formats for YouTube Success for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-effortless-techniques-for-stunning-time-lapse-photography-using-samsungs/"><u>[Updated] Effortless Techniques for Stunning Time Lapse Photography Using Samsungs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-top-5-chrome-plug-ins-for-effortless-facebook-video-downloads/"><u>2024 Approved Top 5 Chrome Plug-Ins for Effortless Facebook Video Downloads</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/doubt-on-zerogpt-are-other-ai-detectors-trusted-equally/"><u>Doubt on ZeroGPT: Are Other AI Detectors Trusted Equally?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/fine-tuning-your-obs-live-feeds-for-facebook-audience-for-2024/"><u>Fine-Tuning Your OBS Live Feeds for Facebook Audience for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-c65-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Poco C65 | Dr.fone</u></a></li>
+</ul></div>
 

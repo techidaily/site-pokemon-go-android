@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Poco X5 Pro | Dr.fone
-date: 2024-07-14T09:52:43.511Z
-updated: 2024-07-15T09:52:43.511Z
+date: 2024-12-22T00:59:42.852Z
+updated: 2024-12-26T20:47:20.433Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/be42a9800526c31b5bfdef3ed18cce59bd7b31925
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
@@ -51,9 +55,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -104,9 +105,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -127,6 +125,10 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
@@ -154,15 +156,13 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
-
-
 
 ## Why does the pokemon go battle league not available On Poco X5 Pro
 
@@ -197,6 +197,10 @@ Here’s a set of few known issues in the game currently being investigated by N
 - **Animation Glitch of the trainer throwing a Poke ball –** A glitch occurs occasionally when the trainer avatar is seen throwing a Poke Ball repetitively.
 - **Disappearance of the Charged Attack and Switch Button –** The button of the Charge Attack and the Switch Pokémon button would eventually disappear in-enabling the trainer to take any action during live battle.
 - **Next Battle tab not showing up on the Post-win Screen –** After ending a match or winning a battle, the button for the ‘Next Battle’ option disappears from the Post-win screen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Why does the go battle not available?
 
@@ -236,6 +240,10 @@ Although it might seem like a long and hard journey, it doesn’t need to. You c
 
 Here’s some tips you can put to easy use in Levelling Up in Pokémon Go:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip #1: Use dr.fone Virtual Location
 
 Use Wondershare [Dr.Fone – Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to easily teleport to catch more poke stops at an adjustable speed and free-hand direction. The program is easy to use and a quicker way to grab more powerful Pokémon using lure.
@@ -251,6 +259,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 - You can set the speed according your choice and all other apps would track you as your pointer is teleported manually or automatically.
 - You can also use a free hand joystick to move the pointer on the map according to the movement of your finger.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip #2
 
 - You can set up multiple lures on several Poke stops and return to those exact coordinates to catch your lured Pokémon.
@@ -260,9 +272,6 @@ There are several adjustments to the program that makes it fun to use. You can a
 - In order to attain a Pokémon who once powered up to its maximum potential can give you a battle worthy breed, you will need to sickle through a couple of them in order find one worth powering up.
 - You can also evolve weaker Pokémon and harvest them for candy which you can use to power up your star Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip #4
 
 - Use Lucky Egg to double your XPs earned to increase the chances of getting Pokémon which when evolved spews more XP and Candy.
@@ -289,10 +298,11 @@ Just go to its website to access the map of various Pokemon Go Discord servers. 
 
 _Website:_ [_https://thesilphroad.com/map#2/_](https://thesilphroad.com/map#2/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![The Silph Road Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2. **Discord Servers**
 
@@ -315,8 +325,9 @@ _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/
 Just like DisBoard, you can also explore several other websites and Discord server directories to find appropriate Pokemon Go Discord servers. A lot of gamers also explore social networks like Reddit, Twitter, Facebook, Twitch, Instagram, etc. to find all kinds of Pokemon Discord servers.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Part 2: How to Join a Pokemon Go Discord Server?**
 
 By exploring the above-listed options, you would be able to find all kinds of Pokemon Go Discord Servers. Though, once you have found a Discord Pokemon server, you need to obtain its invite link by clicking on the “Join” button. Afterward, you can follow these steps to join the Pokemon Go Discord server of your choice.
@@ -377,12 +388,17 @@ From these Pokemon Go Discord servers, you can easily know the spawning or raid 
 
 ![click on menu](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 That’s a wrap, everyone! I’m sure that after reading this post, you would be able to search all kinds of Pokemon Discord servers. Apart from reliable Discord server directories, you can also browse various popular Pokemon Go Discord servers out there. Go ahead and search some other local and interesting Pokemon Discord servers on your own and use a tool like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS) to catch Pokemons remotely.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -396,9 +412,24 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-direct-link-sharing-twitter-writes-on-whatsapp/"><u>[New] In 2024, Direct Link Sharing Twitter' Writes on WhatsApp</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-top-9-web-based-microphone-recording-tools-of-23/"><u>[Updated] 2024 Approved Top 9 Web-Based Microphone Recording Tools of '23</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-seamless-visuals-with-instagrams-chroma-key-for-2024/"><u>[Updated] Crafting Seamless Visuals with Instagram's Chroma Key for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-upload-recycling-101/"><u>[Updated] Instagram Upload Recycling 101</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-prevention-of-fetal-alcohol-syndrome/"><u>2024 Approved Prevention of Fetal Alcohol Syndrome</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-motorola-moto-g13-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Motorola Moto G13</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-realme-c55-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Realme C55 Face Lock?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-for-resolving-mysterious-recording-issue-in-obs-on-windows-11/"><u>Strategies for Resolving Mysterious Recording Issue in OBS on Windows 11</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-90-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-a14-4g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy A14 4G Phone Network-Ready</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-google-pixel-fold-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Google Pixel Fold? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

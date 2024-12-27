@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro 5G? | Dr.fone
-date: 2024-12-02T13:02:24.636Z
-updated: 2024-12-06T13:56:26.865Z
+date: 2024-12-26T09:07:18.012Z
+updated: 2024-12-27T08:35:07.106Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -36,10 +36,6 @@ The pokemon go dragon scale is one of the new evolution objects that can be empl
 
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
 
 ## Part 2：Fast way to get the exclusive Pokémon?
@@ -53,16 +49,12 @@ Pokemon Go can be played without requiring movement, using Dr. Fone's toolkit. T
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can click the ‘Get Started’ button to initiate the action as soon as your phone gets detected.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Mirroring Motion amid steps:**
 
@@ -74,15 +66,15 @@ To begin the replication, you will be required to make a movement and traverse t
 
 ![virtual location 09](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The change location will act as genuine for the Pokémon Go application, and it will presume that the player is moving in between the two points you chose on the Dr. Fone GUI screen. At the foot of the screen, the rate of motion can also be modified, making use of the gliding menu. By following these steps, you can use the fake motion of the position of Dr. Virtual Fone without needing to understand it, and your app will not be banned.
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Movement Simulation between more than two spots:**
 
@@ -97,6 +89,10 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -187,6 +183,10 @@ Step 4 - The pointer will move to the selected location automatically. Finally, 
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtual Location (iOS).
 
 ## Full Guide to Catch 100 IV Pokémon Using a Map On Realme 12 Pro 5G
@@ -210,9 +210,17 @@ Yes, you read it right! With [Pokemon Go spoofing](https://drfone.wondershare.co
 
 ![Pokemon Go 100 IV Map introduction](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the following parts, we will discuss in detail the possible ways to catch Pokémon Go IV 100 on the map, including location spoofer.
 
 Keeping reading!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Check the IVs of Pokémon?
 
@@ -260,6 +268,10 @@ Apart from the above-listed tips, you can also use a **100 IV Pokémon Go map** 
 
 Here are some of these reliable 100 IV Pokémon Go trackers that you can use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. The Silph Road
 
 The Silph Road is the most extensive crowd-sourced resource for Pokémon Go that you can easily use on any device. Just visit its website and use the inbuilt filters to access its 100 IV Pokémon Go tracker. It will display the estimated IV for the Pokémon so that you can decide if it is worth the effort or not. Besides being a Pokémon Go 100 IV map, you can also use it to look for nests, raids, gyms, etc.
@@ -267,10 +279,6 @@ The Silph Road is the most extensive crowd-sourced resource for Pokémon Go that
 **Website:** [https://thesilphroad.com/](https://thesilphroad.com/)
 
 ![The Silph Road](https://images.wondershare.com/drfone/article/2024/03/the-silph-road-map.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Pokémon Go Map
 
@@ -285,7 +293,7 @@ Further, the map shows the gym in red and Pokestops in blue by default. Therefor
 ![pokemongomap](https://images.wondershare.com/drfone/2023/virtuallocation/EX-Raid-Gym-Map-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also search for postcodes in Pokémon Go Map. But this map is not affiliated with Pokémon Go or Niantic. So, you need to download it from the site.
@@ -296,19 +304,11 @@ This is another popular directory of Pokémon that is solely dedicated to 100 IV
 
 **Website:** [https://pokedex100.com/](https://pokedex100.com/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. The IV 100 App
 
 This **Pokémon Go 100 IV map** is available for free for Android users and can be downloaded from the Play Store. You can just launch the app and use its filter to select the specific Pokémon you wish to catch. It will look into its database and would display the 100 IV Pokémon Go map for that specific Pokémon. This will display the exact coordinates that you can later use on a spoofer app to catch this Pokémon.
 
 **Download link:** [https://play.google.com/store/apps/details?id=com.herreralemus.iv100.client&hl=en\_IN](https://play.google.com/store/apps/details?id=com.herreralemus.iv100.client&hl=en_IN)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Poke Radar for Android
 
@@ -317,7 +317,7 @@ If you want to track a specific Pokémon, then Poke Radar is the best Pokémon G
 ![poke radar for android](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This map also has a helpful despawn counter, which tells the players about the disappearing time of Pokémon. The rare Pokémon often has a short time the spawn.
@@ -350,15 +350,15 @@ After connecting your iPhone to the application, go to its Teleport mode and ent
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Simulate your iPhone movement
 
 If you wish to evolve your Pokémon or simulate your movement, then use the one-stop or multi-stop mode of the application. You can drop different stops in a route, enter the number of times you want to cover it, and can even specify your preferred speed. The application also has a GPS joystick that would further help you simulate your movement realistically.
 
 ![virtual location 15](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/r2GiOQxwfQc" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
@@ -380,20 +380,20 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-amplify-imagery-with-simple-grading-tricks/"><u>[New] In 2024, Amplify Imagery with Simple Grading Tricks</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-explore-fauna-fun-top-12-android-simulation-games/"><u>2024 Approved Explore Fauna Fun Top 12 Android Simulation Games</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/dicas-oficiais-para-reparar-backups-de-hd-rw-no-windows-1011-e-mac-um-guia-exaustivo/"><u>Dicas Oficiais Para Reparar Backups De HD-RW No Windows 10/11 E Mac: Um Guia Exaustivo</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-dell-thunderbolt-tb16-docking-station-software-upgrades/"><u>Get the Newest Dell Thunderbolt (TB16) Docking Station Software Upgrades</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-itel-a60s-by-fonelab-android-recover-music/"><u>How to recover old music from your Itel A60s</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-v29-pro-phone-without-google-account-by-drfone-android/"><u>How to Unlock Vivo V29 Pro Phone without Google Account?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme Note 50? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pro-tips-for-conquering-photo-and-video-importers-on-windows-10/"><u>In 2024, Pro-Tips for Conquering Photo & Video Importers on Windows 10</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Magic 6? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211010407-9781088238479-rosana-la-tercera-victima-fatal/"><u>ROSANA, LA TERCERA VÍCTIMA FATAL | Free Book</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-step-by-step-strategy-for-profiting-from-every-youtube-short-video/"><u>[New] In 2024, Step-by-Step Strategy for Profiting From Every YouTube Short Video</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-innovative-guide-to-efficient-and-effective-screen-recording-for-2024/"><u>[New] Innovative Guide to Efficient and Effective Screen Recording for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-the-secrets-how-to-efficiently-record-internet-radio/"><u>[New] Unveiling the Secrets How To Efficiently Record Internet Radio</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/deepcools-latest-innovations-next-gen-coolers-psus-and-more-now-featuring-customizable-pixel-silicone-design-accents/"><u>DeepCool's Latest Innovations: Next-Gen Coolers, PSUs & More - Now Featuring Customizable Pixel Silicone Design Accents</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-poco-c50-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/picart-secrets-to-pristine-picture-perfection-for-2024/"><u>PicArt Secrets to Pristine Picture Perfection for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-the-xlivedll-file-absence-a-comprehensive-guide/"><u>Solving the 'Xlive.dll' File Absence: A Comprehensive Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-googles-gemini-an-overview-of-its-artificial-intelligence-pursuits/"><u>Understanding Google's Gemini: An Overview of Its Artificial Intelligence Pursuits</u></a></li>
 </ul></div>
 

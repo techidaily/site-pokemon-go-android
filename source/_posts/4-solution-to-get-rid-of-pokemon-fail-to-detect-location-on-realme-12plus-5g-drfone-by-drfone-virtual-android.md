@@ -1,7 +1,7 @@
 ---
 title: 4 solution to get rid of pokemon fail to detect location On Realme 12+ 5G | Dr.fone
-date: 2024-12-17T17:12:54.983Z
-updated: 2024-12-18T22:45:25.648Z
+date: 2024-12-23T22:16:02.153Z
+updated: 2024-12-27T10:42:33.733Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/f75585e4daf78953dd0ce1cfd0b26209fab1e9c58
 ## 4 solution to get rid of pokemon fail to detect location On Realme 12+ 5G
 
 Pokémon go failed to detect location is an error that is frequently faced by the players and there are several reasons for it. From device to server-based all the reasons amount to the error and therefore the right solution must be applied to get the work done with ease and perfection. The location-based attribute of the game is something that has been one of the best features. It is the sole reason for which the game is not only popular but also one of the most downloaded games of all time. It is therefore important to overcome fail to detect location error in this game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Why does Pokémon fail to detect location?
 
@@ -42,13 +46,13 @@ This is the most common method that can be applied to make sure that the game wo
 
 ![Pokemon failed to detect location 1](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **ii.** Click on the location to turn it ON.
 
 ![Pokemon failed to detect location 2](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 2: Setting Permissions for the application
 
@@ -68,25 +72,13 @@ If the right permissions are not given to the application then it can also lead 
 
 ![Pokemon failed to detect location 5](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **ii.** Click on the app's icon on the next screen
 
 ![Pokemon failed to detect location 6](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **iii.** Click on the storage option.
 
 ![Pokemon failed to detect location 7](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **iv.** Clear data and cache and restart the Realme 12+ 5G device to get the issue fixed.
 
@@ -124,15 +116,15 @@ The third icon on the upper right corner is to be pressed to teleport. In the ba
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Move to a teleported location**
 
 Click on move here to get to the location that has been selected.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6: Validation**
 
@@ -140,13 +132,13 @@ Your iPhone will show the same location as on the program and this finishes the 
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Dr. Fone's virtual location is the best and the most advanced program that will make sure that you get the best results. It will not only enhance your gaming experience but will also remove the Pokémon go GPS joystick that failed to detect location error with perfection. It is the best program that is easy to use and there are guides online that further foster the process. With this program, it is easy to get a step ahead for all AR and location-based games and to enjoy to your fullest.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Can I Catch the Regional Pokémon without Traveling On Realme 12+ 5G
 
@@ -179,20 +171,12 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![johto pokemon](https://images.wondershare.com/drfone/2020/202010/johto-pokemon.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
 
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - **Tropius:** The Middle East and Africa.
 - **Torkoal:** Southeast Asia.
@@ -225,6 +209,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Heatmor:** Western Hemisphere. Switches with Durant.
 - **Durant:** Eastern Hemisphere. Switches with Heatmor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to use Dr.Fone - Virtual Location to catch Regional Pokémon
 
 Catching regionally exclusive Pokémon requires you to travel to that location or region where the Pokémon is located, as it was originally intended by the game. Remember that Pokémon Go functions by tracking your location via GPS. Your GPS however, is a virtual means of tracking your IP address which can be faked using the right mock GPS and VPN. You can use a mock virtual location to fake your actual location and make it seem like you’re traveling around the world. The game itself would be tricked, allowing you to travel to regions and get your hands on those geo-exclusive Pokémon.
@@ -241,10 +229,6 @@ Download Dr.Fone – Virtual Location. Install and launch the program. Click ‘
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Connect Device**
 
 Get the USB cable and connect your iPhone to the PC. And then click ‘Get Started’ to proceed.
@@ -256,6 +240,10 @@ Get the USB cable and connect your iPhone to the PC. And then click ‘Get Start
 When the location map opens, click on ‘Centre On’ to accurately pinpoint the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Activate teleport mode**
 
@@ -333,6 +321,10 @@ When you are using My Boy, you can use the following code:
 
 You should then set the “cheat type” to “codebreaker”. Now set it to “autodetect” and you will be able to get Pokémon Master Emerald Balls at any time you wish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How do you get unlimited master balls in Pokémon Emerald?
 
 There are ways in which you can get unlimited Pokémon Master Balls using the Pokémon emerald Master Ball cheat codes available today.
@@ -342,6 +334,10 @@ There are ways in which you can get unlimited Pokémon Master Balls using the Po
 When you are using Pokémon game emulators such as the GameShark, you can take a snapshot of the game and save it. This enables you to quickly come back to this point should anything go wrong when trying to use the cheat codes.
 
 ![Save the game state](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2 –** Now hit the "Cheats" menu and then choose the "Cheat List". You will be presented with a new window where you can now enter the cheat codes.
 
@@ -370,7 +366,15 @@ Make sure that you exit the store and go back again to finish the process proper
 
 ![Disable the Pokémon Emerald Master Ball cheat code when you are finished shopping](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The best thing about this method is that you do not need to enter another master ball cheat code in the future. All you have to do is go back to your Cheat List and check the box for the code once more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Other tips to level up on Pokémon go
 
@@ -399,10 +403,6 @@ Raiding Gyms can get you a lot of XP. This is more so when you go for Legendary 
 - Fix up a Raid Train, which is the process of moving from one Raid to another as a group, and this allows you to Raid as much as possible in a short time.
 
 Do as many of these Raids as you can.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mass catching and Mass evolving
 
@@ -450,24 +450,17 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-unleash-the-mixer-in-you-20-free-custom-luts-for-dji-minis-and-airs/"><u>[New] 2024 Approved Unleash the Mixer in You 20 Free, Custom LUTs for DJI Minis & Airs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unrivaled-5-editors-perfect-for-non-youtube-vids/"><u>[New] In 2024, Unrivaled 5 Editors Perfect for Non-YouTube Vids</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-money-making-top-13-strategies-for-novice-reddit-users/"><u>[New] Mastering Money-Making Top 13 Strategies for Novice Reddit Users</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-recording-winning-calls-a-complete-guide-free-vs-paid-for-windows-and-mac-users/"><u>[New] Recording Winning Calls A Complete Guide (Free vs Paid) for Windows & Mac Users</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-technical-treasure-trove-mastering-the-art-of-capturing-roblox-adventures-on-apple-devices-for-2024/"><u>[New] Technical Treasure Trove Mastering the Art of Capturing Roblox Adventures on Apple Devices for 2024</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/complete-guide-eradicate-idpalexa51-virus-with-malwarefox-steps/"><u>Complete Guide: Eradicate IDP.ALEXA.51 Virus with MalwareFox Steps</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/how-to-shop-for-the-cheapest-cloud-storage-step-by-step/"><u>How to Shop for the Cheapest Cloud Storage, Step by Step</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-poco-c65-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Poco C65? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Honor Play 8T | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Poco F5 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/54034978-in-2024-your-complimentary-access-to-50-premium-youtube-banners/"><u>In 2024, Your Complimentary Access to 50 Premium YouTube Banners!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/universal-pc-card-drivers-for-windows-series/"><u>Universal PC Card Drivers for Windows Series</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-11-your-computer-is-low-on-memory-solved/"><u>Windows 11 Your Computer Is Low on Memory [Solved]</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-streamlining-file-management-the-top-six-tips-for-your-windows-11-mov-files/"><u>[New] In 2024, Streamlining File Management - The Top Six Tips for Your Windows 11 MOV Files</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-jumpstart-with-vrecorder-easy-installation-walkthrough/"><u>[New] Jumpstart with VRecorder Easy Installation Walkthrough</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamline-your-music-library-mp3s-direct-to-youtube-playlist/"><u>[New] Streamline Your Music Library MP3s Direct to YouTube Playlist</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-alternative-movies-to-watch-ranked-7-for-2024/"><u>[New] Top Alternative Movies to Watch, Ranked #7 for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/comprehensive-evaluation-of-the-latest-apple-tv-4k-model/"><u>Comprehensive Evaluation of the Latest Apple TV 4K Model</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/decoding-the-capabilities-of-claude-pro-versus-the-advantages-of-chatgpt-plus/"><u>Decoding the Capabilities of Claude Pro Versus The Advantages of ChatGPT Plus</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/is-a-phone-upgrade-right-for-you-tips-inside/"><u>Is a Phone Upgrade Right for You? Tips Inside</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/maisto-rc-rock-crawler-evaluation-a-top-pick-for-enthusiastic-kids-and-adults/"><u>Maisto RC Rock Crawler Evaluation: A Top Pick for Enthusiastic Kids and Adults</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/optimizing-learning-outcomes-best-student-centric-ways-to-use-ai-chatbot/"><u>Optimizing Learning Outcomes: Best Student-Centric Ways to Use AI Chatbot</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-7-premier-mobile-plans-for-seniors/"><u>Top 7 Premier Mobile Plans for Seniors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-premier-sound-storylines-for-2024/"><u>Top Premier Sound Storylines for 2024</u></a></li>
 </ul></div>
 

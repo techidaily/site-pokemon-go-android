@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Poco C50 | Dr.fone
-date: 2024-07-14T09:51:34.726Z
-updated: 2024-07-15T09:51:34.726Z
+date: 2024-12-21T04:23:41.224Z
+updated: 2024-12-27T03:58:22.862Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -19,6 +19,10 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -30,6 +34,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -134,19 +142,21 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Voila! You have teleported your location to the desired place.
 
@@ -154,13 +164,9 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Poco C50
 
@@ -187,6 +193,10 @@ The following are the reasons that may cause to ban your account:
 
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Thumb Rule for spoofing with PGSharp
 
 Once you decided to spoof Pokémon Go, you need to install a reliable and secure spoofing app. Also, you should not use your main account while spoofing. With PGSharp, you need to create a PTC account to safely spoof the game.
@@ -201,9 +211,6 @@ To spoof location with PGSharp, your first need to install it from the Google Pl
 
 Now, when it gets installed, you can opt for a free trial or paid option. For a free trial, you will need a free beta key to use the app. For the paid version, you will need a license key that the app developer will provide you.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![pgsharp plan](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban-1.jpg)
 
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
@@ -230,9 +237,6 @@ But yes, you should not change the location frequently, as it will cause you tro
 
 Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account. You should not use your main account to fake GPS with PGSharp. First, create a PTC account and then install PGSharp to spoof Pokémon Go without a ban.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-6.jpg)
 
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
@@ -249,15 +253,13 @@ To use it, you will need to install it on your device from the official site or 
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 Pokemon Go is a very interesting game and brings a lot of fun while playing. With reliable and trusted apps like PGsharp for android, you can spoof it without a ban. For iOS, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app is best for fake GPS without a ban. Try these apps now to get more fun in the game without getting a ban.
-
-
-
-
 
 ## How to Get and Use Pokemon Go Promo Codes On Poco C50
 
@@ -266,6 +268,10 @@ The steady increase in the number of Pokemon Go users has simultaneously led to 
 Pokemon promo codes or promo cards elevate your game to a whole new level since you will be able to possess the Poke balls, berries, lucky eggs, incense, and other various loots. They will make your game an absolute breeze, and you necessarily won’t move around as you play. Besides, Pokemon promo codes are short-lasting; you, therefore, need to claim them quickly.
 
 This article gives an insight on how to get and use Pokemon Go promo codes and promo cards.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to Get Pokemon Go Promo Codes
 
@@ -296,6 +302,10 @@ With your **Pokemon Go promo code**, you can redeem it to get insightful items s
  **Android devices --**
 
 ![redeem pokemon go promo codes on Android](https://images.wondershare.com/drfone/article/2022/07/pokemon-go-promo-codes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 1. Get to the shop bar**
 
@@ -334,8 +344,6 @@ The Pokemon Go promo code is not usually available at all times. However, this s
 - It has a joystick tool that comfortably allows you to spoof your location
 - It will enable you to spoof your GRS location with a single click
 
-
-
 Faking GPS location in iPhone devices differs from Android devices.
 
 **iPhone devices --**
@@ -358,18 +366,6 @@ Using a USB cable, connect your iPhone to your computer system. Hit the **‘Get
 
 **Step 3. Search for a location**
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![search for a location to fake](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 Here, you need to search for a suitable location that you would like to teleport to. Hit the **‘teleport**’ option from the toolbar at the top-right corner of the interface.
@@ -385,8 +381,6 @@ Various options of places you would like to teleport to will be there on display
 For you to teleport to your chosen location, you need to drop a pin on your preferred place and hit the **‘Move Here’** icon. Now, you will be able to catch more Pokemon since you have already altered your location.
 
 ![ideal location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-
 
 **Android Phones --**
 
@@ -406,6 +400,10 @@ Go to the **‘Setting’** menu, which is usually at the top right corner of y
 
 ![download the fake gps location on your Android](https://images.wondershare.com/drfone/article/2019/09/pokekom-go-teleport-safely-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Go to the Google Play Store and download Fake GPS Location to your Poco C50. Install it and allow it to run on your Poco C50.
 
 **Step 3. Allow mock location**
@@ -422,12 +420,15 @@ Go to your Fake GPS application and search for a preferred location. To initiate
 
 ![search and confirm your new location](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-fake-gps-android-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lastly, head back to your Pokemon Go app. There, you can see your new location cast.
 
 ### Conclusion
 
 All **Pokemon promo codes** have an expiry time frame. And the time frames are usually shorter. Therefore, you need to use them before their due time elapses. Currently, there are no Pokemon promo codes. And for you to continue playing Pokemon Go, you need to involve a third-party tool, and the best tool to use is Dr. Fone Virtual Location.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -441,9 +442,23 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-pioneering-techniques-youtube-to-facebook-amplification/"><u>[New] 2024 Approved Pioneering Techniques YouTube to Facebook Amplification</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-effortless-video-magic-the-no-cost-guide/"><u>[Updated] Effortless Video Magic The No-Cost Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-maximize-your-online-video-with-these-best-free-webm-tools/"><u>2024 Approved Maximize Your Online Video with These Best Free WebM Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-concealed-facebook-profiles/"><u>Decoding the Mystery of Concealed Facebook Profiles</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-c55-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/dive-into-customizing-fax-layouts-with-windows-11s-editor/"><u>Dive Into Customizing Fax Layouts with Windows 11'S Editor</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-poco-c55-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-motorola-moto-g14-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Motorola Moto G14 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/leading-touchscreen-portables-unveiled-professional-evaluations-cnet-reviews/"><u>Leading Touchscreen Portables Unveiled: Professional Evaluations | CNET Reviews</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-advanced-site-insights-and-lead-generation/"><u>Leverage Cookiebot Technology for Advanced Site Insights & Lead Generation</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/photo-pace-crafting-time-lapse-videos-on-your-galaxy-phone/"><u>Photo Pace Crafting Time-Lapse Videos on Your Galaxy Phone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme Note 50? | Dr.fone</u></a></li>
+</ul></div>
 

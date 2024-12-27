@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 9 Pro+? | Dr.fone
-date: 2024-07-14T09:48:54.867Z
-updated: 2024-07-15T09:48:54.867Z
+date: 2024-12-24T07:32:45.211Z
+updated: 2024-12-27T03:58:06.004Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -33,6 +33,10 @@ The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glow
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
 Depending on the specific Pokémon you want to evolve, you might need additional items or even need to perform a particular task. Some Pokémon will need to be walked as your Buddy Pokémon before they can evolve. Others can be evolved through trading them. Others can only evolve with the help of evolution items like the Sun Stone.
@@ -57,6 +61,10 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
@@ -64,6 +72,10 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
 
 Fortunately, for all those unlucky ones, you can acquire the Sun Stone to complete your Pokémon evolutions in a few different ways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Special Events
 
@@ -85,6 +97,10 @@ Among the different types of research the professor sends you is field research.
 
 As you’re completing your field research tasks, you can collect your rewards, earn stamps, and unlock breakthroughs. Hopefully, one of the rewards you receive will include the Sun Stone, allowing you to evolve some of your Pokémon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Special Research
 
 With field research, you have some flexibility. You can visit PokéStops when you’re up for them, and you can even discard some tasks if they’re too difficult for you. With special research, you don’t have all that much flexibility.
@@ -94,8 +110,9 @@ Professor Willow will contact you directly and give you specific tasks you must 
 As a rule, special research will be more involved and will likely last longer than field research. However, your rewards will usually be much more valuable, and you’ll exponentially increase your chances of obtaining a Sun Stone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Gyms and PokeStops
 
 Of course, you can always earn valuable rewards by simply visiting gyms and PokéStops and spinning the Photo Discs. Create a 7-day PokéStop streak, as that will guarantee you’ll get an evolution item.
@@ -122,15 +139,10 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![get started with wondershare dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 4. On the map that shows up, click on **No Device**in the upper right-hand corner;
@@ -155,8 +167,6 @@ Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on 
 ## Conclusion
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
-
-
 
 ## 4 solution to get rid of pokemon fail to detect location On Nubia Red Magic 9 Pro+
 
@@ -227,15 +237,16 @@ To fix the fake GPS Pokémon go failed to detect location [Dr. Fone's virtual lo
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to use Dr. Fone Virtual Location
 
 **Step 1: Program Installation**
 
 First of all download and install the program to get started.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 **Step 2: Enable Virtual Location**
@@ -243,6 +254,10 @@ First of all download and install the program to get started.
 Click the get started icon once the iPhone has been connected to the system and the virtual location has been enabled.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Locate the Nubia Red Magic 9 Pro+ device**
 
@@ -268,11 +283,13 @@ Your iPhone will show the same location as on the program and this finishes the 
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Dr. Fone's virtual location is the best and the most advanced program that will make sure that you get the best results. It will not only enhance your gaming experience but will also remove the Pokémon go GPS joystick that failed to detect location error with perfection. It is the best program that is easy to use and there are guides online that further foster the process. With this program, it is easy to get a step ahead for all AR and location-based games and to enjoy to your fullest.
-
-
 
 ## Full Guide to Catch 100 IV Pokémon Using a Map On Nubia Red Magic 9 Pro+
 
@@ -318,8 +335,9 @@ Pokémon Go app has a search feature that you can use to know the exact IV of Po
 Now check the Pokémon by their star rating, as this is the easy way to know about the IVs of characters. Type “4\*” in the search bar, and you will see characters with a 4-star rating. Mostly a star Pokémon are a 100 IV Pokémon map.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Tips to Catch 100 IV Pokémon in the Game
 
 Since 100 IV Pokémon are so sought-after, catching them can be a tough job. Apart from using a **Pokémon Go 100 IV map**, here are other tips that can increase your chances to catch the perfect IVs Pokémon to some extent. A Weather Boosted wild catch can increase your odds to a 1 in 1,725 chance. But, this is still not so easy for a player.
@@ -356,6 +374,10 @@ The Silph Road is the most extensive crowd-sourced resource for Pokémon Go that
 
 ![The Silph Road](https://images.wondershare.com/drfone/article/2024/03/the-silph-road-map.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Pokémon Go Map
 
 Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly find and catch rare Pokémon without spending hours wandering around. It is free to use and regularly updated with new features and bug fixes. You can customize your search preferences and receive notifications when new Pokémon appear in your area. You also can connect your game account to the map and chat with other characters in the game. This map has a built-in chat function.
@@ -386,9 +408,6 @@ This **Pokémon Go 100 IV map** is available for free for Android users and can 
 
 If you want to track a specific Pokémon, then Poke Radar is the best Pokémon Go map 100 IV. Poke Radar offers a real-time Pokémon location by placing cute characters on a map that helps you to find the exact location of your desired Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![poke radar for android](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-5.jpg)
 
 This map also has a helpful despawn counter, which tells the players about the disappearing time of Pokémon. The rare Pokémon often has a short time the spawn.
@@ -400,8 +419,6 @@ _You may be interested in: [8 Best Alternatives of PokeCrew: Find Pokemons on an
 ## Part 5: An Expert Tip to Catch 100 IV Pokémon Sitting at Home?
 
 Using a 100 IV Pokémon Go map, you can easily know their spawning locations and whereabouts. Since it is not possible to physically visit these locations to catch Pokémon, you can spoof your iPhone location instead. To do that, just take the assistance of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With just a few clicks, it will let you spoof your iPhone location without jailbreaking or undergoing any technical hassle.
-
-
 
 ### Dr.Fone - Virtual Location
 
@@ -435,11 +452,6 @@ If you wish to evolve your Pokémon or simulate your movement, then use the one-
 
 That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps that actually work, you can easily catch these powerful Pokémon. Though, after noting their coordinates from a Pokémon IV 100 map, you would need to use a location spoofer app. I would recommend [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) since it is pretty easy to use and will not need any jailbreak access as well. You can spoof your iPhone location to anywhere you want and also just simulate your movements realistically.
 
-
-
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -452,9 +464,24 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-exclusive-guide-to-top-8-free-high-definition-video-players/"><u>[New] Exclusive Guide to Top 8 FREE, High Definition Video Players</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-art-of-soft-ending-sounds-in-premiere-pro/"><u>[Updated] The Art of Soft-Ending Sounds in Premiere Pro</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-comprehensive-guide-to-subtitle-sharing-on-tumblr-and-discord-for-2024/"><u>A Comprehensive Guide to Subtitle Sharing on Tumblr and Discord for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/expert-insights-capturing-the-essence-of-online-meetings-for-2024/"><u>Expert Insights Capturing the Essence of Online Meetings for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-sony-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Sony</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/prime-ai-markets-for-creativity-exchange/"><u>Prime AI Markets for Creativity Exchange</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-lenovo-thinkphone-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Lenovo ThinkPhone to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-digital-venues-for-encountering-and-bonding-with-unknown-individuals-responsibly/"><u>Updated 2024 Approved Digital Venues for Encountering and Bonding with Unknown Individuals Responsibly</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-blur-faces-like-a-pro-the-best-free-apps-for-photo-and-video-editing/"><u>Updated Blur Faces Like a Pro The Best Free Apps for Photo and Video Editing</u></a></li>
+</ul></div>
 
