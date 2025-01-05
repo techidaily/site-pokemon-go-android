@@ -1,7 +1,7 @@
 ---
 title: How to Use Pokémon Emerald Master Ball Cheat On Realme 12 5G | Dr.fone
-date: 2024-12-24T02:41:27.549Z
-updated: 2024-12-26T16:40:28.717Z
+date: 2024-12-29T20:30:42.773Z
+updated: 2025-01-05T19:05:47.959Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,6 +26,10 @@ The Pokémon emerald master ball can do this with no effort on your part. Simply
 ![An image of a Pokémon Master Ball](https://images.wondershare.com/drfone/2020/virtual-location/masterball-pokemon.jpg)
 
 _**Tips:** Catch Pokémon like a Pro with Dr.Fone - Virtual Location! Capture as many Pokémon as possible within a short time, no matter where they appear. Explore different locations virtually and become a Pokémon-catching master! Try it now!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Do you know the Pokémon Emerald Master Ball?
 
@@ -60,6 +64,10 @@ When you are using My Boy, you can use the following code:
 **82005274 0001**
 
 You should then set the “cheat type” to “codebreaker”. Now set it to “autodetect” and you will be able to get Pokémon Master Emerald Balls at any time you wish.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How do you get unlimited master balls in Pokémon Emerald?
 
@@ -97,10 +105,6 @@ When you have shopped for Pokémon Emerald Master Balls to your fill, you need t
 Make sure that you exit the store and go back again to finish the process properly.
 
 ![Disable the Pokémon Emerald Master Ball cheat code when you are finished shopping](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The best thing about this method is that you do not need to enter another master ball cheat code in the future. All you have to do is go back to your Cheat List and check the box for the code once more.
 
@@ -171,14 +175,6 @@ We all know how much fun Pokémon GO has been, where we get out and catch Pokém
 PvP battles are important for making the game more exciting and having some friendly competition. These battles will evaluate your skills and how well you know your Pokémon. We will provide you with some useful tips to win the league with the **best PvP Pokémon**.
 
 ![understanding more about pokemon pvp battles](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1. What Are the Possible Leagues in Pokémon GO PvP
 
@@ -259,7 +255,7 @@ This **is the best Pokémon in Pokémon GO PvP** and is known for its unique pre
 ![eternatus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Eternatus is a powerful legendary Pokemon with a type of Poison and Dragon. It is believed to be discovered in the Galar region and is the main antagonist in Pokémon Sword and Shield. Vulnerabilities of this Pokémon are Dragon, Ground, Ice, and Psychic-type moves. With an impressive max CP of 5007, it receives a boost in cloudy and windy weather.
@@ -269,6 +265,10 @@ The top moves for Eternatus are Dragon Tail and Dragon Pulse, delivering a stron
 | **Type** | **Strong Against** | **Weak Against** |
 | --- | --- | --- |
 | Poison and Dragon | Grass, Bug, Electric, Fire, Fighting, Poison, Water | Dragon, Ice, Ground, Psychic |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Steelix
 
@@ -293,6 +293,10 @@ Gligar uses its clawed hind legs and large pincers to grab onto its prey's face,
 | **Type** | **Strong Against** | **Weak Against** |
 | --- | --- | --- |
 | Ground and Flying | Electric, Bug, Ground, Fighting, Poison | Ice, Water |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Carbink
 
@@ -329,6 +333,10 @@ Launch [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/pho
 
 ![access and activate teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Step 2: Update Your Desired Location Through Teleport Mode
 
 When you enable Teleport Mode, use the search bar at the top left. Here, enter your desired location and press "Enter" to mark it on the map. Afterward, verify the location details on the screen and click "Move Here" to confirm and update your phone's location.
@@ -340,10 +348,6 @@ When you enable Teleport Mode, use the search bar at the top left. Here, enter y
 Go back to the top-right section and pick either the "One-Stop Route" or "Multi-Stop Route" feature. Alternatively, you can also use the joystick to guide yourself to the destination. After teleporting, just tap any spot on the map as your destination.
 
 ![activate one-stop route feature](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - Step 4: Start the Simulation To Spoof the GPS
 
@@ -373,7 +377,7 @@ Q3. How is the winner determined in the Pokémon GO PvP battles?
 In conclusion, PvP battles are of great importance to enjoying the true perks of Pokemon GO. For this purpose, we have introduced you to some of the strongest and most useful Pokemons that exist. Now, it is up to you to choose the **best Pokemon for PvP Pokemon GO** if you aim to enjoy the lead in the game. Also, we have discussed a wonderful tool, Wondershare Dr.Fone, by which you can easily fake your location and have an advantage in the game.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How can I get more stardust in pokemon go On Realme 12 5G?
@@ -385,10 +389,6 @@ One of the essential items you can get is Stardust, which will help you become t
 ## Part 1. What Is Stardust in Pokemon Go?
 
 Stardust is a consumable item that allows you to strengthen your Pokemon. This item will help you reach the maximum of your Pokemon, making them more resilient and ready for potential fights. Moreover, Stardust is essential for trading – you must have a specific Stardust level to trade your valuables with another trainer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2. How Is Stardust Used in Pokemon Go?
 
@@ -417,6 +417,10 @@ For instance, if you’re a Rank 2, you can earn around 2,000 Stardust points by
 Another method is to play with your friends, and the Stardust points can vary from 300 to 1000, depending on your opponent’s rank.
 
 ![pvp in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Opening Gifts
 
@@ -462,10 +466,6 @@ If you defeat the boss, you’ll also get a chance to catch the Pokemon, which c
 
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### By Getting Rocket Rewards
 
 Rocket rewards are sets of items you get after fighting the Team Go Rocket. Each time you beat this criminal group, you’ll be rewarded with either 500 or 1,000 Stardust points, depending on whether you were fighting Grunt or Team Go Leader.
@@ -473,10 +473,6 @@ Rocket rewards are sets of items you get after fighting the Team Go Rocket. Each
 Additionally, if you ever face Giovanni, you’ll get 5,000 points for fighting and beating him.
 
 ![rocket battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### By Earning Research Rewards Through Completed Tasks
 
@@ -488,6 +484,10 @@ For instance, if you’re on level 45, you can head to the Go Battle League 45 t
 
 ![pokemon go research tasks](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### By Visiting the Gym
 
 While on your daily walk in the Pokemon world, you should check out whether you can find some Gyms around you. If you do, stop by to hang around with some of the most precious Pokemon characters and give them a berry while you’re there.
@@ -497,7 +497,7 @@ You’ll earn 20 Stardust points for each berry you give a Pokemon. It may be th
 ![giving berries to pokemon characters](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Claim Stardust Quickly in Pokemon Go by Using Location Spoofing
@@ -546,24 +546,15 @@ If you’re searching for ways to collect these items as quickly as possible and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-1-ranked-youtube-to-text-online-service/"><u>[New] 2024 Approved 1 Ranked YouTube to Text Online Service</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-streamline-your-gaming-memories-easy-minecraft-recordings-on-macs-for-2024/"><u>[New] Streamline Your Gaming Memories Easy Minecraft Recordings on Macs for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-core-interface-youtube-studio-explained-for-2024/"><u>[New] The Core Interface YouTube Studio Explained for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-instant-recording-shutdown-quicktime-hacks/"><u>[Updated] In 2024, Instant Recording Shutdown QuickTime Hacks</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/86-cracking-the-code-tiktok-riddles-and-jokes-for-2024/"><u>86 Cracking the Code TikTok Riddles & Jokes for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/comparing-gopro-and-yi-4k-cams-new-insights-on-high-speed-cameras/"><u>Comparing GoPro and Yi 4K Cams New Insights on High-Speed Cameras</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/frame-reconfigurator-for-videos-for-2024/"><u>Frame Reconfigurator for Videos for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/gemini-unleashed-1m-tokens-redefine-market-value/"><u>Gemini Unleashed - $1M Tokens Redefine Market Value</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor Magic 5 Lite? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c51-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Realme C51 Phone without PIN</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Google Pixel 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Magic V2? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/is-chatgpt-a-workforce-replacement-exploring-jobs-at-risk-from-generative-ai/"><u>Is ChatGPT a Workforce Replacement? Exploring Jobs at Risk From Generative AI</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-video-editors-aiding-in-app-dev-creation/"><u>[New] Top Video Editors Aiding in App Dev Creation</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-ultimate-guide-to-gameplay-in-simulated-liquids-for-2024/"><u>[New] Ultimate Guide to Gameplay in Simulated Liquids for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-guide-to-unlock-your-realme-11-5g-by-drfone-android/"><u>Full Guide to Unlock Your Realme 11 5G</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/pro-tips-to-resolve-lagging-issues-in-the-sims-prises-simulation-an-updated-guide-for-pc-users-now-including-tips-and-tricks-released-up-to-2024/"><u>Pro Tips to Resolve Lagging Issues In The Sims Prise's Simulation: An Updated Guide for PC Users, Now Including Tips and Tricks Released up to 2024.</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/visual-virtuosity-adding-fonts-to-adobe-workflows/"><u>Visual Virtuosity Adding Fonts to Adobe Workflows</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/zoom-chat-how-to-chat-in-zoom-meeting-tips-and-tricks/"><u>Zoom Chat How to Chat in Zoom Meeting? [Tips & Tricks]</u></a></li>
 </ul></div>
 

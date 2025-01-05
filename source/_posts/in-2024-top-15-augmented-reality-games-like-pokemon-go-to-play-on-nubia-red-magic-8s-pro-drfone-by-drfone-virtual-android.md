@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nubia Red Magic 8S Pro | Dr.fone
-date: 2024-07-14T09:42:58.489Z
-updated: 2024-07-15T09:42:58.489Z
+date: 2025-01-02T21:34:14.205Z
+updated: 2025-01-05T22:05:44.875Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,6 +25,10 @@ AR gaming, or augmented reality gaming, is a type of gaming that blends virtual 
 
 Pokémon Go is an AR mobile game that merges the real world with virtual Pokémon. Players explore real-world locations, capturing Pokémon and engaging in battles. The game promotes physical activity and social interaction. With its innovative use of AR, Pokémon Go has gained a massive following worldwide. If you are finding games similar to pokemon go, keep reading the following parts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Play Location-Based AR Games Like Pokémon Go Without Walking/Moving
 
 If you want to play Pokémon Go or any of the games we have listed but are not motivated to go out and take a walk yourself, you can try our product “[Dr. Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)”. Our product allows you to teleport to any place in the world and unlock worlds that you would have never discovered unless you fly to that location. Using Dr. Fone - Virtual Location is easy and just requires a few steps that you can follow.
@@ -41,9 +45,6 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 **_Step 4:_** To go to another location, you can click on “Teleport Mode” which is the 1st icon on the upper right and you can type the place you want to go to. If you want to [simulate GPS movement in AR games](https://drfone.wondershare.com/virtual-location/fake-gps-run.html), you can also choose the "Multi-Stop Mode".
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![one stop teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **_Step 5:_** It will then take you to the place that you want, and you can click on “Move Here”.
@@ -52,14 +53,19 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 **_Step 6:_** Finally, it will show you that chosen location that you typed and you can then check your current location on your phone which shows the same place.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![current location in program](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Here is a video for you to learn how to teleport your iPhone GPS location:**
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Best AR Games like Pokémon GO
 
@@ -96,6 +102,10 @@ If you have watched and loved watching the Jurassic Park movies and just love di
 
 ![jurassic world alive](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.ludia.jw2&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/jurassic-world-alive/id1231085864) _
 
@@ -107,9 +117,6 @@ Ghost Busters World is a game that was created and inspired by the Ghost Busters
 
 - _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android) _
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10\. Geocaching
 
 If you love searching and hunting for treasure, then Geocaching is the perfect game for you. Geocaching is known to be the “world’s largest treasure hunt” where you search for treasures that were hidden by other enthusiasts such as yourself. This game was created way before Pokémon Go was released back in 2000 and has created a generation of geocachers. Players will need to solve puzzles to be able to get the treasure which makes your treasure hunting more exciting.
@@ -118,6 +125,10 @@ If you love searching and hunting for treasure, then Geocaching is the perfect g
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503) _
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Zombies, Run
 
@@ -154,6 +165,10 @@ The Witcher: Monster Slayer is a game that will be a big hit for gamers who like
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647) _
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. The Walk
 
 If you love going for walks, then The Walk is the game that you should try to elevate your walking experience. In this game, you are given different goals per day that you must complete gaining rewards. This game will change your boring daily walks and make them more exciting, unique, and interesting.
@@ -169,6 +184,10 @@ If you have played Minecraft or just have the knack for creating worlds, then yo
 ![minecraft earth](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-11.jpg)
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE) _
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Pikmin Bloom
 
@@ -187,6 +206,10 @@ If you grew up watching Harry Potter and would love to be a wizard, you should d
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU) _
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Ingress Prime
 
 Ingress Prime is best suited for players who like the concept of playing Pokémon Go but for those who want a different storyline. In this game, you also explore different worlds based on the location that they track you in and you interact with different worlds. When you play, you will be asked to choose between two teams, the Resistance and the Enlightened, which will show you different options on how to play the game.
@@ -200,11 +223,6 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 
 These are all the games that are similar to Pokémon Go and something that you can try on your own time to see the different concepts of how AR is integrated into this game. Though the games require you to walk and track your GPS, it will motivate you to move a little and get out of the room. If you are not keen on doing that, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), can also help you to virtually go to any place on the earth without having to get up from your couch. These games will surely entertain not only you but also the friends that you can play with.
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is the best Pokemon for pokemon pvp ranking On Nubia Red Magic 8S Pro?
 
 Many people play Pokemon Go to have fun and spend quality leisure time. Well, why not? This mobile game is interactive enough to stir up positive emotions and bring joy to anyone. But aside from that, Pokemon Go also serves as a great avenue to develop advanced gaming skills. One feature that can help you a lot on this subject is the **Pokemon Go PvP rank** game. It’s basically an option enabling trainers to gather a Pokemon team and battle another trainer. The winners of the duel receive special rewards and rank up in the league.
@@ -237,9 +255,6 @@ Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly 
 
 Pokemon Go is holding various tournaments from time to time. However, some of these events require players to garner a specific rank or rating in Pokemon Go PvP battles. That means you cannot join if you don’t meet a particular rank level required in the game. Therefore, strive harder to participate in PvP games and win as many duels as you can. Your Pokemon PvP ranking is not just a mere group of numbers. It actually defines your eligibility to join prestigious Pokemon Go events. Hence, take it very seriously.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2. How to Get Started With Pokemon Go PvP Rank Battles?
 
 Go Battle League is the most basic type of Pokemon Go PvP battle. It is available to level 10 (and above) trainers whose account is in good standing. Generally, the Go Battle League comes in three game formats, namely Great League, Ultra League, and Master League. You can participate in any of them if you have the required type of Pokemon and amount of Combat Power. On a regular day, you’re given a chance to play at least five sets of battles for each league. Take advantage of this opportunity and win as many battles as you can to increase your rank in no time. Yes. Aside from special prizes, you also level up in every battle you win. That’s why you should prepare a lot and make sure to beat your opponent every chance you get.
@@ -283,8 +298,6 @@ Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check o
 
 It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on how well you prepare. That’s why you should catch as many strong Pokemon as possible beforehand. Sure. Catching Pokemon in the wild is not as easy as falling off a log. You have to travel a distance and wander aimlessly until you come across your target. But did you know that there’s actually a tool that can help you do all this stuff without going outdoors? Yes. Wondershare Dr.Fone has a potent Virtual Location feature capable of modifying your current whereabouts and simulating GPS movements. Do you want to try it out? Here’s a short guide to get you started.
 
-
-
 - **Step 1:** Download Wondershare Dr.Fone from its [<u>official website. </u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) Right after, install it on your computer.
 - **Step 2:** Open the newly installed application on your desktop. Once it fully loads up, connect your smartphone using a data cable. Follow the on-screen instructions to ensure the connection between the two devices is strong and reliable.
 - **Step 3:** Head over to the left-side panel and then click **Toolbox.** On the main dashboard, click **Virtual Location.** Let Wondershare Dr.Fone download additional resources if it’s your first time accessing this feature.
@@ -303,8 +316,6 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 ## Conclusion
 
 Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players who just want to have fun. That’s totally fine. Pokemon Go surely has in store for them that don’t require trainer battles. But if you’re among the players who wish to go the extra mile, try the Pokemon Go PvP rank games. Read the discussions above because it can help you get started with the Go Battle League. Work your way up as you go along throughout the season. For preparations, download [<u>Wondershare Dr.Fone.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It offers a powerful Virtual Location feature capable of simulating GPS movements needed when catching Pokemon. Try it out and take advantage of its wonderful benefits.
-
-
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 8S Pro?
 
@@ -338,6 +349,10 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
 ### Pokémon Sun Stone Evolution List
@@ -369,6 +384,10 @@ Pokémon Go will frequently have multiple special events happening every month. 
 - Road to Sinnoh – February 19 to February 23.
 
 You’ll be notified of any ongoing special events as soon as you start your game, so check your phone at least once daily. While partaking in a special event doesn’t guarantee you’ll get a Sun Stone, there’s always a possibility!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Field Research
 
@@ -412,8 +431,6 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
@@ -443,9 +460,6 @@ Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on 
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -458,9 +472,19 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-turning-screen-time-into-cash-the-youtube-way/"><u>[New] Turning Screen Time Into Cash The YouTube Way</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-diving-into-instagrams-restriction-for-video-content/"><u>[Updated] 2024 Approved Diving Into Instagram's Restriction for Video Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-scripts-to-screens-your-ultimate-youtube-production-plan/"><u>[Updated] From Scripts to Screens Your Ultimate YouTube Production Plan</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/bandicam-a-user-centric-review-and-guide/"><u>Bandicam A User-Centric Review & Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/business-user-guide-unpacking-the-features-and-performance-of-microsoft-surface-pro-8-on-zdnet/"><u>Business User Guide: Unpacking the Features and Performance of Microsoft Surface Pro 8 on ZDNet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-frozen-delight-ice-cream-cam-and-comprehensive-tutorial/"><u>In 2024, Frozen Delight Ice Cream Cam & Comprehensive Tutorial</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-brand-collaboration-on-youtube-for-2024/"><u>Mastering Brand Collaboration on YouTube for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/perfect-your-focus-a-guide-to-roblox-tight-scopes/"><u>Perfect Your Focus A Guide to Roblox Tight Scopes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+</ul></div>
 
