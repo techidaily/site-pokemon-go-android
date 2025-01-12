@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Fix Pokemon Go Route Not Working On Realme 12 5G? | Dr.fone
-date: 2024-12-30T18:21:21.423Z
-updated: 2025-01-05T20:52:38.893Z
+date: 2025-01-08T14:03:50.887Z
+updated: 2025-01-12T08:05:35.314Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -20,6 +20,10 @@ Pokemon Go Routes has been here for quite some time now. By far, it’s still th
 However, it’s perhaps safe to say that Pokemon Go Routes is still far from perfect. There have been a few complaints from users about **Pokemon Go Route not working.** While this issue is fairly common among the players, the root cause differs depending on the given situation. But don’t worry. If you experience similar issues, there are many tutorials you can try to fix **Pokemon Go Routes not working.**
 
 In this article, we will discuss how Pokemon Go Routes basically work. We will also talk about the main reasons why **Pokemon Go Routes is not showing up** sometimes. Lastly, we will provide some helpful tips to fix this kind of problem. Continue reading below to learn more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1. How Do Routes in Pokemon Go Work?
 
@@ -40,6 +44,10 @@ Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how 
 
 **NOTE:** The Create New Route feature is only available to selected Pokemon Go players. If Pokemon Go Routes is not showing up on your end, it’s probably because you’re not yet eligible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2. Why is Pokemon Go Routes Not Showing Up?
 
 As previously mentioned, the root causes of the Pokemon Go Routes glitch vary from one trainer to another. It’s possible that the Pokemon Go Routes are not showing up because your Trainer Level is not high enough. Yes. This option is only available to players who reach the required level. However, the player’s respective rank is not always the culprit for this issue. There are other factors that might also result in the same problem. Check out the list below to understand it better.
@@ -49,6 +57,10 @@ As previously mentioned, the root causes of the Pokemon Go Routes glitch vary fr
 ### There are no recorded Routes near your location
 
 It’s possible that the Pokemon Routes are not showing up because you’re too far from them. Try to move around and see if the walking paths will finally appear on your radar. In this case, all you need to do is find the perfect spot where Routes are recorded.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Pokemon Go application has no adequate location access on your smartphone
 
@@ -63,6 +75,10 @@ Pokemon Go Routes and most of the game’s main features require a reliable inte
 ### You’re using an outdated Pokemon Go app version
 
 ![update pokemon go app](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-6.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Keep in mind that the Pokemon Go Routes is an additional game feature. That’s why you first need to update your existing Pokemon Go app before you can access it. The Routes is definitely not available to old versions of Pokemon Go mobile software.
 
@@ -95,10 +111,6 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
@@ -116,7 +128,7 @@ If you are also planning to catch this electric-type Pokemon, then you can have 
 ## Part 1: Things You Should Know About Pachirisu
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What are Pokemon GO Pachirisu Features?
@@ -128,6 +140,10 @@ It's an EleSquirrel Pokemon that can win battles in rainy weather. Pachirisu is 
 You can evolve it into Mega Pachirisu with mega gems, but more evolution isn’t possible. Now, let's look at some stats in the table below to understand it better:
 
 <table><tbody><tr><td><b>Pokemon No</b></td><td>417</td></tr><tr><td><b>Maximum CP</b></td><td>1372</td></tr><tr><td><b>Attack</b></td><td>94</td></tr><tr><td><b>Stamin</b>a</td><td>155</td></tr><tr><td><b>Defense</b></td><td>172</td></tr><tr><td><b>Height</b></td><td>0.4m</td></tr><tr><td><b>Weight</b></td><td>3.9kg</td></tr></tbody></table>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Where to catch Pachirisu?
 
@@ -145,10 +161,6 @@ To increase your chances of finding Pachirisu, it is recommended to visit areas 
 
 Since Pachirisu is mostly spawned in Alaska, Canada, and Russia, you might need to take some extra measures to locate it. I would recommend these Pachirisu Pokemon Go spawn maps to assist you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. The Silph Road
 
 The Silph Road is the biggest crowd-sourced Pokemon Go map that will let you know about the recently spawning of Pachirisu. Since the directory has data about tons of Pokemons, you can go to its filters and select Pachirisu to save time. This will let you know the recent spawning of the Pokemon with its exact coordinates.
@@ -161,19 +173,11 @@ If you are looking for an active Pachirisu Pokemon Go map, then you can head to 
 
 **Website:** [https://www.pokemap.net/](https://www.pokemap.net/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. PoGo Map
 
 Earlier, PoGo Map was available as an app, but now you can only use its website to know the spawning of Pokemons. Since it is a global directory, you can easily use it as a Pachirisu map for Pokemon Go. You can zoom in to know the spawn location of Pachirisu with its coordinates or the exact address. Besides Pachirisu, it can also help you catch several other regional Pokemons as well.
 
 **Website:** [https://www.pogomap.info/location/](https://www.pogomap.info/location/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. PokeHunter
 
@@ -182,10 +186,6 @@ PokeHunter is a well-known Pokemon GO tracker that provides exact information on
 **Website:** [https://pokehunter.co/](https://pokehunter.co/)
 
 ![pokehunter pokemon go map](https://images.wondershare.com/drfone/article/2024/01/pachirisu-pokemon-go-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Pachirisu on Pokemon Go from Home?
 
@@ -205,10 +205,6 @@ After when your device is detected, Dr.Fone will automatically display its exact
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, go to the search bar and just enter the address of the target location or its coordinates that you can get from a Pachirisu Pokemon Go map.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -223,13 +219,13 @@ Furthermore, you can even simulate your device movement to ensure that you visit
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you want to move naturally, then you can use the GPS joystick that would be enabled at the bottom of the screen. You can use your keyboard shortcuts or the mouse pointer to move in any route realistically.
 
 ![virtual location 15](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs about Pachirisu Pokémon GO Maps and Locations
 
@@ -244,10 +240,6 @@ Yes, Pachirisu is an event-exclusive Pokemon that appears in the Pokémon GO Fes
 ## Conclusion
 
 There you go! After getting to know about these Pokemon Go regional maps for Pachirisu, you can easily catch this electric-type Pokemon. Since it is not possible to go to Canada or Russia to catch it, you can use a Pachirisu Pokemon Go map to get its spawn coordinates. Later, you can use an application like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS) to spoof your iPhone location and catch a new Pachirisu without going out. For that, you don’t have to go through any technical hassle or even jailbreak your device!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why is iPogo not working On Realme 12 5G? Fixed
 
@@ -265,6 +257,10 @@ iPogo is a free to use Pokémon Go++ mod which can be downloaded as an APK file 
 - You keep track of Pokémon spawns, quests and raids using the feed on your iPogo.
 
 With all these amazing benefits at hand, it seems almost unfair to not be able to make the best of it if iPogo keeps crashing or stops working. Let’s look into the probable reasons why your iPogo is not working and explore methods to solve this dilemma.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Common problem that iPogo is not working
 
@@ -322,7 +318,7 @@ Now, grab your iPhone and get it connected with the PC using the lightening cabl
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Check Location**
@@ -345,6 +341,10 @@ Once you enter the location, a pop-up will appear. Here, you can see the distanc
 
 Now, the location is changed. You can now open any location based app on your iPhone and check the location. It will show the location you have selected.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
@@ -363,16 +363,19 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-complete-blueprint-adding-professional-effects-to-your-videos/"><u>[New] 2024 Approved The Complete Blueprint Adding Professional Effects to Your Videos</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-ios-leading-ps2-game-emulation-tools/"><u>[Updated] IOS Leading PS2 Game Emulation Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-pro-tips-for-time-lapping-your-samsung-camera/"><u>[Updated] Pro Tips for Time-Lapping Your Samsung Camera</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/gangrenous-necrosis/"><u>Gangrenous Necrosis</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme V30? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solution-steps-for-fixing-bluetooth-connectivity-problems-in-windows-11/"><u>Solution Steps for Fixing Bluetooth Connectivity Problems in Windows 11</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme 12 5G? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/xiaomi-redmi-k70e-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi K70E Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-nikon-d850-vs-d7500-features/"><u>[New] Exploring Nikon D850 Vs D7500 Features</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-unrivaled-7-best-virtual-meetings-security-centric-ranking/"><u>[New] In 2024, Unrivaled 7 Best Virtual Meetings Security-Centric Ranking</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-does-pickup-elevate-your-editing-game-on-android-heres-what-you-need-to-know-for-2024/"><u>[Updated] Does PickUp Elevate Your Editing Game on Android? Here’s What You Need to Know for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-the-easiest-fix-on-how-to-livestream-a-podcast/"><u>2024 Approved The Easiest Fix on How to Livestream a Podcast</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/crafting-a-seamless-intelligence-automation-blend-with-abbyy/"><u>Crafting a Seamless Intelligence Automation Blend with ABBYY</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/enhance-your-broadcasts-with-manycams-virtual-webcam-and-live-video-tools/"><u>Enhance Your Broadcasts with ManyCam's Virtual Webcam and Live Video Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-honor-magic-vs-2-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Honor Magic Vs 2 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-mastering-adobe-premiere-top-6-tricks-for-professional-grade-videos/"><u>Updated In 2024, Mastering Adobe Premiere Top 6 Tricks for Professional-Grade Videos</u></a></li>
 </ul></div>
 
