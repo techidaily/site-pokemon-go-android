@@ -1,7 +1,7 @@
 ---
 title: 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme 12 5G | Dr.fone
-date: 2025-01-15T20:54:48.706Z
-updated: 2025-01-17T22:15:22.379Z
+date: 2025-01-21T18:49:31.960Z
+updated: 2025-01-24T06:02:17.741Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/a69a15798572265a2574284260281ddf651b6e2ed
 Moreover, **Pokémon GO PvP** is designed to use an array of Pokémon in a particular league. Notably, you can use only three Pokémon while fighting in a league. Read this article to stay updated about the leagues and achieve the maximum rewards and ranking. By the end, you will also get familiar with the 15 strongest **Pokémon GO PvP** and a robust location spoofer.
 
 ![finding strongest pokemon for pvp league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1. What Are the Limitations of CP for Every Pokémon GO PvP League
 
@@ -63,16 +67,12 @@ On the contrary, it has Dig, Poison Fang, Thunderbolt, and Sludge Bomb as charge
 | **Weaknesses** | Ground, Psychic |
 | **Resistance** | Bug, Fighting, Fairy, Grass, Poison |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Timburr
 
 ![timburr pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 While carrying squared logs, Timburr is always ready for construction. It comes up with 1487 CP, suitable to participate in the Great League. This Pokémon belongs to the Unova region and performs superbly in Cloudy weather. Reflecting on its fast moves, Timburr has Low Kicks and Pounds in its fast attacks.
@@ -126,6 +126,10 @@ Regarding Raichu's family, it is found connected to Pikachu, Pichu, and Alolan R
 | --- | --- |
 | **Weaknesses** | Ground |
 | **Resistance** | Electric, Flying, Steel |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Xatu
 
@@ -200,10 +204,6 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 
 ![mega charizard pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This Pokémon Go has a maximum of 5037 CP on level 50, which offers Blast Burn and Fire Spin among its best moves. Before fainting, it can deal with 688.4 damage and cause damage of 21.74 per second. When battling in neutral weather, it needs Elite Charge TM to get Blast Burn.
 
 It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For the best combinations in attacking, users prefer going with Fire Spin and Blast Burn or Wing Attack and Blast Burn. This helps them attain the maximum damage out of the opponent Pokemon during showdowns.
@@ -213,13 +213,13 @@ It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For th
 | **Weaknesses** | Electric, Rock, Water |
 | **Resistance** | Bug, Grass, Fairy, Fighting, Fire, Ground, Steel |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Necrozma (Ultra)
 
 ![necrozma ultra pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Necrozma (Ultra), with a maximum of 5293 CP, is the **best PvP Pokémon GO Master League**. This Pokemon attains this CP value at level 50, and opposingly, at level 1, it accomplishes 66 CP. Uncovering its charged moves shows 35 damage scores in a 2.2-second duration. It is boosted by windy weather and originally belongs to the Alola region.
 
@@ -285,7 +285,7 @@ Once Teleport Mode is activated, head to the top left side, access the search ba
 ![search for required location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - Step 3. Adjust the Pin Location and Confirm Your Choice
@@ -326,6 +326,10 @@ Pokémon Go has been on the nerves of its players and this is all because of the
 
 The best part of this game is that it has been compiled keeping in view the location mechanics. The location analytics of the game has made sure that it becomes the overnight sensation. Three main attributes are associated with the location framework of the game. These attributes also show how important the location is for the game. Understanding these attributes will also make sure that the user can overcome the errors such as failed to detect location 12 GPS joystick 2019.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### i. Physical World Attribute
 
 The best part of this attribute is that it is the center of the user experience of the game. The second part is the fact that this map has evolved and there are no shortcuts to its success. Ingress was the previous game that was developed by Niantic and the crowdsourcing of this map started with the evolution of this application. This was developed by the same team that is working on the core of Google Earth.
@@ -333,6 +337,10 @@ The best part of this attribute is that it is the center of the user experience 
 ### ii. Real World Gestures
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### iii. Place Attribution
 
@@ -382,10 +390,6 @@ Just long-press the power button and choose the reboot option from the menu that
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
@@ -399,6 +403,10 @@ Just long-press the power button and choose the reboot option from the menu that
 To begin the process, download and install the program to get going with the process.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Enable Virtual Location**
 
@@ -418,15 +426,15 @@ On the upper right corner click the icon on the third to begin teleportation or 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Move to the teleported location**
 
 Click on move here and the system will move you to the location that has been entered.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6: Validate and Completion**
 
@@ -434,17 +442,9 @@ The location will be locked by the program and your iPhone will also show the sa
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the state-of-the-art program to overcome Pokémon go unable to detect location 12 on iOS devices. It has an intuitive interface and it also allows the users to overcome the issues that traditional spoofing programs present. It is being updated constantly which also means that you will be able to get the best results. There is no program on the internet that can resolve the error that failed to detect location 12 in Pokémon go as easily as this one does.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to use iSpoofer on Realme 12 5G?
 
@@ -491,10 +491,6 @@ PGSharp is one of the best alternatives to **iSpoofer for Android**. It’s a tw
 
 ![pgsharp](https://images.wondershare.com/drfone/2020/202010/pgsharp.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can either choose the free or the paid version of the app. Of course, the latter comes with a few additional features, but if you only want to fake location in Pokemon Go, the free version of PGSharp will get the job done as well.
 
 **Note:** Keep in mind that PGSharp isn’t available on Google Play Store and you’ll have to download it from the official [<u>PGSharp website</u>](https://www.pgsharp.com/).
@@ -522,6 +518,10 @@ Follow these steps to change your GPS location on an iDevice using Dr.Fone - Vir
 Step 1 - Install the Dr.Fone toolkit on your computer and launch the software. Click “Virtual Location” and connect your iPhone to the computer using a lightning cable.
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2 - Once the tool recognizes your device, click “Get Started” to proceed further.
 
@@ -551,18 +551,19 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-designing-aplus-cover-photos-for-your-insta-highlights-for-2024/"><u>[Updated] Step-by-Step Designing A+ Cover Photos for Your Insta Highlights for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-honor-100-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Honor 100 Pro without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/can-a-vpn-secure-your-interaction-with-chatgpt-tips-and-tricks/"><u>Can A VPN Secure Your Interaction With ChatGPT? Tips & Tricks</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-c65-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-samsung-galaxy-a24-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Samsung Galaxy A24 in Minutes | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Google Pixel 8? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-issues-with-microsoft-projector-adapter-connections-in-windows-10-environments/"><u>Overcoming Issues With Microsoft Projector Adapter Connections in Windows 10 Environments</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-xiaomi-redmi-a2plus-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Xiaomi Redmi A2+ has been deleted.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-poco-x6-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Poco X6 IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unleash-potential-with-informed-tagging-on-youtube-for-2024/"><u>Unleash Potential with Informed Tagging on YouTube for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-galactic-glitter-top-10-accessories-for-sj4000-stargazers/"><u>[New] Galactic Glitter Top 10 Accessories for SJ4000 Stargazers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-easy-and-fast-convert-youtube-music-into-mp3-mac-version/"><u>[New] In 2024, Easy & Fast Convert YouTube Music Into MP3, Mac Version</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-social-synergy-connecting-the-two-giants/"><u>[Updated] 2024 Approved Social Synergy Connecting the Two Giants</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-simplify-your-sales-scrutiny-googles-straightforward-steps-to-track-income-from-youtube/"><u>2024 Approved Simplify Your Sales Scrutiny Google's Straightforward Steps to Track Income From YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gradual-volume-lessening-in-music-creation-garageband/"><u>Gradual Volume Lessening in Music Creation (Garageband)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-v30t-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme V30T? Fixed | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mac-green-screen-software-which-one-is-right-for-you-for-2024/"><u>Mac Green Screen Software Which One Is Right for You for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/quick-fixes-overcoming-your-frustratingly-slow-internet-issues/"><u>Quick Fixes: Overcoming Your Frustratingly Slow Internet Issues</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-common-errors-in-microsoft-office-windows/"><u>Troubleshooting Common Errors in Microsoft Office Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/unveiling-the-secrets-of-gpu-rendering-in-handbrake-answering-your-most-frequently-asked-questions/"><u>Unveiling the Secrets of GPU Rendering in HandBrake: Answering Your Most Frequently Asked Questions</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Most Useful Tips for Pokemon Go Ultra League On Honor X8b | Dr.fone
-date: 2024-07-14T09:23:22.762Z
-updated: 2024-07-15T09:23:22.762Z
+date: 2025-01-20T17:10:14.016Z
+updated: 2025-01-23T16:31:05.577Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -30,6 +30,10 @@ Isn’t it getting too enticing to dive in? What’s next? Before you set yourse
 As the Ultra League Pokemon Go is not as cheap to develop a team as the great league, there is still a chance of being a CP cap of 2500. You won’t be maxing out Pokemon in a similar way as the Master League. However, a slightly higher CP brings more legendaries appearances that you have been catching in Raids or weekly Research for years.
 
 ![Pokemon go ultra league tier list](https://drfone.wondershare.com/2020/Pokemon-go-ultra-league-tier-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For your help, here are the trios for your better understanding of the building up of a team. Consider following as examples-
 
@@ -111,6 +115,10 @@ If you have been playing Pokemon games (like Sun/Moon or Sword/Shield), then you
 
 ![Pokemon Team Building Banner](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What are Some Good Pokemon Team Examples?
 
 To understand the dynamics of team composition, you should know that there are ideally different kinds of Pokemons:
@@ -124,20 +132,33 @@ To understand the dynamics of team composition, you should know that there are i
 
 ![hola free vpn](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Based on these different types of Pokemons, you can come up with the following teams to win your next battle:
 
 ### 1\. 2x Physical Sweeper, 2x Special Sweeper, Tanker, and Annoyer
 
 If you want to have an attacking team, then this would be the perfect combination. While the annoyer and tanker would drain the HP of the opponents, your sweeper Pokemons can finish them with their high attacking stats.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. 3x Sweepers (Physical/Special/Mixed), Tanker, Wall, and Annoyer
 
 This is one of the most balanced Pokemon teams that would work in almost every situation. In this, we have a tanker and a wall to take damage from the opponent’s Pokemon. Also, we have three different types of sweepers to do maximum damage.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Balanced Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Drainer, Tanker, Cleric, and 3 Sweepers (Physical/Special/Mixed)
 
@@ -151,18 +172,12 @@ This is one of the most legendary teams in Pokemon that any player can have. The
 
 Even if you don’t have a lot of experience in the game, you can try this power-packed team in Pokemon games like Sun and Moon. It has the perfect balance of attacking and defensive Pokemons that would excel in every situation.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Attacking Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
 ## Part 2: Things to Consider while Creating your Pokemon Team
 
 Since there could be so many ways for coming up with a Pokemon team, I would recommend following these suggestions:
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip 1: Consider your strategy
 
 The most important thing that you need to know is the overall strategy that you have to focus on game. For instance, at times, players would like to play defensively while others want to focus on attacking. Therefore, you can come up with a team composition according to your needs.
@@ -174,6 +189,10 @@ Needless to say, if you have all attacking or all defensive Pokemons in your tea
 ### Tip 3: Don’t pick Pokemons with common weaknesses
 
 It is always recommended to have a diverse team so that your opponent can’t harass you. For instance, if two or more Pokemons have the same type of weakness, then your opponent can easily win by counter-picking Pokemons.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 4: Practice and alter your team
 
@@ -193,8 +212,6 @@ The overall interface would largely vary on the game that you are playing. Let�
 
 There you go! By following these tips, you would be able to come up with a winning Pokemon team for different games. I have included various examples of Pokemon team combinations here that you can also apply. Besides that, you can also follow the above-listed tips to create different styles of amazing teams in Pokemon games like Sword/Shield or Sun/Moon like a pro.
 
-
-
 ## Where Is the Best Place to Catch Dratini On Honor X8b
 
 Dratini is a rare Pokemon that can be found in the wild. It is a Dragon-type Pokemon that evolves into Dragonair and then into Dragonite. Dratini is a popular Pokemon among players due to its rarity and powerful evolution. If you are looking to catch Dratini on your Honor X8b, you may be wondering where the best place to find them is.
@@ -209,6 +226,10 @@ Dratini undergoes two different evolutions
 
 The first un-evolved version is the serpentine Dratini that looks like a snake and continues shedding its skin as it grows. When you get to level 30, Dratini evolves into Dragonair, and at level 55 it becomes Dragonite
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Dragonair
 
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
@@ -216,8 +237,9 @@ This is an evolution of Dratini, which has a long scaly serpent-like body. It st
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Dragonite
 
 This is a Pokémon character that truly resembles a dragon and is the second evolution of Dratini. It has a yellow thick body, and a couple of antennae that come out of its forehead. It has a striated underbelly. The body is quite large when compared to the small wings.
@@ -291,21 +313,17 @@ This is how your location will be viewed on the map.
 
 This is how your location will be viewed on another iPhone device.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -319,9 +337,19 @@ When you need to, you can teleport your device to an area where Dratini is popul
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-musical-mastery-in-micro-storytelling/"><u>2024 Approved Musical Mastery in Micro Storytelling</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-simplifying-streaming-key-tactics-for-youtube-and-twitch-via-obs/"><u>2024 Approved Simplifying Streaming Key Tactics for YouTube & Twitch via OBS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-c53-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expert-tips-for-high-quality-sound-memos/"><u>Expert Tips for High-Quality Sound Memos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-itel-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Itel S23? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-pinnacle-studio-for-mac-explore-these-excellent-alternative-options/"><u>New 2024 Approved Pinnacle Studio for Mac Explore These Excellent Alternative Options</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reviving-vintage-visual-storytelling-techniques-today/"><u>Reviving Vintage Visual Storytelling Techniques Today</u></a></li>
+<li><a href="https://media-tips.techidaily.com/summer-entertainment-revolution-disneyplus-merges-with-hulu-and-max-for-ultimate-streaming-package/"><u>Summer Entertainment Revolution: Disney+ Merges with Hulu & Max for Ultimate Streaming Package</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/top-rated-macavchd-video-converter-free-software-guide-and-downloads/"><u>Top Rated MacAVCHD Video Converter: Free Software Guide & Downloads</u></a></li>
+</ul></div>
 

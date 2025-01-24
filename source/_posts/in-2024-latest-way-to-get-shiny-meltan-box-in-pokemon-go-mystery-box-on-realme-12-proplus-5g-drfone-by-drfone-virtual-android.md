@@ -1,7 +1,7 @@
 ---
 title: In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 12 Pro+ 5G | Dr.fone
-date: 2025-01-05T22:49:12.606Z
-updated: 2025-01-12T13:12:32.782Z
+date: 2025-01-18T17:45:53.622Z
+updated: 2025-01-23T19:13:28.216Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -37,6 +37,10 @@ Reportedly, you are required to have the mobile version of Home connected to you
 
 ![sign in to your account](https://drfone.wondershare.com/2020/sign-in-to-your-account.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Enter your username and password. Press ‘OK’ to return to the previous screen.
 
 ![](https://drfone.wondershare.com/2020/enter-your-password.jpg)
@@ -53,10 +57,6 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![click on send pokemon](https://drfone.wondershare.com/2020/click-on-send-pokemon.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Press Continue
 
 ![press continue button](https://drfone.wondershare.com/2020/press-continue-button.jpg)
@@ -71,7 +71,7 @@ On execution of the above instructions, follow the directions below to move a Po
 ![tap transport](https://drfone.wondershare.com/2020/tap-transport.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - Press ‘Done’
@@ -83,10 +83,6 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![click on tap to start](https://drfone.wondershare.com/2020/click-on-tap-to-start.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Click ‘Yes’ on the Pokémon Go Link message.
 
 ![proceed by clicking on yes](https://drfone.wondershare.com/2020/proceed-by-clicking-on-yes.jpg)
@@ -95,15 +91,15 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![view your transferred pokemon](https://drfone.wondershare.com/2020/view-your-transferred-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Confirm that you want to Receive by pressing ‘Receive Pokémon’
 
 ![confirm your pokemon](https://drfone.wondershare.com/2020/confirm-your-pokemon.jpg)
 
 By following the steps above, you will be awarded a Mystery Box in Pokémon Go, and you can activate it by advancing to your item bag.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Use Virtual Location to catch the Pokémon Go creature
 
@@ -127,6 +123,10 @@ Select your current location on the map. Next, click the leftmost button on the 
 
 ![virtual location 8](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Imitate Movement between steps:**
 
 To start the simulation, make a movement and traverse to the ‘Move Here’ button to reach multiple times. By default, the motion is adjusted to ‘1’, but it can be replaced by the user to switch the program correspondingly.
@@ -139,10 +139,6 @@ The simulated position will emerge as genuine for the Pokémon Go app, and it wi
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Movement Simulation between more than two spots:**
 
 Dr. Fone's application also permits you to replicate activity between more than two sites. The component is called after the multi-stop path that can be chosen from the GUI toolbox class positioned at the top-right nook that lets you put numerous specified destinations on the map, and your position will behave appropriately as controlled by the virtual location application of Dr.Fone.
@@ -152,11 +148,7 @@ To grant permission to the system to mock movement by picking out the right opti
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to get Shiny Meltan in Pokémon Go?
@@ -166,10 +158,6 @@ Meltan is a legendary steel-type Pokémon that was initially launched in Pokémo
 The Mystery Box will act as an essence precisely for Meltan, attracting a large amount of the small Hex Nut Pokémon to your locality for one hour. It takes time to recharge, about three days, but after it is charged, you have to transfer another Pokémon to HOME to be able to use it again for an hour. If you get to use the Mystery Box in the course of specific events, you can even grab a Shiny Meltan.
 
 ![pokemon home vs pokemon go](https://drfone.wondershare.com/2020/pokemon-home-vs-pokemon-go.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -224,10 +212,6 @@ You can press the Get Started" button to start the process upon phone detection.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Imitating Movement between steps:**
 
 Open the first choice located in the top-right corner until you enter Dr.Fone's GUI, which helps you to fake movement between the two locations. Select the location pin found in the search bar and press the "Move Here" button.
@@ -241,10 +225,6 @@ You want to make a motion, and navigate to the "March" button to start the simul
 For the Pokemon Go application, the new position will appear as real and will presume that you are walking between the two selected locations you have selected on the Dr. Fone screen. The walking pace can also be changed at the bottom of the screen using the sliding menu. This way, without knowing it, you can use the fake movement of the desired position, and your application will not be prohibited.
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
@@ -286,6 +266,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![kanto pokemon](https://images.wondershare.com/drfone/2020/202010/kanto-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Taouros:** North America.
 - **Farfetch’d:** Asia.
 - **Mr. Mime:** Europe.
@@ -324,6 +308,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Azelf:** Available on select raid periods. America.
 - **Mesprit:** Available on select raid periods. Middle East, Africa, and India.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Gen 5/ Unova Pokémon
 
 ![unova pokemon](https://images.wondershare.com/drfone/2020/202010/unova-pokemon.jpg)
@@ -355,11 +343,19 @@ Get the USB cable and connect your iPhone to the PC. And then click ‘Get Start
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Check the Location**
 
 When the location map opens, click on ‘Centre On’ to accurately pinpoint the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Activate teleport mode**
 
@@ -374,6 +370,10 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to help catch Regional Pokémon
 
@@ -403,15 +403,22 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ajay-the-creative-content-creators-profitable-venture-on-youtube/"><u>[Updated] In 2024, AJay The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-binge-watching-to-billions-jake-pauls-video-venture/"><u>[Updated] In 2024, Binge-Watching to Billions Jake Paul's Video Venture</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-v27-pro-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo V27 Pro Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/best-electric-grass-cutters-for-your-yard-2023s-top-picks-by-techreviewz/"><u>Best Electric Grass Cutters for Your Yard - 2023'S Top Picks by TechReviewz</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/diagnosing-unexpected-computer-outages-tips-and-solutions-by-yl-software-experts/"><u>Diagnosing Unexpected Computer Outages: Tips & Solutions by YL Software Experts</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor X50 GT? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-vivo-y78plus-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Vivo Y78+ FRP</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-mastering-mingle-link-up-on-pc-android-ios/"><u>[New] 2024 Approved Mastering Mingle Link Up on PC, Android, iOS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-transforming-images-with-ar-a-guide-to-free-lut-downloads/"><u>[Updated] 2024 Approved Transforming Images with AR A Guide to Free LUT Downloads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unlocking-viral-potential-in-digital-content-creation/"><u>[Updated] In 2024, Unlocking Viral Potential in Digital Content Creation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-mastering-clear-communication-via-skype-for-2024/"><u>[Updated] Mastering Clear Communication via Skype for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/bricked-iphone-recovery-guide-quick-4-step-solution/"><u>Bricked iPhone Recovery Guide: Quick 4-Step Solution</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-batch-convert-heic-images-to-jpeg-format-in-windows-11-and-11/"><u>How to Batch Convert HEIC Images to JPEG Format in Windows 11 & 11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-fix-the-imessage-is-signed-out-error-on-iphone/"><u>How to Fix the iMessage Is Signed Out Error on iPhone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Realme C51? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-90-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-poco-x5-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unmissable-oneplus-bargains-prime-day-exclusive-savings/"><u>Unmissable OnePlus Bargains: Prime Day Exclusive Savings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-nubia-z50-ultra-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Nubia Z50 Ultra? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Honor 100 Pro | Dr.fone
-date: 2024-07-14T09:17:14.479Z
-updated: 2024-07-15T09:17:14.479Z
+date: 2025-01-21T07:05:24.841Z
+updated: 2025-01-24T02:01:47.806Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,12 +25,13 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
@@ -54,6 +55,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -71,9 +76,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Actions that DO NOT trigger cooldown?
 
 On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
@@ -146,9 +148,6 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Voila! You have teleported your location to the desired place.
@@ -157,13 +156,9 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
 
 ## What Legendaries Are In Pokemon Platinum On Honor 100 Pro?
 
@@ -195,10 +190,11 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
@@ -207,6 +203,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **9\. Cresselia:** Cresselia is the Level 50 Pokemon that roams Sinnoh after you communicate with it on Fullmoon Island. So, you must reach the Full Moon Island to heal the Sailor’s child, and after that you will meet Cresselia. After you interact with it, the Pokemon runs and roams Sinnoh’s grass.
 
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
 
@@ -229,6 +229,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
@@ -254,9 +258,17 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
@@ -266,13 +278,15 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -282,13 +296,15 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
-
-
 
 ## How to use iSpoofer on Honor 100 Pro?
 
@@ -321,9 +337,6 @@ Here are some of the most common ways to spoof location on Android devices.
 
 VMOS is an application that lets users set up a virtual machine on their Android device. This means that you’ll be able to set up two different Android systems on the same device. What makes VMOS the right tool for geo spoofing on Android is the fact that it offers a one-click root enable feature. You can easily root your virtual Android OS without damaging the firmware of the primary OS. This way you’ll be able to install professional location spoofing tools and change your GPS location without any hassle.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![vmos](https://images.wondershare.com/drfone/2020/202010/vmos.jpg)
 
 The only downside of using VMOS is that it’s extremely hard to set up and manage. First and foremost, you’ll need different tools to successfully set up the virtual OS on your device. Secondly, VMOS is heavy software and if your smartphone doesn’t have decent configurations, it may even slow down the overall processing.
@@ -341,6 +354,10 @@ PGSharp is one of the best alternatives to **iSpoofer for Android**. It’s a tw
 You can either choose the free or the paid version of the app. Of course, the latter comes with a few additional features, but if you only want to fake location in Pokemon Go, the free version of PGSharp will get the job done as well.
 
 **Note:** Keep in mind that PGSharp isn’t available on Google Play Store and you’ll have to download it from the official [<u>PGSharp website</u>](https://www.pgsharp.com/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Extension: safest way to spoof on iOS- Dr.Fone virtual location**
 
@@ -380,11 +397,6 @@ Step 4 - The pointer will move to the selected location automatically. Finally, 
 
 That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtual Location (iOS).
 
-
-
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -397,9 +409,26 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-evaluating-inshot-is-it-truly-top-notch-for-2024/"><u>[Updated] Evaluating InShot Is It Truly Top-Notch for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-revolutionizing-channel-presence-the-secret-of-higher-subscriber-numbers/"><u>[Updated] Revolutionizing Channel Presence The Secret of Higher Subscriber Numbers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-streaming-hd-1080p-on-facebook-tips-and-tricks/"><u>2024 Approved Streaming HD 1080P on Facebook Tips and Tricks</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/automated-conversion-tracking-with-cookiebot-integration/"><u>Automated Conversion Tracking with Cookiebot Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-irreversible-disconnection-from-fb-community/"><u>Breaking Free: Irreversible Disconnection From FB Community</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-x6-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-step-by-step-guide-to-excellent-ipadiphone-interview-podcast-recording/"><u>In 2024, Step-by-Step Guide to Excellent iPad/iPhone Interview Podcast Recording</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-itel-a60s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Itel A60s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/swiftrecordingtool-with-narrator-functionality-for-2024/"><u>SwiftRecordingTool with Narrator Functionality for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/uncovering-the-reason-behind-your-airpods-volume-discrepancy-fixes-inside/"><u>Uncovering the Reason Behind Your AirPods' Volume Discrepancy – Fixes Inside</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-poco-f5-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Poco F5 Pro 5G? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

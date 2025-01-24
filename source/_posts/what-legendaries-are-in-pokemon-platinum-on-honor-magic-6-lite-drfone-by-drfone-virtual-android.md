@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor Magic 6 Lite? | Dr.fone
-date: 2024-07-14T09:18:48.824Z
-updated: 2024-07-15T09:18:48.824Z
+date: 2025-01-19T04:19:55.575Z
+updated: 2025-01-24T07:17:49.566Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -44,6 +44,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
@@ -103,21 +107,31 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -133,15 +147,10 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
-
-
 ## Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic 6 Lite
 
 If you are a Pokemon Go player, then you might already know how crucial it is to have some active friends in the game. By playing Pokemon Go with your friends, you can create teams, participate in raids, and do so much more. Though, the best way to make new friends in the game is by joining an active Pokemon Go Discord server. The good news is that Discord has tons of international and local Pokemon Go servers that you can join. Find out how to find the most appropriate Pokemon Go Discord servers in this guide.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pokemon Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-1.jpg)
 
 ## **Part 1: Where can I find the Best Pokemon Go Discord Servers?**
@@ -174,6 +183,10 @@ _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/
 
 ![DisBoard Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. **Other Places to find Discord Servers**
 
 Just like DisBoard, you can also explore several other websites and Discord server directories to find appropriate Pokemon Go Discord servers. A lot of gamers also explore social networks like Reddit, Twitter, Facebook, Twitch, Instagram, etc. to find all kinds of Pokemon Discord servers.
@@ -194,7 +207,15 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 3: Some Popular Pokemon Discord Servers to Join**
 
@@ -242,10 +263,6 @@ From these Pokemon Go Discord servers, you can easily know the spawning or raid 
 
 That’s a wrap, everyone! I’m sure that after reading this post, you would be able to search all kinds of Pokemon Discord servers. Apart from reliable Discord server directories, you can also browse various popular Pokemon Go Discord servers out there. Go ahead and search some other local and interesting Pokemon Discord servers on your own and use a tool like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS) to catch Pokemons remotely.
 
-
-
-
-
 ## Full Guide to Catch 100 IV Pokémon Using a Map On Honor Magic 6 Lite
 
 **_“How do I find 100 IV Pokémon in Pokémon Go? I have heard of some techniques, but can’t find any reliable Pokémon Go 100 IV map that works!”_**
@@ -275,15 +292,16 @@ Keeping reading!
 
 Before you put effort into catching the Pokémon IV 100 map, you should have knowledge about which Pokémon has a stat of 100 IV. Following are the ways with which you can check the IVs of Pokémon in the Pokémon Go game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.1 Check IVs within the app
 
 You can check the true percentages of your characters’ IVs in the gaming app itself. Now, if you use the appraisal system of the app, your team leader will show the stats of each Pokémon and can give it a star rating as well.
 
 Further, you can also click on the arrows on the left and right to see the stats of the next Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2.2 Know Pokémon IV using search filters
 
 ![know pokemon iv](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-2.jpg)
@@ -292,13 +310,14 @@ Pokémon Go app has a search feature that you can use to know the exact IV of Po
 
 Now check the Pokémon by their star rating, as this is the easy way to know about the IVs of characters. Type “4\*” in the search bar, and you will see characters with a 4-star rating. Mostly a star Pokémon are a 100 IV Pokémon map.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Tips to Catch 100 IV Pokémon in the Game
 
 Since 100 IV Pokémon are so sought-after, catching them can be a tough job. Apart from using a **Pokémon Go 100 IV map**, here are other tips that can increase your chances to catch the perfect IVs Pokémon to some extent. A Weather Boosted wild catch can increase your odds to a 1 in 1,725 chance. But, this is still not so easy for a player.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![catch 100 iv pokemon](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-3.jpg)
 
 - If you are fortunate, then you can end up [catching a “lucky” Pokémon](https://drfone.wondershare.com/virtual-location/pokemon-go-spoofing-ios.html). Though, the chances of a lucky Pokémon having 100 IV are 1 in 64 presently.
@@ -323,6 +342,10 @@ Apart from the above-listed tips, you can also use a **100 IV Pokémon Go map** 
 
 Here are some of these reliable 100 IV Pokémon Go trackers that you can use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. The Silph Road
 
 The Silph Road is the most extensive crowd-sourced resource for Pokémon Go that you can easily use on any device. Just visit its website and use the inbuilt filters to access its 100 IV Pokémon Go tracker. It will display the estimated IV for the Pokémon so that you can decide if it is worth the effort or not. Besides being a Pokémon Go 100 IV map, you can also use it to look for nests, raids, gyms, etc.
@@ -337,9 +360,6 @@ Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly
 
 **Website:** <https://www.pokemap.net/>
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![pokemap](https://images.wondershare.com/drfone/article/2023/05/pokemon-go-100-iv-map.jpg)
 
 Further, the map shows the gym in red and Pokestops in blue by default. Therefore, it helps you to your route and trip to catch the Pokémon and to shop as well. Also, when you click on a particular Pokestop or Gym, this will show you the look of the stop, which you can share with other players.
@@ -348,9 +368,6 @@ Further, the map shows the gym in red and Pokestops in blue by default. Therefor
 
 You can also search for postcodes in Pokémon Go Map. But this map is not affiliated with Pokémon Go or Niantic. So, you need to download it from the site.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 3\. PokeDex 100
 
 This is another popular directory of Pokémon that is solely dedicated to 100 IV Pokémon. Although its app is no longer available, you can access this Pokémon Go Map 100 IV by visiting its website. It would list all the recent spawning of the 100 IV Pokémon that you can further check. If you want, you can unlock the exact coordinates of that Pokémon with a single click.
@@ -378,8 +395,6 @@ _You may be interested in: [8 Best Alternatives of PokeCrew: Find Pokemons on an
 ## Part 5: An Expert Tip to Catch 100 IV Pokémon Sitting at Home?
 
 Using a 100 IV Pokémon Go map, you can easily know their spawning locations and whereabouts. Since it is not possible to physically visit these locations to catch Pokémon, you can spoof your iPhone location instead. To do that, just take the assistance of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With just a few clicks, it will let you spoof your iPhone location without jailbreaking or undergoing any technical hassle.
-
-
 
 ### Dr.Fone - Virtual Location
 
@@ -413,9 +428,6 @@ If you wish to evolve your Pokémon or simulate your movement, then use the one-
 
 That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps that actually work, you can easily catch these powerful Pokémon. Though, after noting their coordinates from a Pokémon IV 100 map, you would need to use a location spoofer app. I would recommend [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) since it is pretty easy to use and will not need any jailbreak access as well. You can spoof your iPhone location to anywhere you want and also just simulate your movements realistically.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -428,9 +440,17 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-essential-techniques-for-recording-and-preserving-itunes-videos/"><u>[New] In 2024, Essential Techniques for Recording and Preserving iTunes Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-stepwise-guide-backing-up-and-exporting-mobile-camera-images-for-social-media/"><u>[New] Stepwise Guide Backing Up & Exporting Mobile Camera Images for Social Media</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-iphones-quintet-of-premier-podcast-tools/"><u>[Updated] In 2024, IPhone's Quintet of Premier Podcast Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-poco-x6-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Poco X6 Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-pop-7-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Tecno Pop 7 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-the-world-of-computer-components-with-toms-hardware-guides/"><u>Mastering the World of Computer Components with Tom's Hardware Guides</u></a></li>
+</ul></div>
 

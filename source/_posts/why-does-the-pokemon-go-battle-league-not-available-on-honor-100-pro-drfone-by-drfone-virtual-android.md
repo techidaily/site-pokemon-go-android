@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Honor 100 Pro | Dr.fone
-date: 2024-07-14T09:15:57.993Z
-updated: 2024-07-15T09:15:57.993Z
+date: 2025-01-18T07:24:19.919Z
+updated: 2025-01-24T05:07:26.583Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,9 +21,6 @@ It’s not the first time trainers have experienced bugs in the game and a long 
 
 The root cause of this disappointing course of events was a major bug in the first season of the Battle League. Some players could simply use “charged moves” repetitively without recharging. Thankfully Niantic is coming up with a fix.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What are the Go battle league known issues?
 
 Pokémon Go as a game, is constantly evolving to improve the trainer’s experience which involves finding issues and resolving them. Like all other games, the publisher always tries their best to make the user experience more enriching and fair for the users.
@@ -38,6 +35,10 @@ Players when entering the Battle League are shown – Pokemon Go Battle League N
 
 ![pokemon 1](https://images.wondershare.com/drfone/2020/pokemon-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Thankfully, the issue has been resolved and trainers can get back into the league without any change in the previous features.
 
 Here’s a set of few known issues in the game currently being investigated by Niantic, which we can hope to see resolved later on in the future;
@@ -49,6 +50,10 @@ Here’s a set of few known issues in the game currently being investigated by N
 - **Animation Glitch of the trainer throwing a Poke ball –** A glitch occurs occasionally when the trainer avatar is seen throwing a Poke Ball repetitively.
 - **Disappearance of the Charged Attack and Switch Button –** The button of the Charge Attack and the Switch Pokémon button would eventually disappear in-enabling the trainer to take any action during live battle.
 - **Next Battle tab not showing up on the Post-win Screen –** After ending a match or winning a battle, the button for the ‘Next Battle’ option disappears from the Post-win screen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Why does the go battle not available?
 
@@ -107,6 +112,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 - You can set up multiple lures on several Poke stops and return to those exact coordinates to catch your lured Pokémon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip #3
 
 - In order to attain a Pokémon who once powered up to its maximum potential can give you a battle worthy breed, you will need to sickle through a couple of them in order find one worth powering up.
@@ -116,9 +125,17 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 - Use Lucky Egg to double your XPs earned to increase the chances of getting Pokémon which when evolved spews more XP and Candy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Pokémon Evolve with A Dawn Stone For Honor 100 Pro?
 
@@ -198,6 +215,10 @@ The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glow
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
 Depending on the specific Pokémon you want to evolve, you might need additional items or even need to perform a particular task. Some Pokémon will need to be walked as your Buddy Pokémon before they can evolve. Others can be evolved through trading them. Others can only evolve with the help of evolution items like the Sun Stone.
@@ -212,9 +233,6 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Pokémon Sun Stone Evolution List
 
 | **Pokémon** | **Items Needed** | **Sun Stone Evolutions** |
@@ -229,9 +247,17 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
 
 Fortunately, for all those unlucky ones, you can acquire the Sun Stone to complete your Pokémon evolutions in a few different ways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Special Events
 
@@ -245,6 +271,10 @@ Pokémon Go will frequently have multiple special events happening every month. 
 
 You’ll be notified of any ongoing special events as soon as you start your game, so check your phone at least once daily. While partaking in a special event doesn’t guarantee you’ll get a Sun Stone, there’s always a possibility!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Field Research
 
 Throughout your game, Professor Willow will need your help to learn more about Pokémon, so he’ll send you on different research tasks. Of course, you’ll always be generously rewarded for your efforts.
@@ -253,9 +283,6 @@ Among the different types of research the professor sends you is field research.
 
 As you’re completing your field research tasks, you can collect your rewards, earn stamps, and unlock breakthroughs. Hopefully, one of the rewards you receive will include the Sun Stone, allowing you to evolve some of your Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ### Special Research
 
 With field research, you have some flexibility. You can visit PokéStops when you’re up for them, and you can even discard some tasks if they’re too difficult for you. With special research, you don’t have all that much flexibility.
@@ -274,16 +301,10 @@ Usually, it’s in your best interest to go to more popular areas with more Pok�
 
 ## Part 5. How to Gather Sun Stones Efficiently
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
 
 Field research, special research, and spinning gyms and PokéStops are the only ways you could acquire the Sun Stone in Pokémon Go. However, that doesn’t mean you’ll need to grind day in and day out, trying to explore as much of your neighborhood as possible while playing. You can always make things a bit more efficient than that.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Complete Field Research Tasks Quickly
 
 Mention Dr. Fone Virtual Location and Add Steps.
@@ -295,8 +316,6 @@ Wondershare Dr.Fone virtual location can be a game-changer for completing your f
 You can use the Dr. Fone virtual location to set your location to anywhere in the world. Create a one-stop or multi-stop route to make the game believe you’re moving around, or even use the jump-teleport mode to “transfer” to a more resource-rich location. However, be careful with the jump-teleport mode, as it can betray the fact that you’re using a location spoofer.
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
-
-
 
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
@@ -323,14 +342,13 @@ Finally, to start getting Sun Stones and other rarer items more efficiently, you
 
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
-
-
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -344,9 +362,16 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-essential-guide-to-blurring-video-borders-in-teams/"><u>[New] 2024 Approved The Essential Guide to Blurring Video Borders in Teams</u></a></li>
+<li><a href="https://program-issues.techidaily.com/guide-to-fixing-oculus-detected-graphics-driver-issues/"><u>Guide to Fixing Oculus' Detected Graphics Driver Issues</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-lava-blaze-pro-5g-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Lava Blaze Pro 5G Without Password?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-honor-x50i-frp-bypass-by-drfone-android/"><u>In 2024, About Honor X50i FRP Bypass</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ate-content-consumption-with-these-leading-free-and-on-demand-tools-for-2024/"><u>Liberate Content Consumption with These Leading Free & On-Demand Tools for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme GT Neo 5 | Dr.fone</u></a></li>
+</ul></div>
 

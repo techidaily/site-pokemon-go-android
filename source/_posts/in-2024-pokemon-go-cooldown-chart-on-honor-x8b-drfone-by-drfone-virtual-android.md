@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Honor X8b | Dr.fone
-date: 2024-07-14T09:24:11.733Z
-updated: 2024-07-15T09:24:11.733Z
+date: 2025-01-22T07:33:20.397Z
+updated: 2025-01-24T05:31:16.207Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,9 +25,17 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
@@ -51,6 +59,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -67,6 +79,10 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -97,9 +113,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -145,27 +158,29 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
-
-
 
 ## How to use iSpoofer on Honor X8b?
 
 iSpoofer is a location spoofer that allows you to change your location on your device. This is useful for games like Pokemon Go, where you can catch Pokemons from different regions without leaving your home. However, iSpoofer is not available for download anymore. If you are looking for an alternative to iSpoofer, you can use Dr.Fone Virtual Location. Here's how you can use Dr.Fone Virtual Location to spoof your location on your Honor X8b.
 
 [![avatar](https://drfone.wondershare.com/images/alice-mj.png)](https://drfone.wondershare.com/author/alice-mj/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 iSpoofer is one of the most useful tools for iOS users, that’s designed to simulate a user's GPS location. With iSpoofer, you can change your current location to anywhere in the world and access geo-restricted content without any hassle. While the tool has several real-world applications, the majority of users use iSpoofer to fake their location to catch rare Pokemon in Pokemon Go.
 
@@ -246,9 +261,11 @@ Step 4 - The pointer will move to the selected location automatically. Finally, 
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtual Location (iOS).
-
-
 
 ## How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X8b?
 
@@ -268,10 +285,11 @@ Let’s find out how PGSharp and Dr.Fone virtual location app save you from gett
 
 Getting banned for cheating Pokémon is nothing new. Niantic always modifies the policies to catch the spoofers and to maintain the originality of the game. Niantic has made a proper discipline policy with three strikes to punish the spoofers.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Firstly, punishment:** On the first fake strike, you will get a warning message, but you still can play the game. But, while plying, you will not be able to anything remotely for about seven days.
 
@@ -302,9 +320,6 @@ There are tricks that help you save from the Pokémon Go ban.
 
 Therefore, in order to catch special and maximum Pokémon, you do not need to cheat the game, only PGSharp is enough. With this, you can play the game just by sitting at your home. All you need to do is install PGSharp on your device and launch it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: What makes PGSharp best app to spoof Pokémon Go
 
 The features and functions of PGSharp make it a safe spoofing app for Pokémon Go. With PGSharp, you do not need to root or jailbreak your device. It is a safe and secure app for android users specially designed to spoof Pokémon Go.
@@ -315,14 +330,15 @@ Now since you have PGSharp installed, you need to enable developer options on An
 
 Tap seven times on the build number to enable the developer options. Now, in the developer option, enable “Allow mock locations” and under it select PGSharp app as preferred mock location app.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-6.jpg)
 
 Remember to close all the background apps and launch PGSHARP. Now, you are ready to spoof Pokémon Go without getting banned. There will be no ban when using PGSharp.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** You will need a free beta key to install the PGSharp on your device.
 
@@ -340,14 +356,15 @@ Plus, with this, you also do not need to jailbreak your device. It doesn’t bre
 
 ### Spoof Your Location to a Certain Place
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 With the Dr.Fone virtual location iOS, you can set your location to the desired place. You only need to choose the location on the map interface and click on the move here button. It is very easy-to-use app that a novice can also operate it easily.
 
 Apart from Pokémon Go, you can also spoof dating apps and can hide your current location.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Simulate a Route with Dr.Fone Virtual Location iOS
 
@@ -359,14 +376,9 @@ There you will get a walking speed and vehicle speed option that you can customi
 
 To use this app, you only need to install and launch it on your device from the official site. It is easy to install and easy to use, as well.
 
-
-
 ## Conclusion
 
 Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. If you own iPhone, you can use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app to spoof GPS. Both these spoofing apps are best, safe, and secure to use on Android and iOS. For PGSharp, you can install it from Google Play Store, and for Dr.Fone, you need to visit the official site to install it on your system.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -380,9 +392,21 @@ Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-simple-procedure-reverse-video-order-via-vlc/"><u>[New] 2024 Approved Simple Procedure Reverse Video Order via VLC</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-prime-fb-video-converters-secure-mp4-downloads-for-2024/"><u>[New] Prime FB Video Converters Secure MP4 Downloads for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cutting-edge-advanced-techniques-in-youtube-video-editing/"><u>[Updated] In 2024, Cutting Edge Advanced Techniques in YouTube Video Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2023s-best-device-compatible-entry-editor-solutions-for-2024/"><u>2023'S Best Device-Compatible Entry Editor Solutions for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/decoding-samsungs-future-tech-the-rumored-features-estimated-pricing-and-launch-date-of-the-samsung-galaxy-z-flip-7plus/"><u>Decoding Samsung's Future Tech: The Rumored Features, Estimated Pricing, and Launch Date of the Samsung Galaxy Z Flip 7+</u></a></li>
+<li><a href="https://app-tips.techidaily.com/discover-the-cutting-edge-enhancements-in-microsofts-latest-windows-11-upgrade-on-zdnet/"><u>Discover the Cutting-Edge Enhancements in Microsoft's Latest Windows 11 Upgrade on ZDNet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/is-xbox-network-down-or-is-it-just-you/"><u>Is Xbox Network Down ... Or Is It Just You?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+</ul></div>
 

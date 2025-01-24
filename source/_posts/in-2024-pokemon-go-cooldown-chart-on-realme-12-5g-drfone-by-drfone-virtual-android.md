@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Realme 12 5G | Dr.fone
-date: 2025-01-14T22:02:17.658Z
-updated: 2025-01-18T00:04:58.042Z
+date: 2025-01-22T20:18:30.103Z
+updated: 2025-01-23T17:09:53.483Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,6 +24,10 @@ What is a cooldown? Cooldown Time restricts to stop a player from repeating mult
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -54,10 +58,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -126,10 +126,6 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -144,10 +140,6 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
@@ -158,15 +150,19 @@ Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why is iPogo not working On Realme 12 5G? Fixed
 
@@ -246,6 +242,10 @@ You will notice a map on the screen now. As it comes, you got to click on ‘Cen
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Enable Teleport Mode**
 
 Now, you are required to turn on the ‘teleport mode’. To do this, simply click on the first icon on the upper right hand corner. After that, enter the location you want on the upper right field and then hit ‘Go’.
@@ -253,7 +253,7 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5: Start Teleporting**
@@ -264,10 +264,6 @@ Once you enter the location, a pop-up will appear. Here, you can see the distanc
 
 Now, the location is changed. You can now open any location based app on your iPhone and check the location. It will show the location you have selected.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
@@ -277,10 +273,6 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 Pokemon Go is one of the most popular games worldwide, with over 80 million active players. The game will present tasks you should complete to collect items and Pokemons, thus improving your skill levels and making you better in the game.
 
 One of the essential items you can get is Stardust, which will help you become the best trainer in the Pokemon Go industry. If you’re new to the game and are wondering what the importance of Stardust is in Pokemon Go, read ahead. We’ll teach you all about it and present methods to collect this item faster.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1. What Is Stardust in Pokemon Go?
 
@@ -300,9 +292,17 @@ As you can see, Stardust is crucial for numerous gameplay experiences, so you sh
 
 ![power up using stardust](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3. Best Ways to Get Stardust in Pokemon Go
 
 Since having Stardust is crucial for your Pokemon Go experience, you may be looking for the best ways to accumulate as many consumables as possible. We’ll present a couple of ways to reach your goals below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Through Pvp Rewards
 
@@ -313,10 +313,6 @@ For instance, if you’re a Rank 2, you can earn around 2,000 Stardust points by
 Another method is to play with your friends, and the Stardust points can vary from 300 to 1000, depending on your opponent’s rank.
 
 ![pvp in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### By Opening Gifts
 
@@ -362,6 +358,10 @@ If you defeat the boss, you’ll also get a chance to catch the Pokemon, which c
 
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### By Getting Rocket Rewards
 
 Rocket rewards are sets of items you get after fighting the Team Go Rocket. Each time you beat this criminal group, you’ll be rewarded with either 500 or 1,000 Stardust points, depending on whether you were fighting Grunt or Team Go Leader.
@@ -369,10 +369,6 @@ Rocket rewards are sets of items you get after fighting the Team Go Rocket. Each
 Additionally, if you ever face Giovanni, you’ll get 5,000 points for fighting and beating him.
 
 ![rocket battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### By Earning Research Rewards Through Completed Tasks
 
@@ -385,7 +381,7 @@ For instance, if you’re on level 45, you can head to the Go Battle League 45 t
 ![pokemon go research tasks](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### By Visiting the Gym
@@ -395,6 +391,10 @@ While on your daily walk in the Pokemon world, you should check out whether you 
 You’ll earn 20 Stardust points for each berry you give a Pokemon. It may be the easiest way to earn and use these points for your experience. Plus, you’ll meet new characters and fully experience what the Pokemon world offers.
 
 ![giving berries to pokemon characters](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Claim Stardust Quickly in Pokemon Go by Using Location Spoofing
 
@@ -442,20 +442,18 @@ If you’re searching for ways to collect these items as quickly as possible and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-cutting-edge-live-upgrades-the-top-9-webcam-filter-guide/"><u>[New] 2024 Approved Cutting-Edge Live Upgrades The Top 9 Webcam Filter Guide</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-discovering-the-best-in-class-9-microphone-recorders-reviewed-for-2024/"><u>[Updated] Discovering the Best in Class 9 Microphone Recorders Reviewed for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-eye-on-video-the-premier-cameras-excellence/"><u>[Updated] Eye on Video The Premier Cameras Excellence</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/boosting-mobile-slow-mo-top-app-picks/"><u>Boosting Mobile Slow Mo Top App Picks</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/bypass-tools-to-bypass-lock-screen-y78plus-t1-edition-by-drfone-android-unlock-android-unlock/"><u>Bypass Tools to Bypass Lock Screen(Y78+ (T1) Edition)</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/create-stunning-animations-top-ios-and-android-stop-motion-apps-for-2024/"><u>Create Stunning Animations Top iOS and Android Stop Motion Apps for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme Narzo N55 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/photo-pinnacle-insta-coverage-excellence-on-ios-and-android/"><u>Photo Pinnacle Insta Coverage Excellence on iOS & Android</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-oppo-a56s-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Oppo A56s 5G and Browser | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-say-goodbye-to-bloatware-with-these-44-superb-android-video-reducers/"><u>[New] Say Goodbye to Bloatware with These 44 Superb Android Video Reducers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-finalizing-account-deletion-on-instagram-method-and-tips/"><u>[Updated] Finalizing Account Deletion on Instagram Method and Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elite-groups-finest-pro-grade-videography-tools/"><u>2024 Approved Elite Group's Finest Pro-Grade Videography Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-peerless-dialogue-creator-zone/"><u>2024 Approved Peerless Dialogue Creator Zone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/boost-your-gaming-experience-with-the-latest-amd-drivers-download-and-install-now/"><u>Boost Your Gaming Experience with the Latest AMD Drivers – Download & Install Now!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-persistent-cursor-blink-a-detailed-tutorial/"><u>How To Resolve Persistent Cursor Blink - A Detailed Tutorial.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/splitter-pro-for-2024/"><u>ImageSplitter Pro for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/leading-android-picture-perfection-apps/"><u>Leading Android Picture Perfection Apps</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme V30T? | Dr.fone</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/wiederauffinden-verschollener-festplattendaten-entdecke-verborgene-dateien-mit-myrecover/"><u>Wiederauffinden Verschollener Festplattendaten - Entdecke Verborgene Dateien Mit MyRecover</u></a></li>
 </ul></div>
 

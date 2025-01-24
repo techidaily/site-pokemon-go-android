@@ -1,7 +1,7 @@
 ---
 title: In 2024, Where Is the Best Place to Catch Dratini On Honor 100 | Dr.fone
-date: 2024-07-14T09:14:53.260Z
-updated: 2024-07-15T09:14:53.260Z
+date: 2025-01-17T10:10:39.610Z
+updated: 2025-01-24T07:30:04.219Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -49,9 +49,6 @@ Dratini has a 5% spawning chance every day, so if you have the time, you can spe
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
 This is quite a common question for those who are new to the Pokémon universe. Basically, Dratini nests and spawn points are the same for a period of two weeks. The nests then migrate leaving the spawn points to spawn different types of Pokémon.
@@ -59,6 +56,10 @@ This is quite a common question for those who are new to the Pokémon universe. 
 If the Dratini nest migrates, it can still come back in the future. You should always keep an eye at the spawn point where you first encountered your first Dratini Nest; it may come back once more and you can continue farming Dratini.
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
@@ -111,15 +112,11 @@ This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-
-
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
-
-
 
 ## Pokémon Go Cooldown Chart On Honor 100
 
@@ -137,7 +134,15 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -162,6 +167,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -234,15 +243,27 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
 
@@ -256,19 +277,10 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Additional Tips About Sinnoh Stone For Honor 100
 
 Sinnoh Stones are similar to other evolutionary items found in Pokemon Go, like Metal Coat, Dragon Scale, and Sun Stones. Pokemon Go's Sinnoh Stone is a rare evolution item enabling you to upgrade existing creatures into Gen 4 versions. It is extremely exciting to see your favorite Pokemon's being upgraded, also making the best Pokemons of the game more powerful. The Pokemon Go Sinnoh Stone evolution list is also provided in the guide, which contains 18 Sinnoh Stone Evolutions.
@@ -304,9 +316,6 @@ The Sinnoh Stone is a new evolution item, and all eighteen-4th generation Pokém
 
 Sinnoh Stone can be obtained during the battle against the three leaders on Community Day, on the completion of the final day of your 7-day Research Task, and During PVP. You won't be finding them at Poke Stops. Main places where you can find Sinnoh Stones are on the 7th Day of your Research Task and award for taking part in PVP. Another place that is not popular but odds to find Sinnoh Stone is present includes the introduction to PVP when you're new to it. Players can obtain up to 10 Sinnoh Stones during the February Community Day and when the month is Pokemon Go Community Day. 5 Sinnoh Stones can be obtained by beating the three leaders in the battles and another 5 from winning PVP battles against friends. Defeating a Team Go Rocket Leader and Go Battle Reward is Sinnoh Stone.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![sinnoh stones to level up](https://images.wondershare.com/drfone/2020/sinnoh-stones-to-level-up.jpg)
 
 You can use [Dr. Fone's Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to mock your location without any movement and obtain these Sinnoh Stones. Dr.Fone's virtual location allows you to mock your location and lets the application on your phone think that you're at a place selected in Dr.Fone's application interface without resulting in any ban or detection from Pokemon Go developers. You can follow the steps listed below in order to catch Pokemon by one click to go anywhere without moving.
@@ -329,10 +338,11 @@ Open the first choice located in the top-right corner until you enter Dr.Fone's 
 
 You want to make a motion, and navigate to the "March" button to start the simulation, enter the magnitude of times. By default, the movement is set to one, but the user can override it, and the application will move accordingly.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 9](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For the Pokemon Go application, the new position will appear as real and will presume that you are walking between the two selected locations you have selected on the Dr. Fone screen. The walking pace can also be changed at the bottom of the screen using the sliding menu. This way, without knowing it, you can use the fake movement of the desired position, and your application will not be prohibited.
 
@@ -348,17 +358,21 @@ Click the 'March' button to allow the system to simulate motion by selecting the
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Essential Requirement and Evolving Pokémon's Using Sinnoh Stone
 
 Only the trainers above the 10th Level have access to acquire Sinnoh Stone. The Sinnoh Stone can be obtained from Training Battles and Training with Team Leaders. You also need 100 candies for each of the Pokemon. Once you have got your hands on Sinnoh Stones and now you want to know where they should be used, there’s numerous 4th generation Pokémon who require Sinnoh Stone for their upgrade. Mamoswine is one of the best if you're prioritizing attackers for a raid because it has a mix of extremely high CP with the strong ground and ice-type moves.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting you evolve your favorite Pokemon and keep them throughout your journey in the game. Dr.Fone's virtual application lets you find them with ease without any real movement on your part and helps you enjoy the game to the fullest.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -372,9 +386,20 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-leveraging-extra-footage-a-guide-to-b-roll-utilization/"><u>[New] 2024 Approved Leveraging Extra Footage A Guide to B Roll Utilization</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-recording-the-next-level-of-play/"><u>[New] 2024 Approved Recording the Next Level of Play</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-apex-alternatives-social-networks-beyond-twitter/"><u>2024 Approved Apex Alternatives Social Networks Beyond Twitter</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/does-find-my-friends-work-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/efficient-hyper-v-data-protection-on-different-windows-servers-windows-server-2022201920162012/"><u>Efficient Hyper-V Data Protection on Different Windows Servers (Windows Server 2022/2019/2016/2012)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-compreehers-guide-to-srt-file-flexibility/"><u>In 2024, The Compreeher’s Guide to SRT File Flexibility</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-play-7t-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor Play 7T Device</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovative-methods-for-3d-text-illustration-for-2024/"><u>Innovative Methods for 3D Text Illustration for 2024</u></a></li>
+<li><a href="https://tools.techidaily.com/wysiwygwebbuilder/download/"><u>WYSIWYG Web Builder AI</u></a></li>
+</ul></div>
 

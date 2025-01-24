@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Realme 12 5G? | Dr.fone
-date: 2025-01-11T01:14:51.359Z
-updated: 2025-01-17T16:36:35.769Z
+date: 2025-01-19T04:27:57.950Z
+updated: 2025-01-24T06:06:09.850Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -31,10 +31,6 @@ If you are an avid Pokemon Go player, then you might already know that the game 
 - The weather outside might not be suitable or safe to explore the Pokemon Go map on your own.
 - Any other possible reason for not being able to travel solely or having enough time to catch Pokemons.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Possible Risks for Using a Pokemon Go Joystick
 
 A Pokemon Go spoofing iOS/Android solution can easily change your present location in the game or even simulate your movement. Though, if you use the Pokemon Go joystick app multiple times a day and Niantic detects it, then it can cause some issues.
@@ -42,6 +38,10 @@ A Pokemon Go spoofing iOS/Android solution can easily change your present locati
 Please note that the use of any location spoofing or Pokemon Go hack (joystick) is against the terms of Niantic. Therefore, if your account is found using these hacks, then Niantic can display warning messages. If after getting multiple warnings, the hack is still being detected, then it can lead to a temporary or even a permanent ban of your account.
 
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
 
@@ -59,11 +59,19 @@ Firstly, you can just connect your iOS device to the computer and launch Dr.Fone
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Spoof your iPhone Location to Anywhere you want**
 
 Once your iPhone is connected, its present location would automatically be displayed on the screen. To spoof the Pokemon Go location on iOS, select the “Teleport Mode” option and enter the target location’s address/name/coordinates on the search bar.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
@@ -74,10 +82,6 @@ Afterward, you can select the target location and the interface would automatica
 To use the Pokemon Go joystick iOS solution, you can select the One-stop or Multi-stop mode from the top. Now, you can drop the pins on the map as per your requirements to set up a route to cover.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Afterward, you can enter the number of times you want to cover the route and even set up a preferred speed. Lastly, click on the “March” button to start the simulation on the map. You can also use a joystick at the bottom to move around realistically on Pokemon Go.
 
@@ -96,6 +100,10 @@ Just like iPhone, Android device owners can also implement these Pokemon Go hack
 To start with, you can just go to the Play Store page of the GPS Joystick app and install it on your device. Later, you can enable the Developer Options on the phone by going to its Settings > About Phone and tapping the “Build Number” field 7 times.
 
 ![GPS Joystick Android Install](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer APK the default mock location app.
 
@@ -118,10 +126,6 @@ You can further visit the GPS Joystick settings to set up preferred walking, jog
 That’s it! Now, you can just view the GPS Joystick on the map with relevant options. You can start/stop the simulation as per your requirements and even directly enter the coordinates to fake GPS on Pokemon Go.
 
 ![GPS Joystick Android](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3.3 Pokemon Go Joystick Hack for Rooted Android Phones
 
@@ -160,10 +164,6 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
 
 Pokémon go failed to detect location is an error that is frequently faced by the players and there are several reasons for it. From device to server-based all the reasons amount to the error and therefore the right solution must be applied to get the work done with ease and perfection. The location-based attribute of the game is something that has been one of the best features. It is the sole reason for which the game is not only popular but also one of the most downloaded games of all time. It is therefore important to overcome fail to detect location error in this game.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why does Pokémon fail to detect location?
 
 The two main and frequent errors that are related to the Pokémon are error 11 and error 12. These not only frustrate the users but also hamper the game experience. Failed to detect location Pokémon go is the result. This part of the article will make sure that you get all the information that is needed to overcome the issue. The GPS joystick failed to detect location error will also be overcome and you will also be able to guide others.
@@ -193,6 +193,10 @@ This is the most common method that can be applied to make sure that the game wo
 
 ![Pokemon failed to detect location 2](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 2: Setting Permissions for the application
 
 If the right permissions are not given to the application then it can also lead to the fake GPS failed to detect location. To make sure that this is overcome you need to follow the steps as under.
@@ -204,10 +208,6 @@ If the right permissions are not given to the application then it can also lead 
 **ii.** Go to Pokémon Go > Permissions > Turn on location to get the issue resolved.
 
 ![Pokemon failed to detect location 4](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Clear Cache
 
@@ -247,6 +247,10 @@ Click the get started icon once the iPhone has been connected to the system and 
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Locate the Realme 12 5G device**
 
 Click the center on a button to make sure that your location is detected by the program.
@@ -265,23 +269,19 @@ Click on move here to get to the location that has been selected.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6: Validation**
 
 Your iPhone will show the same location as on the program and this finishes the process.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Dr. Fone's virtual location is the best and the most advanced program that will make sure that you get the best results. It will not only enhance your gaming experience but will also remove the Pokémon go GPS joystick that failed to detect location error with perfection. It is the best program that is easy to use and there are guides online that further foster the process. With this program, it is easy to get a step ahead for all AR and location-based games and to enjoy to your fullest.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Come up With the Best Pokemon Team On Realme 12 5G?
 
@@ -290,7 +290,7 @@ If you have been playing Pokemon games (like Sun/Moon or Sword/Shield), then you
 ![Pokemon Team Building Banner](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What are Some Good Pokemon Team Examples?
@@ -322,10 +322,6 @@ This is one of the most balanced Pokemon teams that would work in almost every s
 
 In some situations (when there are lots of sweepers in the opponent’s team), this team would excel. Your support Pokemons (drainers and clerics) would boost the HP of sweepers while the tanker would take the damage.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Rayquaza, Arceus, Dialga, Kyogre, Palkia, and Groudon
 
 This is one of the most legendary teams in Pokemon that any player can have. The only issue is catching these legendary Pokemons can take a lot of time and effort, but it would certainly be worth it.
@@ -337,7 +333,11 @@ Even if you don’t have a lot of experience in the game, you can try this power
 ![Attacking Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Things to Consider while Creating your Pokemon Team
@@ -388,20 +388,18 @@ There you go! By following these tips, you would be able to come up with a winni
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-top-15-action-camera-picks-beyond-your-gopro-needs/"><u>[New] Top 15 Action Camera Picks Beyond Your GoPro Needs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-premier-presenter-label-provider/"><u>[Updated] 2024 Approved Premier Presenter Label Provider</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-quicksnap-pause-and-capture-techniques/"><u>[Updated] 2024 Approved QuickSnap Pause & Capture Techniques</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-blur-out-not-your-photos-top-10-edits-to-fix-fuzziness/"><u>2024 Approved Blur Out, Not Your Photos! Top 10 Edits to Fix Fuzziness</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-adsense-a-step-by-step-approach-for-youtubers/"><u>2024 Approved Navigating AdSense A Step-by-Step Approach for YouTubers</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-rtx-game-performance-drops/"><u>Overcoming RTX Game Performance Drops</u></a></li>
-<li><a href="https://article-helps.techidaily.com/pinnacle-creations-synopsis-in-depth-studio-scrutiny-for-2024/"><u>Pinnacle Creations Synopsis In-Depth Studio Scrutiny for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/ultimate-approaches-to-clearer-zoomed-video-on-online-platforms/"><u>Ultimate Approaches to Clearer Zoomed Video on Online Platforms</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-10-podcast-gear-excellent-microphones/"><u>[Updated] In 2024, Top 10 Podcast Gear Excellent Microphones</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-top-5-mac-videography-tools-unleashed-in-sierra-os/"><u>[Updated] Top 5 Mac Videography Tools Unleashed in Sierra OS</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/best-13-substitutes-for-kisscartoon-discover-where-to-watch-your-beloved-animations/"><u>Best 13 Substitutes for KissCartoon: Discover Where to Watch Your Beloved Animations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-enable-and-repair-obs-studio-audio-recordings/"><u>How to Enable and Repair OBS Studio Audio Recordings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-prevent-and-resolve-gta-v-from-crashing-unexpectedly/"><u>How to Prevent and Resolve GTA V From Crashing Unexpectedly</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-imovie-photo-slideshow-with-music/"><u>In 2024, How to Make a iMovie Photo Slideshow with Music?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/seamless-action-gaming-addressing-hlalyx-tech-snags-for-crystal-clear-play-on-pc/"><u>Seamless Action Gaming: Addressing HL:Alyx Tech Snags for Crystal Clear Play on PC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nubia Z50 Ultra | Dr.fone</u></a></li>
 </ul></div>
 

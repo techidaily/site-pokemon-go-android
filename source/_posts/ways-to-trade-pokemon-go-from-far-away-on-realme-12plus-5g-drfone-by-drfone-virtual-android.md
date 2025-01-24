@@ -1,7 +1,7 @@
 ---
 title: Ways to trade pokemon go from far away On Realme 12+ 5G? | Dr.fone
-date: 2025-01-15T23:51:22.475Z
-updated: 2025-01-18T03:46:55.910Z
+date: 2025-01-22T18:34:37.093Z
+updated: 2025-01-24T13:08:46.704Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -37,10 +37,6 @@ Firstly you need to install the Dr.Fone - Virtual Location setter on your phone.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Connect Device**
 
 Now, you need to take your iPhone’s cable and use it to connect your Realme 12+ 5G to the PC. Wait until the program detects it. Maybe you need to trust the PC if you are plugging the Realme 12+ 5G device for the first time.
@@ -64,7 +60,7 @@ Upon clicking on "go", a pop-up will appear showing you the distance of the loca
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Which pokemon can you evolve with trading?
@@ -82,6 +78,10 @@ Evolution is one of the most important aspects of the game Pokemon go. You can e
 
 However, trading Pokemons in Pokemon go could be slightly tricky without having at least one close friend in the games who is also of a considerable level. Only then, you will be able to evolve your pokemon by trading.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to do the special trade?
 
 You need a Special Trade whenever you wish to trade a legendary Pokemon or a shiny Pokemon in Pokemon Go. These pokemon are very rare to find and hence you won’t want to trade these rare Pokemons very often, however, you can trade a rare Pokemon only once per day. To trade a rare Pokemon would also need to be a Great or Best friend, two of the highest levels of friendship in the game Pokemon go. To increase your friendship level you need to battle and trade more and more. It'll take quite a bit of time to reach that stature of a friendship level. This could cost as much as one million, this amount will however decrease with increasing friendship levels.
@@ -90,19 +90,11 @@ You need a Special Trade whenever you wish to trade a legendary Pokemon or a shi
 
 Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Here are Some of the Best Pokemon Discord Servers to Join On Realme 12+ 5G
 
 If you are a Pokemon Go player, then you might already know how crucial it is to have some active friends in the game. By playing Pokemon Go with your friends, you can create teams, participate in raids, and do so much more. Though, the best way to make new friends in the game is by joining an active Pokemon Go Discord server. The good news is that Discord has tons of international and local Pokemon Go servers that you can join. Find out how to find the most appropriate Pokemon Go Discord servers in this guide.
 
 ![Pokemon Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Part 1: Where can I find the Best Pokemon Go Discord Servers?**
 
@@ -119,7 +111,7 @@ _Website:_ [_https://thesilphroad.com/map#2/_](https://thesilphroad.com/map#2/)
 ![The Silph Road Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 2. **Discord Servers**
@@ -142,6 +134,10 @@ _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/
 
 Just like DisBoard, you can also explore several other websites and Discord server directories to find appropriate Pokemon Go Discord servers. A lot of gamers also explore social networks like Reddit, Twitter, Facebook, Twitch, Instagram, etc. to find all kinds of Pokemon Discord servers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 2: How to Join a Pokemon Go Discord Server?**
 
 By exploring the above-listed options, you would be able to find all kinds of Pokemon Go Discord Servers. Though, once you have found a Discord Pokemon server, you need to obtain its invite link by clicking on the “Join” button. Afterward, you can follow these steps to join the Pokemon Go Discord server of your choice.
@@ -158,7 +154,15 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 3: Some Popular Pokemon Discord Servers to Join**
 
@@ -194,10 +198,6 @@ Pokesnipers is one of the oldest Discord servers for Pokemon Go players. It has 
 
 _Server link:_ [_https://discord.com/invite/T2MakRF_](https://discord.com/invite/T2MakRF)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Pro Tip: Spoof your iPhone Location to Play Pokemon Go Remotely
 
 From these Pokemon Go Discord servers, you can easily know the spawning or raid locations for the game. Later, you can use a tool like Dr.Fone – Virtual Location (iOS) to spoof the GPS of your iOS device. Just connect your iPhone to the computer and enter the target location’s address or its exact coordinates. You can also use it to simulate the movement of your device in a route realistically via a GPS joystick. The best part is that the application is super-easy to use and will not need jailbreak access on your phone.
@@ -205,6 +205,10 @@ From these Pokemon Go Discord servers, you can easily know the spawning or raid 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 ![click on menu](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -218,10 +222,6 @@ Pokémon go failed to detect location is an error that is frequently faced by th
 
 The two main and frequent errors that are related to the Pokémon are error 11 and error 12. These not only frustrate the users but also hamper the game experience. Failed to detect location Pokémon go is the result. This part of the article will make sure that you get all the information that is needed to overcome the issue. The GPS joystick failed to detect location error will also be overcome and you will also be able to guide others.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Causes of Error 11
 
 1. If the game failed to detect location Pokémon go fake GPS then the most common reason is the fact that the GPS has been disabled. The internet and GPS are the two important aspects of this game. If anyone is not available then it is a must that the game will not work at all.
@@ -233,6 +233,10 @@ The two main and frequent errors that are related to the Pokémon are error 11 a
 1. The Mock location on the Realme 12+ 5G device is enabled can lead to failed to detect location GPS joystick or error 12 on the Realme 12+ 5G device. It is therefore advised to make sure that the location in question is disabled to get the gaming experience back on track.
 2. The other and the most common reason for the error 12 is the fact that the GPS signals are not received by the Realme 12+ 5G device. It also leads to Pokémon failed to detect location error and will make sure that you get all the enjoyment for which the game has been downloaded.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: 3 solutions to fix Pokémon fails to detect the location
 
 ### Solution 1: Turn on GPS
@@ -243,13 +247,13 @@ This is the most common method that can be applied to make sure that the game wo
 
 ![Pokemon failed to detect location 1](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **ii.** Click on the location to turn it ON.
 
 ![Pokemon failed to detect location 2](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 2: Setting Permissions for the application
 
@@ -301,10 +305,6 @@ Click the get started icon once the iPhone has been connected to the system and 
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Locate the Realme 12+ 5G device**
 
 Click the center on a button to make sure that your location is detected by the program.
@@ -324,7 +324,7 @@ Click on move here to get to the location that has been selected.
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 6: Validation**
@@ -351,18 +351,19 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/he-ultimate-guide-for-effective-youtubers-game-sessions/"><u>[New] The Ultimate Guide for Effective YouTubers' Game Sessions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-crafting-the-perfect-introduction-15-viral-youtube-video-intros/"><u>[Updated] 2024 Approved Crafting the Perfect Introduction 15 Viral YouTube Video Intros</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-optimal-platforms-for-remote-team-engagement/"><u>[Updated] In 2024, Optimal Platforms for Remote Team Engagement</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-poco-x5-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Poco X5? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/in-2024-amazon-live-for-beginners-features-pro-tips-and-future-trends/"><u>In 2024, Amazon Live for Beginners Features, Pro Tips & Future Trends</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco C55? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Honor Magic Vs 2? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-samsung-galaxy-xcover-6-pro-tactical-edition-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Samsung Galaxy XCover 6 Pro Tactical Edition FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://howto.techidaily.com/infinix-note-30-vip-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Note 30 VIP Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/quick-fixes-overcoming-the-unavailable-itbm-driver-error/"><u>Quick Fixes: Overcoming the Unavailable ITBM Driver Error</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-invert-colors-in-digital-photos-for-2024/"><u>[New] How to Invert Colors in Digital Photos for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030305632-top3/"><u>最新の人気無料フォトムービー制作ツールTOP3を紹介します</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/how-to-save-and-convert-videos-into-mp4-or-avi-format-with-adobe-tv-downloads/"><u>How to Save and Convert Videos Into MP4 or AVI Format with Adobe TV Downloads</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-poco-x5-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-gopro-videos-the-ultimate-guide-for-2024/"><u>Mastering Gopro Videos The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/navigating-free-floating-vr-without-nausea/"><u>Navigating Free-Floating VR without Nausea</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/step-by-step-tutorial-recovering-your-computers-file-list-on-onedrive-easily/"><u>Step-by-Step Tutorial: Recovering Your Computer's File List on OneDrive Easily</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-latest-in-development-careers-most-demanded-programming-languages-and-predictions-for-upcoming-skills-powered-by-zdnet/"><u>The Latest in Development Careers: Most Demanded Programming Languages and Predictions for Upcoming Skills | Powered by ZDNET</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-c51-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme C51? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor X9b | Dr.fone</u></a></li>
 </ul></div>
 

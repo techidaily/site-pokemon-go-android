@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Honor X8b? | Dr.fone
-date: 2024-07-14T09:24:30.450Z
-updated: 2024-07-15T09:24:30.450Z
+date: 2025-01-17T19:48:05.635Z
+updated: 2025-01-23T23:15:39.210Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -22,6 +22,10 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
@@ -75,14 +79,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -94,6 +90,10 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -107,6 +107,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -119,13 +123,15 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -140,10 +146,6 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
-
-
-
-
 
 ## Here are Some of the Best Pokemon Discord Servers to Join On Honor X8b
 
@@ -179,9 +181,6 @@ DisBoard is another popular Discord server directory that you can consider explo
 
 _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/servers/tag/pokemon-go)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![DisBoard Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-4.jpg)
 
 4. **Other Places to find Discord Servers**
@@ -252,11 +251,13 @@ From these Pokemon Go Discord servers, you can easily know the spawning or raid 
 
 That’s a wrap, everyone! I’m sure that after reading this post, you would be able to search all kinds of Pokemon Discord servers. Apart from reliable Discord server directories, you can also browse various popular Pokemon Go Discord servers out there. Go ahead and search some other local and interesting Pokemon Discord servers on your own and use a tool like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS) to catch Pokemons remotely.
 
-
-
 ## How Do You Get Sun Stone Evolutions in Pokémon For Honor X8b?
 
 ![pokémon go sun stone](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Though you can certainly catch some powerful Pokémon in Pokémon Go just by playing the game, exploring the wilderness, and joining raids, it’s not enough. Evolving your Pokémon is how you advance through the game, level up, and become a better catcher.
 
@@ -264,17 +265,22 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 **Pokémon Go Sun Stone evolutions** can improve your entire in-game experience, so learn all about them below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1. What Are Sun Stones in Pokémon Go?
 
 ![sun stone and four pokémon](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-2.jpg)
 
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2. Pokémon Go Sun Stone Evolutions Explained
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
@@ -321,6 +327,10 @@ Pokémon Go will frequently have multiple special events happening every month. 
 
 You’ll be notified of any ongoing special events as soon as you start your game, so check your phone at least once daily. While partaking in a special event doesn’t guarantee you’ll get a Sun Stone, there’s always a possibility!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Field Research
 
 Throughout your game, Professor Willow will need your help to learn more about Pokémon, so he’ll send you on different research tasks. Of course, you’ll always be generously rewarded for your efforts.
@@ -351,6 +361,10 @@ Usually, it’s in your best interest to go to more popular areas with more Pok�
 
 Field research, special research, and spinning gyms and PokéStops are the only ways you could acquire the Sun Stone in Pokémon Go. However, that doesn’t mean you’ll need to grind day in and day out, trying to explore as much of your neighborhood as possible while playing. You can always make things a bit more efficient than that.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Complete Field Research Tasks Quickly
 
 Mention Dr. Fone Virtual Location and Add Steps.
@@ -363,8 +377,6 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
@@ -374,9 +386,6 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 4. On the map that shows up, click on **No Device**in the upper right-hand corner;
 5. You’ll see a list of all connected devices, select your phone;
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![choose the Honor X8b device you want to connect to dr.fone](https://images.wondershare.com/drfone/guide/vl-connect-android-1.png)
 
 6. On your phone, tap **Allow USB Debugging**;
@@ -394,14 +403,12 @@ Finally, to start getting Sun Stones and other rarer items more efficiently, you
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -415,9 +422,24 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-enhance-engagement-with-these-4-looping-video-techniques/"><u>[New] 2024 Approved Enhance Engagement with These 4 Looping Video Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-covertly-engage-with-fb-live-feeds-for-2024/"><u>[Updated] Covertly Engage with FB Live Feeds for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-streaming-facebook-made-easy-pcmaclaptop-tips-and-tricks/"><u>2024 Approved Streaming Facebook Made Easy PC/Mac/Laptop Tips and Tricks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/adjusting-function-keys-actions-on-windows-1011/"><u>Adjusting Function Keys' Actions on Windows 10/11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Infinix Hot 40i? | Dr.fone</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/gideon-v-wainwright-1963/"><u>Gideon V. Wainwright (1963)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-activate-stellar-data-recovery-for-iphone-11-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Activate Stellar Data Recovery for iPhone 11 | Stellar</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/prime-methods-for-turning-youtube-videos-into-mpegs-for-2024/"><u>Prime Methods for Turning YouTube Videos Into MPEGs for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/top-picks-premium-and-economical-bdr-players-for-pcmac/"><u>Top Picks Premium & Economical BDR Players for PC/Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme 12 5G | Dr.fone</u></a></li>
+</ul></div>
 

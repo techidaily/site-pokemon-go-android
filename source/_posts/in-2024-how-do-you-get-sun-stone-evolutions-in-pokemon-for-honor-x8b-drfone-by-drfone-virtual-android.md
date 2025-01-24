@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor X8b? | Dr.fone
-date: 2024-07-14T09:23:47.384Z
-updated: 2024-07-15T09:23:47.384Z
+date: 2025-01-19T02:45:55.098Z
+updated: 2025-01-24T02:41:32.830Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,11 +29,12 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2. Pokémon Go Sun Stone Evolutions Explained
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
@@ -47,6 +48,10 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
@@ -62,9 +67,6 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
@@ -82,6 +84,10 @@ Pokémon Go will frequently have multiple special events happening every month. 
 - Road to Sinnoh – February 19 to February 23.
 
 You’ll be notified of any ongoing special events as soon as you start your game, so check your phone at least once daily. While partaking in a special event doesn’t guarantee you’ll get a Sun Stone, there’s always a possibility!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Field Research
 
@@ -125,8 +131,6 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
@@ -156,8 +160,6 @@ Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on 
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
 
-
-
 ## 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor X8b
 
 “Player vs Player” or “PvP” leagues introduced three battle leagues with Pokémon GO trainers. The three leagues are commonly called the Great League, Ultra League, and Master League. During leagues, there is a certain limit of using the combat power (CP) of Pokémon. Each league requires Pokémon with different CP restrictions and strategies compared with others.
@@ -186,6 +188,10 @@ Start your Pokémon Go Battle by tapping the Poke Ball and Battle option. Afterw
 
 ![alolan sandshrew pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With 1462 CP, this Pokémon is a strong option for the Great League. It has Metal Claw and Blizzard as its best moves and a capacity of 8.74 damage. This Pokémon works better in snow and faints after receiving 132.7 damage when exposed to foggy weather.
 
 Metal Claw and Powder Snow are its fast moves, whereas Blizzard, Gyro Ball, and Night Slash are the super ones. Moreover, Alolan Sandshrew has a record of 125 attack, 129 defense, and 137 stamina scores. Some of its family members include Sandshrew, Sandslash, and Shadow Alolan Sandslash.
@@ -210,9 +216,6 @@ On the contrary, it has Dig, Poison Fang, Thunderbolt, and Sludge Bomb as charge
 
 ### 3\. Timburr
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![timburr pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-4.jpg)
 
 While carrying squared logs, Timburr is always ready for construction. It comes up with 1487 CP, suitable to participate in the Great League. This Pokémon belongs to the Unova region and performs superbly in Cloudy weather. Reflecting on its fast moves, Timburr has Low Kicks and Pounds in its fast attacks.
@@ -293,9 +296,17 @@ So far, it has scored 156 in attack, 240 in defense, and 155 in stamina categori
 | **Weaknesses** | Bug, Dark, Fire, Flying, Ghost, Rock |
 | **Resistance** | Fighting, Grass, Ground, Psychic |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Cramorant
 
 ![caramorant pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Cramorant Pokémon scored the highest at 2421 CP and counts in the Ultra League as the strongest Pokémon. The best moves it offers are Fly and Water Gun, with 12.94 damage per second. It works better in rainy and windy weather and faints in neutral weather after dealing with 298.9 damage.
 
@@ -309,6 +320,10 @@ Players can also consider its 173-score record in attack, 163 in defense, and 17
 ### 5\. Ribombee
 
 ![ribombee pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 It's a bee fly Pokemon considered strong and the **best PvP Pokémon GO Ultra league**. Ribombee has special moves such as Fairy Wind and Dazzling Gleam. It gets strong in rainy and cloudy weather and belongs to the Alola region.
 
@@ -364,9 +379,6 @@ Besides, there is a 20km buddy distance recorded so far with 337 attack, 196 def
 
 ### 4\. Lugia
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![lugia ultra pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-15.jpg)
 
 It is another strongest and most well-known Pokémon due to the fast and charged moves that are valuable for the master league. As far as it is concerned, it gained a maximum of 4186 CP at level 50 in Pokemon GO. It was basically found in the Johto region and is boosted by windy weather.
@@ -377,6 +389,10 @@ Reportedly, it shows 193 attack, 310 defense, and 235 stamina scores. Dragon Tai
 | --- | --- |
 | **Weaknesses** | Dark, Electric, Ghost, Ice, Rock |
 | **Resistance** | Fighting, Ground, Grass, Psychic |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Mega Salamence
 
@@ -391,16 +407,11 @@ Talking about other score rates, 310 attack, 251 defense, and 216 stamina scores
 | **Weaknesses** | Ice, Dragon, Fairy Rock |
 | **Resistance** | Bug, Ground, Grass, Fighting, Fire, Water |
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5. Unleash Your Potential in Pokémon GO PVP Leagues With the Best Location Spoofer
 
 For **Pokémon GO PVP** Leagues aspirants, location restrictions are significant barriers. Overcoming this obstacle is possible without changing physical location. [<u>Wondershare Dr.Fone - Virtual Location</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is an ultimate solution and is considered the game changer. It has the caliber to explore different in-game regions and spoof locations.
 
 This way, players can access the strongest Pokémon from any region and ensure a win-win streak in battle leagues. Players and trainers can now sit in their rooms and enjoy convenient import and export options. The virtual location changer of Wondershare Dr.Fone allows you to save and review various routes effortlessly.
-
-
 
 ### Incredible Features of Wondershare Dr.Fone-Virtual Location
 
@@ -452,13 +463,13 @@ If you want to move between multi-routes, activate the “Multi-Stop Route" feat
 
 To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To get ready for this, you need a strong Pokémon, and this article has enlisted the top 15 of them. Choosing the best **Pokemon GO PvP** isn't enough for smoother gaming; your location might impose restrictions. Thus, using Wondershare Dr.Fone - Virtual Location is a definitive solution.
 
-
-
-
-
 ## How and Where to Find a Shiny Stone Pokémon For Honor X8b?
 
 Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield. If you are a Pokémon player, you understand how great it is to capture a Shiny Stone. However, the Shiny Stone is a rare item, and you will have to put more work to grab one. In this article, we will to explain to you everything you ought to know about Shiny Stone Pokémon, including how to get them with less effort. Let’s get started.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1. Shiny Stone Pokémon
 
@@ -492,6 +503,10 @@ Togetic is a fairy and flying type of Pokémon that has ten hatch cycles. Its ab
 
 Finding a Shiny Stone in Pokémon Sword and Shield is challenging because it is a rare item. Nevertheless, some hacks and tricks can reduce your curve of finding a Shiny Stone, as explained below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Use the iOS spoofing tool-Dr. Fone Virtual Location
 
 Since the game of Pokémon is location-based, you can fake your GPS location by simply teleporting to an appropriate Shiny Stone location while you are seated at your home. This is achievable with the help of [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). The program is powerful, simple, and easy to use. You can teleport to whatever place you want, simulate movements along a route set by two or multiple points. To teleport to the location where it is easier to grab a Shiny Stone using Dr. Fone Virtual Location, follow the steps below.
@@ -520,7 +535,6 @@ Pgsharp i8s an Android application that enables users to be fake their GPS locat
 
 Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A good example of a drone is DJI PantomDrone. When this drone is integrated with some smart software, you can easily control a phone that is attached to the drone. This way, you can sit at home while visiting gyms and pokestops.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -533,9 +547,18 @@ Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A goo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-revealing-the-future-with-microsofts-hololens-analysis/"><u>2024 Approved Revealing the Future with Microsoft's HoloLens Analysis</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-unveiling-the-game-changer-samsung-ue590-4k-monitor/"><u>2024 Approved Unveiling the Game Changer - Samsung UE590 4K Monitor</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-the-dji-mini-3-pro-silent-flight-and-compact-design-with-built-in-power-bank-initial-reviews-and-insights-techsavvyzdnet/"><u>Exploring the DJI Mini 3 Pro: Silent Flight & Compact Design with Built-In Power Bank - Initial Reviews and Insights | TechSavvyZDNet</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/high-performance-screen-recorders-for-windows-users-for-2024/"><u>High-Performance Screen Recorders for Windows Users for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/from-youtube-to-dailymotion-with-ease-for-2024/"><u>Leap From YouTube to Dailymotion with Ease for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/top-group-video-chat-apps-you-should-know-for-video-conferences-and-meetings/"><u>Top Group Video Chat Apps You Should Know [For Video Conferences and Meetings]</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme 12 5G? | Dr.fone</u></a></li>
+</ul></div>
 

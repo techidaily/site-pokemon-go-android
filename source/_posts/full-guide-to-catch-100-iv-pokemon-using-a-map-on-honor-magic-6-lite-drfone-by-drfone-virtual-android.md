@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Honor Magic 6 Lite | Dr.fone
-date: 2024-07-14T09:18:25.297Z
-updated: 2024-07-15T09:18:25.297Z
+date: 2025-01-17T19:29:58.970Z
+updated: 2025-01-24T09:09:39.182Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -42,9 +42,6 @@ Keeping reading!
 
 Before you put effort into catching the Pokémon IV 100 map, you should have knowledge about which Pokémon has a stat of 100 IV. Following are the ways with which you can check the IVs of Pokémon in the Pokémon Go game.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2.1 Check IVs within the app
 
 You can check the true percentages of your characters’ IVs in the gaming app itself. Now, if you use the appraisal system of the app, your team leader will show the stats of each Pokémon and can give it a star rating as well.
@@ -55,15 +52,27 @@ Further, you can also click on the arrows on the left and right to see the stats
 
 ![know pokemon iv](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pokémon Go app has a search feature that you can use to know the exact IV of Pokémon. To do this, tap the search icon present at the top of your Pokémon menu. Now in the search bar, type the name of any Pokémon, say type “shiny”. This will show all the shiny mons with different star ratings.
 
 Now check the Pokémon by their star rating, as this is the easy way to know about the IVs of characters. Type “4\*” in the search bar, and you will see characters with a 4-star rating. Mostly a star Pokémon are a 100 IV Pokémon map.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to Catch 100 IV Pokémon in the Game
 
 Since 100 IV Pokémon are so sought-after, catching them can be a tough job. Apart from using a **Pokémon Go 100 IV map**, here are other tips that can increase your chances to catch the perfect IVs Pokémon to some extent. A Weather Boosted wild catch can increase your odds to a 1 in 1,725 chance. But, this is still not so easy for a player.
 
 ![catch 100 iv pokemon](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - If you are fortunate, then you can end up [catching a “lucky” Pokémon](https://drfone.wondershare.com/virtual-location/pokemon-go-spoofing-ios.html). Though, the chances of a lucky Pokémon having 100 IV are 1 in 64 presently.
 - Although you get only one chance in 4,096 chances to catch the high-rank character in Pokemon Go and the probability of finding perfect IVs is 0.0244% from a wild catch, you can do some research to improve your chances.
@@ -121,19 +130,15 @@ This **Pokémon Go 100 IV map** is available for free for Android users and can 
 
 **Download link:** [https://play.google.com/store/apps/details?id=com.herreralemus.iv100.client&hl=en\_IN](https://play.google.com/store/apps/details?id=com.herreralemus.iv100.client&hl=en_IN)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Poke Radar for Android
 
 If you want to track a specific Pokémon, then Poke Radar is the best Pokémon Go map 100 IV. Poke Radar offers a real-time Pokémon location by placing cute characters on a map that helps you to find the exact location of your desired Pokémon.
 
 ![poke radar for android](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This map also has a helpful despawn counter, which tells the players about the disappearing time of Pokémon. The rare Pokémon often has a short time the spawn.
 
@@ -144,8 +149,6 @@ _You may be interested in: [8 Best Alternatives of PokeCrew: Find Pokemons on an
 ## Part 5: An Expert Tip to Catch 100 IV Pokémon Sitting at Home?
 
 Using a 100 IV Pokémon Go map, you can easily know their spawning locations and whereabouts. Since it is not possible to physically visit these locations to catch Pokémon, you can spoof your iPhone location instead. To do that, just take the assistance of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With just a few clicks, it will let you spoof your iPhone location without jailbreaking or undergoing any technical hassle.
-
-
 
 ### Dr.Fone - Virtual Location
 
@@ -171,9 +174,6 @@ After connecting your iPhone to the application, go to its Teleport mode and ent
 
 If you wish to evolve your Pokémon or simulate your movement, then use the one-stop or multi-stop mode of the application. You can drop different stops in a route, enter the number of times you want to cover it, and can even specify your preferred speed. The application also has a GPS joystick that would further help you simulate your movement realistically.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 15](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/r2GiOQxwfQc" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
@@ -182,9 +182,9 @@ If you wish to evolve your Pokémon or simulate your movement, then use the one-
 
 That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps that actually work, you can easily catch these powerful Pokémon. Though, after noting their coordinates from a Pokémon IV 100 map, you would need to use a location spoofer app. I would recommend [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) since it is pretty easy to use and will not need any jailbreak access as well. You can spoof your iPhone location to anywhere you want and also just simulate your movements realistically.
 
-
-
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Legendaries Are In Pokemon Platinum On Honor Magic 6 Lite?
 
@@ -270,10 +270,11 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 **Step 1:** Load the app on your iOS device. For this purpose, you have to go to Dr.fone official website. Next, download and install the app on your smartphone. Next, connect your iOS device with your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
@@ -285,9 +286,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
@@ -295,8 +293,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -311,8 +307,6 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
-
-
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Honor Magic 6 Lite?
 
@@ -345,6 +339,10 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
@@ -386,6 +384,10 @@ Among the different types of research the professor sends you is field research.
 
 As you’re completing your field research tasks, you can collect your rewards, earn stamps, and unlock breakthroughs. Hopefully, one of the rewards you receive will include the Sun Stone, allowing you to evolve some of your Pokémon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Special Research
 
 With field research, you have some flexibility. You can visit PokéStops when you’re up for them, and you can even discard some tasks if they’re too difficult for you. With special research, you don’t have all that much flexibility.
@@ -420,13 +422,15 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
 
 ![get started with wondershare dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4. On the map that shows up, click on **No Device**in the upper right-hand corner;
 5. You’ll see a list of all connected devices, select your phone;
@@ -447,12 +451,13 @@ Finally, to start getting Sun Stones and other rarer items more efficiently, you
 
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -466,9 +471,26 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-az-video-logger-full-application-scrutiny-for-2024/"><u>[New] AZ Video Logger - Full Application Scrutiny for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sleek-60-second-fades/"><u>[New] Sleek 60-Second Fades</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-full-review-of-lgs-high-definition-monitoring-experience-for-2024/"><u>[New] The Full Review of LG's High Definition Monitoring Experience for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transferring-media-pc-files-to-your-ios-device/"><u>[New] Transferring Media PC Files To Your iOS Device</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-instant-screen-capture-pro-chrome/"><u>[Updated] In 2024, Instant Screen Capture Pro (Chrome)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-strategies-for-downloading-twitter-video-content-to-mp3/"><u>2024 Approved Strategies for Downloading Twitter Video Content to MP3</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco X6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-nailing-the-perfect-aspect-ratio-on-tweets/"><u>In 2024, Nailing the Perfect Aspect Ratio on Tweets</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-narzo-60-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme Narzo 60 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-hp-officejet-4500-driver-software-free-download-2024/"><u>Latest HP OfficeJet 4500 Driver Software - Free Download 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-sneaky-onlookers-on-facebook-platform/"><u>Spotting Sneaky Onlookers on Facebook Platform</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-lava-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Lava IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme GT 3? | Dr.fone</u></a></li>
+</ul></div>
 

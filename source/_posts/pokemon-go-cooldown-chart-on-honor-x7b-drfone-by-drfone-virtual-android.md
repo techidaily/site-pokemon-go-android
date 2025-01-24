@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor X7b | Dr.fone
-date: 2024-07-14T09:20:46.390Z
-updated: 2024-07-15T09:20:46.390Z
+date: 2025-01-22T10:50:59.503Z
+updated: 2025-01-23T22:06:53.543Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -50,6 +50,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -122,15 +126,27 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
@@ -148,13 +164,13 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
 
 ## Hacks to do pokemon go trainer battles For Honor X7b
 
@@ -162,6 +178,9 @@ With the launch of the Pokémon Go battle league, the trainer battles are seen a
 
 ![Pokemon go hacks 1](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What is the Point of Trainer Battles in Pokémon Go?
 
@@ -205,6 +224,10 @@ You need to make sure that the program has been installed and launched to begin 
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Get Started**
 
 You need to make sure that the virtual location is clicked from all options and the iPhone is connected. Click get started to begin.
@@ -215,9 +238,6 @@ You need to make sure that the virtual location is clicked from all options and 
 
 In the next window click center on to get the accurate location.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 **Step 4: Teleport**
@@ -236,9 +256,6 @@ The system understands the desired place and then you need to click to move here
 
 The location has been fixed to the desired place. Your iPhone will also show the location that you have selected. This completes the process in full.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![virtual location 6](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 **Features of the Program**
@@ -253,11 +270,6 @@ The location has been fixed to the desired place. Your iPhone will also show the
 
 Dr. Fone is perhaps the best and the most used program for the Pokémon trainer battle. There are no doubt other methods to charge up your Pokémon as well as the CP but this program is the best of all. With the Dr. Fone location changer, you can summon nearby Pokémon for aid while in battle and this increases the chances of your victory. As Pokémon is a location-based game so the prowess of Dr. Fone - location changer even increases. Get this program now to be at the top of your game and beat your competitors.
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do You Get Sun Stone Evolutions in Pokémon For Honor X7b?
 
 ![pokémon go sun stone](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions.jpg)
@@ -278,6 +290,10 @@ The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glow
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
 Depending on the specific Pokémon you want to evolve, you might need additional items or even need to perform a particular task. Some Pokémon will need to be walked as your Buddy Pokémon before they can evolve. Others can be evolved through trading them. Others can only evolve with the help of evolution items like the Sun Stone.
@@ -287,8 +303,9 @@ Pokémon Sun Stone evolutions will require you to collect the Sun Stone and a ce
 You can always check out how to evolve your Pokémon in your Pokédex.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
@@ -367,8 +384,6 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
@@ -388,21 +403,19 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Pay Attention to Community Days and Special Events
 
 Finally, to start getting Sun Stones and other rarer items more efficiently, you’ll always want to pay close attention to community days and special events. Pokémon Go is a very active game with frequent high-rewarding events that could happen at any time. Since these events are time-limited, you’ll always want to know precisely when they start and end.
 
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -416,9 +429,24 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-effortless-internal-sound-recording-in-android/"><u>[New] In 2024, Effortless Internal Sound Recording in Android</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-elevate-your-cycling-top-vr-bike-games/"><u>[New] In 2024, Elevate Your Cycling TOP VR Bike Games</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-your-step-by-step-guide-to-successful-lol-streaming-for-2024/"><u>[New] Your Step-by-Step Guide to Successful LOL Streaming for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-transforming-horizontal-footage-into-vertical-video-gold-on-igtv/"><u>[Updated] 2024 Approved Transforming Horizontal Footage Into Vertical Video Gold on IGTV</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-metaverse-or-omniverse-unpacking-the-digital-spheres-for-2024/"><u>[Updated] Metaverse or Omniverse? Unpacking the Digital Spheres for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-tecno-spark-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/high-refresh-low-price-innocn-39g1r/"><u>High Refresh, Low Price: InnoCN 39G1R</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-instagram-enhancement-picture-posting-guide/"><u>In 2024, Instagram Enhancement Picture Posting Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Tecno Spark 20? | Dr.fone</u></a></li>
+</ul></div>
 

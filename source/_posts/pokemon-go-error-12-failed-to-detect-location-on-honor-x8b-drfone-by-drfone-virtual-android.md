@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Honor X8b? | Dr.fone
-date: 2024-07-14T09:23:07.433Z
-updated: 2024-07-15T09:23:07.433Z
+date: 2025-01-20T22:38:15.327Z
+updated: 2025-01-24T03:06:06.353Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -18,7 +18,6 @@ thumbnail: https://thmb.techidaily.com/36cb4ddf3fc78c71836e11f4a803426f35040ec4e
 Pokemon Go is a popular game that has taken the world by storm. It is an augmented reality game that allows players to catch Pokemon in the real world using their smartphones. However, many players have reported encountering the "Failed to detect location (12)" error while playing the game. This error can be frustrating as it prevents players from playing the game properly. In this article, we will discuss what causes the "Failed to detect location (12)" error in Pokemon Go and how you can fix it on your Honor X8b.
 
 Pokémon Go has been on the nerves of its players and this is all because of the AR notion that it presents. The failed to detect location 12 is one of the most common errors that are faced by the players while playing this game. You might not believe but the GPS signals and the location settings on iPhone or Android are the two main reasons for this error. It can be resolved with ease and this article has been written to get the work done with ease. Applying the methods explained will ensure that you get the best results overall.
-
 
 ## Part 1: Why is Location Important in Pokémon Go?
 
@@ -46,9 +45,6 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 **Step 1.** Go to the developer options of your device. To get to the developer options simply head over to the settings > About Phone > Software Info > Build number and tap it 7 times to enable the mock locations.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![pokemon error 12 1](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_1.jpg)
 
 **Step 2.** Install the Fake GPS that is a free application and can easily be found on the Play Store.
@@ -58,6 +54,10 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 **Step 3.** Launch the application and you can easily enjoy Pokémon Go without any hassle and trouble and resolve the Pokémon go failed to detect location 12 fake GPS error.
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Location Activation
 
@@ -76,8 +76,9 @@ This is another important and easy way to make sure that the Pokémon failed to 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 3: Reboot the Honor X8b device
 
 This might seems weird but this trick has been working to quiet some time now and has been proven to eliminate the failed location 12 Pokémon Go issue. There is a possibility that the server location is not synced with the Honor X8b device. Restarting the Honor X8b device will make sure that both the locations are sync and the problem is resolved with ease.
@@ -91,8 +92,6 @@ Just long-press the power button and choose the reboot option from the menu that
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
-
-
 
 ### The Process
 
@@ -120,6 +119,10 @@ On the upper right corner click the icon on the third to begin teleportation or 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Move to the teleported location**
 
 Click on move here and the system will move you to the location that has been entered.
@@ -132,21 +135,18 @@ The location will be locked by the program and your iPhone will also show the sa
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the state-of-the-art program to overcome Pokémon go unable to detect location 12 on iOS devices. It has an intuitive interface and it also allows the users to overcome the issues that traditional spoofing programs present. It is being updated constantly which also means that you will be able to get the best results. There is no program on the internet that can resolve the error that failed to detect location 12 in Pokémon go as easily as this one does.
-
-
-
-
 
 ## Which Pokémon can Evolve with a Moon Stone For Honor X8b?
 
 Evolution items play a significant role in evolving certain species in the Pokémon game. Moon Stone is one of these peculiar items that are worth adding to your Pokedex. However, getting Moon Stone Pokémon is a tough assignment and you have to pull your best bells and whistles. However, there are several hacks and tricks that can reduce your hunting pain. In this article, we shall take you through a complete guide on Moon Stone Pokémon and evolutions.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Part 1. Moon Stone Pokémon
 
 ### What is Moon Stone Pokémon?
@@ -157,9 +157,6 @@ Moon Stone is an evolution stone introduced in generation I. This peculiar stone
 
 The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to Lake of Outrage in the Wild area. You will see a body of water on your left and a watt trader standing near it. To cross this water body, you will have to unlock the Rotom Bike from Route 9. When you manage this, check under the eight stones and you might be lucky that one of them might yield a Moon Stone. Also, you can navigate to the Dusty Bowl in the Wild Area. Here, you will find barren stones between a grassy rock and wheat field.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Pokémon that Evolve with a Moon Stone
 
 Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
@@ -175,6 +172,10 @@ Nidorino is a male counterpart of Nidorina. This poison-type Pokémon debuted in
 ### 3\. Clefairy
 
 This is a fairy-type Pokémon that was introduced in Generation I. It is a small, round, and star-shaped Pokémon whose abilities include magic guard and cute charm. It is timid and rarely feature near humans. Clefairy evolves from Cleffa when it gets leveled up with high friendship. With the help of Moon Stone, Clefairy evolves into Clefable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Jigglypuff
 
@@ -192,9 +193,6 @@ Munna is a psychic-type Pokémon that was introduced in Generation V. It is a sm
 
 As you have seen above, getting a Moon Stone is not an easy ride. It involves lots of trials and there is no guarantee to get it. But what tricks and hacks can you incorporate to make your hunt seamless? The following are some of the plausible tricks that you can use to easily grab a Moon Stone and add it to your Pokedex.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Use Dr. Fone Virtual iOS Location
 
 It goes without question that Dr. Fone Virtual Location is the best location spoofer tool. Remember Pokémon game is location-based and if you can play around with your location then you are at an upper hand of grabbing a rare Pokémon or an evolution item like Moon Stone. [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) makes it seamless to teleport to any location across the globe while you are seated comfortably at home. Besides, you can simulate movements between two or more points and make GPS control more flexible with the help of a joystick.
@@ -204,6 +202,10 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 **Step 1.** After installing Dr. Fone Virtual Location, launch it, and select "Virtual Location." Now connect your iPhone to the computer.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2.** Click the "Get Started" on the subsequent page to access the teleport options.
 
@@ -242,6 +244,10 @@ Following are the additional evolution items observed in Pokémon Go:
 
 ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 
 The pokemon go dragon scale is one of the new evolution objects that can be employed in association with Pokemon Candy to evolve some of the generation 1 Pokemon to new generation 2 evolutions. The dragon scale is extremely strong and rigid. We can only make use of our Dragon Scale on a specific Pokemon. Dragon scale pokemon go evolutions contain the alteration of Seadra into Kingdra by combining the dragon scale along with 100 Horsea candies - making Kingdra a sturdy pocket monster ideal for raids and taking charge over the gyms.
@@ -249,6 +255,10 @@ The pokemon go dragon scale is one of the new evolution objects that can be empl
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
 
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2：Fast way to get the exclusive Pokémon?
 
@@ -263,6 +273,10 @@ Pokemon Go can be played without requiring movement, using Dr. Fone's toolkit. T
 You can click the ‘Get Started’ button to initiate the action as soon as your phone gets detected.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Mirroring Motion amid steps:**
 
@@ -288,6 +302,10 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
@@ -297,7 +315,6 @@ You can get your hands on a dragon scale by spinning a specific Pokestop seven d
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -311,9 +328,21 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-a-step-by-step-premiere-pro-for-softening-soundtracks/"><u>[New] 2024 Approved A Step-by-Step Premiere Pro for Softening Soundtracks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-everyday-epics-in-a-lens-tips-to-avoid-common-mistakes/"><u>[New] In 2024, Everyday Epics in a Lens Tips to Avoid Common Mistakes</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-the-ultimate-guide-to-desktop-based-tiktok-videos/"><u>[Updated] 2024 Approved The Ultimate Guide to Desktop-Based TikTok Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unmatched-setups-top-quality-4k-shoulder-mounts-guide/"><u>[Updated] Unmatched Setups Top-Quality 4K Shoulder Mounts Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://win-info.techidaily.com/celebrate-wayday-2022-with-savings-shop-our-top-pick-in-standing-desks-for-just-329-at-zdnet/"><u>Celebrate WayDay 2022 with Savings: Shop Our Top Pick in Standing Desks for Just $329 at ZDNet!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-productivity-with-the-fujitsu-scansnap-ix1400-a-must-have-for-home-and-smb-settings/"><u>Enhancing Productivity with the Fujitsu ScanSnap iX1400 - A Must-Have for Home and SMB Settings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/quick-conversion-tips-switch-your-media-from-mp4-to-xvid-both-online-and-off-line/"><u>Quick Conversion Tips: Switch Your Media From MP4 to XviD Both Online and Off-Line</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor 100 Pro | Dr.fone</u></a></li>
+</ul></div>
 

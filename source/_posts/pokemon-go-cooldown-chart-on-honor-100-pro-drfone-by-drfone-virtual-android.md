@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor 100 Pro | Dr.fone
-date: 2024-07-14T09:15:59.243Z
-updated: 2024-07-15T09:15:59.243Z
+date: 2025-01-21T21:43:24.788Z
+updated: 2025-01-23T21:33:23.083Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -19,9 +19,6 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -33,6 +30,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -71,6 +72,10 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Actions that DO NOT trigger cooldown?
 
 On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
@@ -100,9 +105,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -119,6 +121,10 @@ It is a very simple-to-use application and provides robust results if you follow
 - Always log off from Pokémon before teleporting so the game does not detect your actions. For logging out, go to settings in your game by clicking the Pokeball in the center of the screen. Scroll down to locate and click the logout button.
 
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
 
@@ -138,6 +144,10 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -154,13 +164,13 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Where Is the Best Place to Catch Dratini On Honor 100 Pro
 
@@ -169,6 +179,10 @@ Dratini is a rare Pokemon that can be found in the wild. It is a Dragon-type Pok
 Dratini is one of the Pokémon creatures that resemble a snake. It has an elongated blue body with a blue white underside. It carries three-pronged fins on each side of its head which are white in color. Dratini also has a white bump on the forehead.
 
 Dratini has an energy level that is constantly increasing, which makes it grow and can reach a length of more than 6 feet. It sheds its skin every time it has to grow, and usually hide behind a waterfall when shedding. The colony of Dratini lives underwater, living at the bottom feeding on food that falls from the upper levels. Outrage is the signature move for this Pokémon creature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What’s the evolution of Dratini?
 
@@ -231,6 +245,10 @@ Next, click on “Get Started”; you will now be able to start the spoofing pro
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
@@ -247,20 +265,19 @@ You may now camp and keep hitting the Dratini nest so you can farm as many as po
 
 Camping and looking for other Pokémon in the area will help you cool down and therefore avoid being banned from the game for spoofing your iOS device.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-
 
 ## In conclusion
 
@@ -268,9 +285,9 @@ Dratini is one of the most friendly but rare Pokémon to get. It can evolve from
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
 
-
-
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Honor 100 Pro
 
@@ -324,9 +341,6 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
@@ -351,15 +365,15 @@ Next, import the shared gpx file into the app. You can download the gpx file fro
 
 You can also add your favorite iSpoofer gpx routes. To add any spot into your favorites, check for the five-star icon and click to add the route to favorites. You should see ‘Collection successfully’ after adding your favorites. This gpx route creator makes it easy to walk along your favorite routes. Click the ‘Move’ button and reach any place with a click of a button.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Enter address and click Go](https://images.wondershare.com/drfone/guide/search-favorites.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The Bottom Line**
 
 Being a first timer, you may find it very complicated to fake your gps location. But Pokemon map creator makes it easy. Dr. Fone virtual location works seamlessly with your iOS device to take you virtually to any place in the world, from the comfort of your living room.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -373,9 +387,19 @@ Being a first timer, you may find it very complicated to fake your gps location.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-x6-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-tecno-spark-go-2023-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-orbi-tri-band-wi-fi-6-setup-for-ultimate-whole-house-coverage-review/"><u>In-Depth Analysis of the Asus Orbi Tri-Band Wi-Fi 6 Setup for Ultimate Whole-House Coverage Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/single-ai-driven-gpus-power-drain-equals-to-annual-electricity-usage-of-13-million-households/"><u>Single AI-Driven GPU's Power Drain: Equals to Annual Electricity Usage of 1.3 Million Households</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-complete-process-of-converting-gifs-into-sticker-form-for-multi-platform-use/"><u>The Complete Process of Converting GIFs Into Sticker Form for Multi-Platform Use</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-7-must-see-sites-for-latest-film-previews/"><u>Top 7 Must-See Sites for Latest Film Previews</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-free-online-animation-creators-of-2024-ranking-the-best/"><u>Top Free Online Animation Creators of 2024: Ranking the Best</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-xiaomi-redmi-k70e-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Xiaomi Redmi K70E IMEI without Root A Comprehensive Guide</u></a></li>
+</ul></div>
 
