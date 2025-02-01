@@ -1,7 +1,7 @@
 ---
 title: In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor X50i+ | Dr.fone
-date: 2024-07-14T09:12:23.934Z
-updated: 2024-07-15T09:12:23.934Z
+date: 2025-01-28T19:44:48.278Z
+updated: 2025-01-31T16:01:24.065Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,6 +27,10 @@ To make it even better, we are hosting a special event to boost your Pokémon Da
 
 Play our special connect-the-dots game within one minute of the designated time, and you could win a Dr. Fone - Virtual Location 33% OFF coupon! Dr.Fone - Virtual Location can go beyond your virtual location and catch rare Pokémon without stepping outside. Participate in our special event and catch Pokémons from all over the world.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Event Time
 
 January 22, 2024, to March 4, 2024.
@@ -41,9 +45,17 @@ Winners can enjoy a 33% off coupon on Dr.Fone - Virtual Location to spoof your P
 
 [![Exclusive Coupon](https://images.wondershare.com/drfone/images2024/pokemon/pokemon-day.png)](https://drfone.wondershare.com/virtual-location/national-pokemon-day.html#pokeman2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Unlock Exclusive Rewards with Our Connect-the-Dots Game
 
 ![game](https://images.wondershare.com/drfone/images2024/pokemon/game-bg.png) ![play](https://images.wondershare.com/drfone/images2024/pokemon/play-btn.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Coupon Usage Recommendations
 
@@ -117,9 +129,6 @@ Is it possible to play Pokémon GO without moving? Yes, it's possible to play Po
 
 First thing first, download Dr.Fone -  Virtual Location. After downloading and installing it, you can use a USB cable to get your phone and computer connected. Next, select the “Virtual Location” tool and click the “Get Started” button.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![get started](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 **Step 2. Connect your device.**
@@ -132,9 +141,6 @@ Now, a map will show up on your screen. Here, click on the “No Device” butto
 
 Once your phone is connected, select “Teleport Mode” from the toolbar near the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![select the teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 **Step 4. Choose the location.**
@@ -155,6 +161,10 @@ Now, your location has changed successfully, and you can see it on your screen. 
 
 ![location changed successfully](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Play Pokémon Go with a Joystick for iOS trainers
 
 Get better control over your [GPS movement on your iPhone](https://drfone.wondershare.com/virtual-location/fake-gps-location-ios.html) by using the joystick feature of Dr.Fone - Virtual Location. This feature can be easily accessed on the main screen of the map. You can either access it from the toolbar located near the top right corner or the lower left side of the screen. 360-degree directions are available. You can move forward or backward by clicking the Up or Down arrows. Keyboard shortcuts W, A, S, and D can be used to control GPS movements, as can Up, Down, Left, and Right keys.
@@ -169,12 +179,20 @@ Dr.Fone - Virtual Location offers two ways to use the joystick for seamless GPS 
 - Step 2. Now, use the arrows around the button to change your direction or the spot around the circle.
 - Step 3. You can also use keyboard keys like A and D, and left and right keys.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Manual GPS movement
 
 - Step 1. For this method, constantly click on the joystick arrows to move on the map manually.
 - Step 2. Alternatively, you can use the W, S, Up, and Down keys on keyboards to change directions manually.
 
 So, are you ready to step into the new worlds and explore the unknown with Pokémon Go? The world awaits you, trainer – Go catch ’em all!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Is it safe to use Dr.Fone - Virtual Location in Pokémon GO?
 
@@ -188,9 +206,6 @@ If you are a huge Pokemon fan and loves to play pokemon go, you will definitely 
 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What is the meltan box and how does it work?
 
 Meltan, the mythical Pokemon is also described as a Hex Nut Pokemon. A major part of its body is built from liquid metal and its shape is fluid. It generates electricity using the metal that it absorbs from the outside sources. The pokemon uses its arms and legs to corrode metal and absorb it into its own body.
@@ -237,6 +252,10 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 ![pokemon switch pair3](https://images.wondershare.com/drfone/2020/pokemon-switch-pair3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 11:** Once the pairing is done, you can now transfer the Pokemon from the Pokemon Go smoothly. Let’s get to know that too.
 
 After the pairing is complete, you are now ready to send your Pokemon to the Go complex Park in Pokemon Let’s Go. This can be done by following the process:
@@ -275,6 +294,10 @@ With the help of pairing and connecting your Pokemon Go to the Nintendo Switch, 
 
 If you cannot establish a pair with your Nintendo Switch, you can always look for your friends. In case you don’t have a Nintendo Switch with a copy of Let’s Go Pikachu, do not worry. You can still obtain a shiny meltan pokemon go mystery box. You can send Pokemon to your friend’s Nintendo switch and bang… you get the chance to catch the mythical pokemon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip No.3: Use Dr. Fone Virtual Location Service
 
 You can catch not just one but several Meltans through the mystery box. All you need to do is move around in your area and discover the meltan available near you. But not every time, you can get this lucky to obtain the opportunity to maximize your mystery box. If this is what you are thinking, then we are happy to say that you are wrong!
@@ -283,23 +306,21 @@ With the help of [Dr.Fone- Virtual Location](https://tools.techidaily.com/wonder
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
-
-
 It is well-known that Pokemon Go is a location-based game that offers several services only according to your location. You might find it difficult to maximize your pokemon go meltan box without moving or looking for services out of your region. Dr.Fone Virtual Location is here to help. With this service provider's help, you can change your location and enjoy the unlimited fun that you had always desired. It will also be a great rescue for you if you cannot catch a meltan in your region. Try it and get the Hex Nut Pokemon.
 
 ## Conclusion
 
 Resolving your query about getting meltan box and offering you a detailed guide and assistance, we aim to help you continue your fun-experience with the game. Play, look for and find all the meltan! You can then evolve your meltan into a formidable Melmetal. You will need around 400 meltan candy to evolve into Melmetal, so be sure to catch as many as possible and enjoy!
 
-
-
-
-
 ## How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X50i+?
 
 Pokémon Go is a location-based AR game and is very popular in the world of gaming. Catching little cuddles and fighting to catch more-powerful Pokémon is really fun. In addition to fun, this game also increases your knowledge about the surrounding area and the diversity around your location.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For example, if you want to catch the special characters or characters of another city, you have to that place. This is the only drawback for players. However, with location spoofing apps, you can catch characters from any location without actually moving there.
 
@@ -350,6 +371,10 @@ The features and functions of PGSharp make it a safe spoofing app for Pokémon G
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now since you have PGSharp installed, you need to enable developer options on Android. For this, go to Settings > About Phone>build number.
 
 Tap seven times on the build number to enable the developer options. Now, in the developer option, enable “Allow mock locations” and under it select PGSharp app as preferred mock location app.
@@ -374,14 +399,8 @@ Dr.fone for iPhone is a safe and secure spoofing app that helps you catch Pokém
 
 Plus, with this, you also do not need to jailbreak your device. It doesn’t breach your data and save you from the Pokémon ban too.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Spoof Your Location to a Certain Place
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 With the Dr.Fone virtual location iOS, you can set your location to the desired place. You only need to choose the location on the map interface and click on the move here button. It is very easy-to-use app that a novice can also operate it easily.
@@ -398,14 +417,9 @@ There you will get a walking speed and vehicle speed option that you can customi
 
 To use this app, you only need to install and launch it on your device from the official site. It is easy to install and easy to use, as well.
 
-
-
 ## Conclusion
 
 Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. If you own iPhone, you can use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app to spoof GPS. Both these spoofing apps are best, safe, and secure to use on Android and iOS. For PGSharp, you can install it from Google Play Store, and for Dr.Fone, you need to visit the official site to install it on your system.
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -419,9 +433,22 @@ Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-the-art-of-intense-focus-5-techniques-for-zooming-in-minecraft-for-2024/"><u>[Updated] The Art of Intense Focus 5 Techniques for Zooming in Minecraft for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-essential-guide-for-beginners-in-final-cut-pro/"><u>2024 Approved The Ultimate Essential Guide for Beginners in Final Cut Pro</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/a-critical-review-of-the-newest-vegaspro/"><u>A Critical Review of the Newest VegasPro</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/effortless-and-rapid-hd4k-video-downloads-from-dailymotion-get-them-free-today/"><u>Effortless & Rapid HD/4K Video Downloads From DailyMotion: Get Them Free Today!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-zte-axon-40-lite-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your ZTE Axon 40 Lite</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme V30T? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/journey-through-retro-gaming-top-ranked-ps3-emulators-for-your-pc/"><u>Journey Through Retro Gaming: Top-Ranked PS3 Emulators for Your PC</u></a></li>
+<li><a href="https://driver-download.techidaily.com/logitech-g35-driver-setup-compatible-with-windows-vista-7-8-and-10-download-now/"><u>Logitech G35 Driver Setup: Compatible with Windows Vista, 7, 8 & 10 - Download Now</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-video-resume-creators-free-templates-and-reviews/"><u>Top Video Resume Creators Free Templates and Reviews</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Poco X5 Pro | Dr.fone</u></a></li>
+</ul></div>
 
