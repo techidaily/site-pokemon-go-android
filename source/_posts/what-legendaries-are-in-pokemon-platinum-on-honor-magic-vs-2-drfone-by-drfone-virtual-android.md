@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Honor Magic Vs 2? | Dr.fone
-date: 2024-07-14T09:07:16.108Z
-updated: 2024-07-15T09:07:16.108Z
+date: 2025-02-12T18:36:56.110Z
+updated: 2025-02-14T19:13:00.544Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -73,11 +73,12 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -120,8 +121,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
-
-
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -135,8 +134,6 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
-
-
 
 ## How can I get more stardust in pokemon go On Honor Magic Vs 2?
 
@@ -182,10 +179,11 @@ Opening gifts is one of the main components of the Pokemon Go experience. You’
 
 The maximum Stardust you can get in one gift is 300, which may not seem like a lot. However, if you open your gifts regularly, you’ll have the desired Stardust amount in no time. You should also combine this method with others mentioned in this article for the best experience.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![opening gifts in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Hatching Pokemon
 
@@ -211,9 +209,6 @@ Another thing you should look out for is specific Pokemon characters – some ma
 
 If you stay consistent and catch at least one Pokemon daily, you can get up to 9,000 Stardust points on the seventh day. Moreover, the first catch of the day will bring you an additional 1,800 points.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![catch a pokemon](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-6.jpg)
 
 ### By Claiming Raid Rewards
@@ -224,9 +219,6 @@ Once you and your team defeat the Boss, you can collect the prizes. You’ll win
 
 If you defeat the boss, you’ll also get a chance to catch the Pokemon, which can bring you even more Stardust points!
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
 
 ### By Getting Rocket Rewards
@@ -246,6 +238,14 @@ The amount of points you will win depends on the task's difficulty and duration.
 For instance, if you’re on level 45, you can head to the Go Battle League 45 times to earn 4,500 Stardust points.
 
 ![pokemon go research tasks](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Visiting the Gym
 
@@ -267,6 +267,10 @@ Virtual Location will allow you to head to any city in the world, collect the ra
 
 ![choose the route mode](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2. Set the desired parameters.
 
 ![choose parameters](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -277,10 +281,11 @@ Virtual Location will allow you to head to any city in the world, collect the ra
 
 4. You can also click on the Joystick feature to control your movements.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![joystick mode](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you turn the virtual location on, you’ll become an unbeatable Pokemon Go player.
 
@@ -297,6 +302,10 @@ _**“Is iSpoofer for Pokemon Go not working anymore? Can someone tell me how to
 If you have been using iSpoofer for a while to change your iPhone location, you can encounter a similar situation. Since iSpoofer is no longer available, users are actively looking for its alternative. In this post, I will let you know the iSpoofer use and why we can’t take its assistance to change the Pokemon Go location anymore. I will also make you familiar with the best iSpoofer alternative for iPhone and Android.
 
 ![ispoofer shutdown banner](https://drfone.wondershare.com/2020/ispoofer-shutdown-banner.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Why did iSpoofer shutdown?
 
@@ -317,6 +326,10 @@ Most likely, the chances of iSpoofer working again are pretty bleak. This is bec
 
 ![ispoofer not working](https://drfone.wondershare.com/2020/ispoofer-not-working.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: The Best iSpoofer Alternative to Change your iPhone Location
 
 If you are looking for an iSpoofer alternative to spoof your phone location, consider picking [Dr.Fone – Virtual Location (iOS & Android)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). The application is extremely easy to use and can instantly change your device location. Here are some of the reasons why Dr.Fone – Virtual Location (iOS & Android) is the best iSpoofer alternative:
@@ -328,8 +341,6 @@ If you are looking for an iSpoofer alternative to spoof your phone location, con
 - The interface will also display a GPS joystick that you can use to move realistically on the map.
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
-
-
 
 You can follow these simple steps to use this iSpoofer alternative to change your iPhone location easily.
 
@@ -349,6 +360,10 @@ Now, please enter the address or the coordinates of the target location and load
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Spoof your iPhone location**
 
 As you would select the target location, the application will automatically change the interface. You can now drag the pin around and even zoom in/out the map to select the target location. Lastly, you can select the “Move Here” button and the location of your iPhone would be changed automatically.
@@ -361,8 +376,6 @@ You can now launch Pokemon Go or any other GPS-based app to check the spoofed lo
 
 **Note:** Keep in mind the cooldown duration before changing your location to ensure your account won’t get banned by Niantic while using the location spoofer. For instance, wait for a few minutes and only change your location realistically.
 
-
-
 ## Part 3: How to Spoof your Honor Magic Vs 2 Device’s Location for Pokemon Go?
 
 Unlike iOS devices, it is pretty easy to spoof location in Android devices. This is because Google allows us to mock the location of our device using any reliable mobile app (unlike Apple). Therefore, if you are looking for an iSpoofer alternative for Android devices, you can follow these basic instructions.
@@ -372,6 +385,10 @@ Unlike iOS devices, it is pretty easy to spoof location in Android devices. This
 At first, you need to turn on the Developer Options to enable the Mock Location feature. For this, go to your phone’s Settings > About Phone and tap the “Build Number” seven times to turn on Developer Options.
 
 ![enable developer options](https://drfone.wondershare.com/2020/enable-developer-options.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Great! Now you can go to your phone’s Settings > Developer Options and turn on the Mock Location option.
 
@@ -395,9 +412,6 @@ That’s it! Now you can launch the mock location app and enter the address or c
 
 There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your iPhone location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your iPhone anywhere you like and that too without jailbreaking your phone.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -410,9 +424,26 @@ There you go! After reading this post, I’m sure that you would be able to know
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/updated-androids-top-visual-adjustment-tools/"><u>[Updated] Android's Top Visual Adjustment Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-demystifying-whatsapp-audio-talks/"><u>[Updated] In 2024, Demystifying WhatsApp Audio Talks</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-secret-sauce-to-viral-instagram-movie-magic/"><u>2024 Approved The Secret Sauce to Viral Instagram Movie Magic</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-nord-3-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Nord 3 5G</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-rise-and-fall-of-vegas-pro-a-critical-look/"><u>In 2024, The Rise and Fall of Vegas Pro A Critical Look</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-honor-magic-6-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Honor Magic 6? Fixed | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-c55-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/rainbow-six-siege-server-error-solutions-a-comprehensive-guide/"><u>Rainbow Six Siege Server Error Solutions: A Comprehensive Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-xiaomi-redmi-k70-pro-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Xiaomi Redmi K70 Pro Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/understanding-user-feedback-on-privacy-guidelines/"><u>Understanding User Feedback on Privacy Guidelines</u></a></li>
+<li><a href="https://fox-that.techidaily.com/when-imessage-converts-to-text-is-being-blocked-the-culprit/"><u>When iMessage Converts to Text: Is Being Blocked the Culprit?</u></a></li>
+</ul></div>
 

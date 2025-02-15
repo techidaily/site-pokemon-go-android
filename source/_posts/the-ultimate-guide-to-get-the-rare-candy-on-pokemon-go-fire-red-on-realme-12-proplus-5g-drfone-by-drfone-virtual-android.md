@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12 Pro+ 5G | Dr.fone
-date: 2025-01-29T18:09:32.950Z
-updated: 2025-01-31T21:45:40.819Z
+date: 2025-02-08T18:28:19.189Z
+updated: 2025-02-15T01:35:23.164Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -67,6 +67,10 @@ To simulate movement when spoofing your location, you can select either “One-S
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Getting Pokemon Go Fire Red Rare Candy Normally
 
 You would have to visit certain locations in order to get Pokemon Go Rare Candy in the normal way. The locations which have been found to give most Rare Candy are:
@@ -120,6 +124,10 @@ Wait for it to be activated and then save it.
 
 ![Enter details of the cheat code](https://images.wondershare.com/drfone/2020/my-boy-pokemon-fire-red-cheat-codes-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4 –** Enter the Pokéstop and deactivate the cheat code.
 
 **Step 5 –** Go to your computer and type in “PC > Item Storage”.
@@ -129,10 +137,6 @@ Wait for it to be activated and then save it.
 **Step 7 –** check if you have double Rare Candy entries in your storage. If they are not duplicated, then the cheat has worked as it should. If they are duplicated, then you have to close the game and redo all the steps above.
 
 **Step 8 –** Now exit and then go back to your Item Storage, where you can withdraw as many Pokemon Go Fire Red Rare Candies as you would want. Simply pick a number between 001 and 999, but never use the down arrow.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## In conclusion
 
@@ -145,6 +149,10 @@ _**“Every time I open Pokemon Go, I get the no GPS signal error. Can someone t
 This is one of the many queries that we have got lately about the Pokemon Go GPS problem. You would already know that without a stable GPS signal, you won’t be able to catch Pokemons or access other features of the game. Thankfully, there are several ways to fix these Pokemon Go GPS issues on Android and iOS devices. In this post, I will let you know about numerous methods to fix GPS on Pokemon Go.
 
 ![pokemon go no gps signal banner](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-no-gps-signal-banner.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Common Reasons for Pokemon Go GPS Problems
 
@@ -160,18 +168,26 @@ Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons
 ![pokemon gps signal not found](https://images.wondershare.com/drfone/2020/pokemon/pokemon-gps-signal-not-found.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Fix Pokemon Go No GPS Signal Issue on iOS Devices?
 
 If you own an iOS device and are facing the Pokemon Go GPS bug, then you can follow these troubleshooting tips.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 1: Enable the Location Services on your Phone
 
 Before taking any drastic measures, make sure that the location services on your iOS device are enabled. You can just go to the Control Center and tap on the GPS icon to turn it on. Alternatively, you can also browse to its Settings > Privacy > Location Services and toggle on this feature.
 
 ![enable location services iphone](https://images.wondershare.com/drfone/2020/pokemon/enable-location-services-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After that, you can restart the app and check if it would fix the GPS Pokemon Go issue or not.
 
@@ -181,6 +197,10 @@ Turning on the location services on your iPhone is not enough and you need to gr
 
 ![pokemon go location services](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-services.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 3: Set Precise Location for Pokemon Go
 
 In case the Pokemon Go GPS is not accurate on your iPhone, then you can enable the “Precise Location” option for the app. This will make sure that Pokemon Go can access the exact location of your phone.
@@ -189,17 +209,13 @@ To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Priv
 
 ![iphone precise location](https://images.wondershare.com/drfone/2020/pokemon/iphone-precise-location.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 4: Step Into an Open Area
 
 If you're currently in an area with poor GPS reception due to buildings or trees, try moving to an open area with a clear view of the sky. This can significantly improve your GPS signal strength.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Restart the App and the Realme 12 Pro+ 5G device
 
@@ -213,10 +229,6 @@ You can also press the Power or the Side + Volume Up/Down keys (for newer models
 
 Just like iPhone models, fixing the Pokemon Go GPS problem on Android phones is pretty easy and can be done in the following way:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1: Check the Location Services on your phone
 
 Needless to say, the first thing that you should do is to check the location settings on your phone to fix the GPS Pokemon Go problem.
@@ -224,10 +236,6 @@ Needless to say, the first thing that you should do is to check the location set
 You can just slide down the Control Center and tap on the GPS button to enable the location services. Besides that, you can also go to your phone’s Settings > Locations and turn it on.
 
 ![android location services](https://images.wondershare.com/drfone/2020/pokemon/android-location-services.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2: Grant Location access to Pokemon Go
 
@@ -246,10 +254,6 @@ As listed above, one of the reasons for this Pokemon Go GPS bug could be a corru
 If the Pokemon Go GPS is not accurate on your device, then you need to change its accuracy index on your phone. You can just go to your phone’s Settings > Location > Location Mode and set it to “High Accuracy” so that Pokemon Go can accurately display your present location.
 
 ![android location mode accuracy](https://images.wondershare.com/drfone/2020/pokemon/android-location-mode-accuracy.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 5: Contact Pokemon Go Support
 
@@ -287,6 +291,10 @@ The Pokémon emerald master ball can do this with no effort on your part. Simply
 
 ![An image of a Pokémon Master Ball](https://images.wondershare.com/drfone/2020/virtual-location/masterball-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _**Tips:** Catch Pokémon like a Pro with Dr.Fone - Virtual Location! Capture as many Pokémon as possible within a short time, no matter where they appear. Explore different locations virtually and become a Pokémon-catching master! Try it now!_
 
 ## Part 1: Do you know the Pokémon Emerald Master Ball?
@@ -323,10 +331,6 @@ When you are using My Boy, you can use the following code:
 
 You should then set the “cheat type” to “codebreaker”. Now set it to “autodetect” and you will be able to get Pokémon Master Emerald Balls at any time you wish.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How do you get unlimited master balls in Pokémon Emerald?
 
 There are ways in which you can get unlimited Pokémon Master Balls using the Pokémon emerald Master Ball cheat codes available today.
@@ -358,19 +362,11 @@ Only one Master Ball can be bought at a time, but you can do this as many times 
 
 ![Buy as many Pokémon Emerald Master Balls as you would like using the cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When you have shopped for Pokémon Emerald Master Balls to your fill, you need to disable the code so your store can go back to normal. All you have to do is go back to the “Cheat List” window and then uncheck the two little lines of Pokémon Emerald Master ball cheat codes.
 
 Make sure that you exit the store and go back again to finish the process properly.
 
 ![Disable the Pokémon Emerald Master Ball cheat code when you are finished shopping](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The best thing about this method is that you do not need to enter another master ball cheat code in the future. All you have to do is go back to your Cheat List and check the box for the code once more.
 
@@ -430,6 +426,10 @@ Use the [tutorial shown on this page](https://drfone.wondershare.com/guide/telep
 
 Once you have enough Pokémon creatures, you may now use your Lucky Egg and evolve them in mass and add your XP.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## In Conclusion
 
 Getting Pokémon Emerald Master Ball cheat codes is important if you want to catch a lot of Pokémon with ease. You need to catch them so you can level up as fast as possible. As you have seen, one of the best ways to do this is to catch a lot of Pokémon, and then evolve them and get XP that will allow you to level up quickly. You may use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to shift to areas where you can catch a lot of Pokémon creatures using the Pokémon Emerald Master Ball; it is much better when you have a cheat code that will allow you to get unlimited Master Balls.
@@ -448,19 +448,18 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-virtual-realities-made-tangible-6-metaverse-examples-reviewed-for-2024/"><u>[New] Virtual Realities Made Tangible 6 Metaverse Examples Reviewed for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-look-at-samsung-galaxy-s8-in-4k/"><u>[Updated] The Ultimate Look at Samsung Galaxy S8 in 4K</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-required-software-updates-for-your-hp-elitebook-x360-1030-g2-model/"><u>Download Required Software Updates for Your HP EliteBook X360, 1030 G2 Model</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-ensure-your-microphone-properly-picks-up-voice-and-solutions/"><u>How To Ensure Your Microphone Properly Picks Up Voice & Solutions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-rgbs-place-in-the-world-of-srgb-based-color-systems/"><u>In 2024, RGB's Place in the World of Srgb-Based Color Systems</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-spotting-the-top-10-covert-instagram-story-spectators/"><u>In 2024, Spotting the Top 10 Covert Instagram Story Spectators</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/the-essential-technique-screen-recording-on-the-go-for-2024/"><u>The Essential Technique Screen Recording on the Go for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-quick-and-the-funny-with-kinemaster-memes-for-2024/"><u>The Quick and the Funny with KineMaster Memes for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleashing-full-potential-phone-and-gear-vr-harmony/"><u>Unleashing Full Potential Phone and Gear VR Harmony</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-igniting-success-the-youtubers-playbook/"><u>2024 Approved Igniting Success The YouTuber's Playbook</u></a></li>
+<li><a href="https://windows11.techidaily.com/boosting-elderly-friendly-window-pc-usability/"><u>Boosting Elderly-Friendly Window PC Usability</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/crafting-winning-cover-letters-using-chatgpt-techniques/"><u>Crafting Winning Cover Letters Using ChatGPT Techniques</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effective-techniques-to-correct-driver-mismatch-for-arduino-uno-in-windows-os/"><u>Effective Techniques to Correct Driver Mismatch for Arduino Uno in Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-abcs-to-spanish-abcs-kindergarten-elementary-journey/"><u>From ABCs to Spanish ABCs: Kindergarten-Elementary Journey</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-samsung-galaxy-m14-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Samsung Galaxy M14 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-achieve-lightning-fast-periscope-transmission-for-2024/"><u>How to Achieve Lightning-Fast Periscope Transmission for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-realme-12-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/swift-upload-of-sizeable-videos-from-iphone-to-mac-desktop/"><u>Swift Upload of Sizeable Videos From iPhone to Mac Desktop</u></a></li>
 </ul></div>
 

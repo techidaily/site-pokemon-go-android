@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Realme 12 Pro 5G | Dr.fone
-date: 2025-01-24T16:07:26.210Z
-updated: 2025-01-31T17:53:56.276Z
+date: 2025-02-12T17:25:34.682Z
+updated: 2025-02-14T21:23:58.729Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,6 +21,10 @@ It’s not the first time trainers have experienced bugs in the game and a long 
 
 The root cause of this disappointing course of events was a major bug in the first season of the Battle League. Some players could simply use “charged moves” repetitively without recharging. Thankfully Niantic is coming up with a fix.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What are the Go battle league known issues?
 
 Pokémon Go as a game, is constantly evolving to improve the trainer’s experience which involves finding issues and resolving them. Like all other games, the publisher always tries their best to make the user experience more enriching and fair for the users.
@@ -34,6 +38,10 @@ Several trainers immediately tweeted this excruciating bug to Niantic requesting
 Players when entering the Battle League are shown – Pokemon Go Battle League Not Available Right Now, and all matches that were in progress were not concluded.
 
 ![pokemon 1](https://images.wondershare.com/drfone/2020/pokemon-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Thankfully, the issue has been resolved and trainers can get back into the league without any change in the previous features.
 
@@ -77,10 +85,6 @@ Here’s a list of exciting updates that will be included in the upcoming season
 - Season 5 will be completed once you reach rank 7 which will earn you the Elite Charged TM rather than an Elite Fast TM.
 - In Season 5 few Pokémon’s will get new updated move sets which the trainers can use to train and prepare for upcoming tournaments.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Tips you want to level up your pokemon go?
 
 The basics you need to learn to play Pokémon go is catching Pokémon and powering them up. Other than that there are ways you can speed power up your Pokémon to increase CP to higher levels. The overall Pokémon’s collected, evolved or powered up, and battles fought in Battle League will win you points to level up in Pokémon Go.
@@ -88,6 +92,10 @@ The basics you need to learn to play Pokémon go is catching Pokémon and poweri
 Although it might seem like a long and hard journey, it doesn’t need to. You can catch and power up Pokémon faster and cover longer distances with some help from WondershareDr.Fone. With smoother and easier GPS spoofing you can cover Poke stops much quicker.
 
 Here’s some tips you can put to easy use in Levelling Up in Pokémon Go:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip #1: Use dr.fone Virtual Location
 
@@ -105,7 +113,7 @@ There are several adjustments to the program that makes it fun to use. You can a
 - You can also use a free hand joystick to move the pointer on the map according to the movement of your finger.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip #2
@@ -121,13 +129,13 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 - Use Lucky Egg to double your XPs earned to increase the chances of getting Pokémon which when evolved spews more XP and Candy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How and Where to Find a Shiny Stone Pokémon For Realme 12 Pro 5G?
 
@@ -135,23 +143,19 @@ Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield
 
 ## Part 1. Shiny Stone Pokémon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What is Shiny Stone Evolution?
 
 A Shiny Stone is an item in Pokémon Go that is used to evolve certain Pokémon. Shiny Stone was introduced in Generation IV and is no different from other evolution stones such as dusk stones, dawn stone, and ice stone, to mention but a few. The major differences could be their location as well as the type of Pokémon they help to evolve. You can identify this peculiar stone by its dazzling, shining light.
 
 ![shiny stone Pokémon](https://images.wondershare.com/drfone/2020/shiny-stone-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How and where to find a Shiny Stone evolution
 
 In Pokémon Sword and Shield, the easiest way to get any evolution stone, including Shiny Stone, is by completing poke jobs. When you earn a water badge and then the gym badge, you can access the third tier poke jobs. Everything further will depend on whether your Pokémon perform great in their assigned jobs. If it performs great, you will be rewarded with an evolution stone that could be a Shiny Stone. If you want your Pokémon to do a great job, make sure you meticulously read through the summary of every given poke job. This is vital because it provides you a clue of what Pokémon you should pick.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Shiny Stone Evolution
 
@@ -173,10 +177,6 @@ Togetic is a fairy and flying type of Pokémon that has ten hatch cycles. Its ab
 
 Finding a Shiny Stone in Pokémon Sword and Shield is challenging because it is a rare item. Nevertheless, some hacks and tricks can reduce your curve of finding a Shiny Stone, as explained below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Use the iOS spoofing tool-Dr. Fone Virtual Location
 
 Since the game of Pokémon is location-based, you can fake your GPS location by simply teleporting to an appropriate Shiny Stone location while you are seated at your home. This is achievable with the help of [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). The program is powerful, simple, and easy to use. You can teleport to whatever place you want, simulate movements along a route set by two or multiple points. To teleport to the location where it is easier to grab a Shiny Stone using Dr. Fone Virtual Location, follow the steps below.
@@ -189,10 +189,6 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3.** On the next page, click the third icon on the top-right to provide the teleport mode. Choose the location you want to teleport to within the filed at the top and press “Go.”
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -200,6 +196,10 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 **Step 4.** Click “Move Here” on the dialog box that pops up once the program finds the location.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Use Android spoofing tool- Pgsharp
 
@@ -209,11 +209,19 @@ Pgsharp i8s an Android application that enables users to be fake their GPS locat
 
 Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A good example of a drone is DJI PantomDrone. When this drone is integrated with some smart software, you can easily control a phone that is attached to the drone. This way, you can sit at home while visiting gyms and pokestops.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Come up With the Best Pokemon Team On Realme 12 Pro 5G?
 
 If you have been playing Pokemon games (like Sun/Moon or Sword/Shield), then you must be familiar with their team building. To succeed, players are encouraged to create teams of their Pokemons that they have to use to complete missions. Though, it might take a while to master how you create a winning team. To help you, I have come up with some smart tips that would let you come up with some amazing Pokemon teams.
 
 ![Pokemon Team Building Banner](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What are Some Good Pokemon Team Examples?
 
@@ -230,23 +238,19 @@ To understand the dynamics of team composition, you should know that there are i
 
 Based on these different types of Pokemons, you can come up with the following teams to win your next battle:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. 2x Physical Sweeper, 2x Special Sweeper, Tanker, and Annoyer
 
 If you want to have an attacking team, then this would be the perfect combination. While the annoyer and tanker would drain the HP of the opponents, your sweeper Pokemons can finish them with their high attacking stats.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. 3x Sweepers (Physical/Special/Mixed), Tanker, Wall, and Annoyer
 
 This is one of the most balanced Pokemon teams that would work in almost every situation. In this, we have a tanker and a wall to take damage from the opponent’s Pokemon. Also, we have three different types of sweepers to do maximum damage.
 
 ![Balanced Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Drainer, Tanker, Cleric, and 3 Sweepers (Physical/Special/Mixed)
 
@@ -265,10 +269,6 @@ Even if you don’t have a lot of experience in the game, you can try this power
 ## Part 2: Things to Consider while Creating your Pokemon Team
 
 Since there could be so many ways for coming up with a Pokemon team, I would recommend following these suggestions:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Tip 1: Consider your strategy
 
@@ -314,14 +314,22 @@ There you go! By following these tips, you would be able to come up with a winni
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-how-to-pick-a-youtube-channel-name/"><u>[Updated] How To Pick a YouTube Channel Name</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-bargain-bin-chinese-vr-technology/"><u>2024 Approved Bargain Bin Chinese VR Technology</u></a></li>
-<li><a href="https://win-web3.techidaily.com/comment-puis-je-transferer-mes-fichiers-de-windows-10-a-windows-11-sans-tracas/"><u>Comment Puis-Je Transférer Mes Fichiers De Windows 10 À Windows 11 Sans Tracas ?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor Magic5 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/retro-rundown-is-the-netgear-c3000-still-worth-your-consideration/"><u>Retro Rundown: Is the Netgear C3000 Still Worth Your Consideration?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-video-maker/"><u>Updated What Is an AI Video Maker?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-magic-6-pro-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor Magic 6 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-metaverse-musings-top-30-quotes-for-immersive-living/"><u>[New] 2024 Approved Metaverse Musings Top 30 Quotes for Immersive Living</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-from-broadcasts-to-bitstreams-online-recording-for-professionals/"><u>[New] From Broadcasts to Bitstreams Online Recording for Professionals</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-best-webcams-for-podcast/"><u>[New] In 2024, Best Webcams for Podcast</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722717370818-futuristic-gaming-experience-redefined-with-dells-alienware-aurora-r9-reviewed-here/"><u>Futuristic Gaming Experience Redefined with Dell's Alienware Aurora R9 Reviewed Here!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-installation-of-insignias-usb-vga-adapter-drivers-included/"><u>Quick Installation of Insignia's USB VGA Adapter: Drivers Included</u></a></li>
+<li><a href="https://fox-that.techidaily.com/recovery-techniques-finding-and-restoring-deletion-prone-apple-notebook-data/"><u>Recovery Techniques: Finding and Restoring Deletion-Prone Apple Notebook Data</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722973787272-simple-steps-activate-and-configure-your-windows-updates-with-ease/"><u>Simple Steps: Activate & Configure Your Windows Updates with Ease!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-best-of-the-best-10-free-whiteboard-animation-software-for-pc-and-mac/"><u>Updated 2024 Approved Best of the Best 10 Free Whiteboard Animation Software for PC and Mac</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-valentines-day-2023-a-step-by-step-guide-to-making-a-romantic-video/"><u>Updated 2024 Approved Valentines Day 2023 A Step-by-Step Guide to Making a Romantic Video</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Poco X5 Pro | Dr.fone</u></a></li>
 </ul></div>
 

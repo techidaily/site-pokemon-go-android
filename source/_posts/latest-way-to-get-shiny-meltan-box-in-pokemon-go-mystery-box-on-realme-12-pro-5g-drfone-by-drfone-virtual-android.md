@@ -1,7 +1,7 @@
 ---
 title: Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 12 Pro 5G | Dr.fone
-date: 2025-01-27T19:05:39.457Z
-updated: 2025-01-31T19:44:11.566Z
+date: 2025-02-09T01:19:57.645Z
+updated: 2025-02-15T01:42:26.686Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,10 +25,6 @@ The Mystery Box is a particular object in Pokémon Go that briefly roots the myt
 
 ![mystery box pokemon go](https://drfone.wondershare.com/2020/mystery-box-pokemon-go.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Reportedly, you are required to have the mobile version of Home connected to your Nintendo Account. This can be carried out simply by downloading the Home app from Your Realme 12 Pro 5G store and tracking the instructions given on your screen in the initialization process of your app. After connecting the mobile Home application to your Nintendo account, track the steps below to connect Pokémon go to Home App:
 
 - Start Pokémon Go.
@@ -41,10 +37,6 @@ Reportedly, you are required to have the mobile version of Home connected to you
 
 ![sign in to your account](https://drfone.wondershare.com/2020/sign-in-to-your-account.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Enter your username and password. Press ‘OK’ to return to the previous screen.
 
 ![](https://drfone.wondershare.com/2020/enter-your-password.jpg)
@@ -56,10 +48,6 @@ On execution of the above instructions, follow the directions below to move a Po
 - Open ‘Settings’ and go to Home.
 
 ![open settings](https://drfone.wondershare.com/2020/open-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - Press on ‘Send Pokémon’
 
@@ -87,9 +75,17 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![click on tap to start](https://drfone.wondershare.com/2020/click-on-tap-to-start.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Click ‘Yes’ on the Pokémon Go Link message.
 
 ![proceed by clicking on yes](https://drfone.wondershare.com/2020/proceed-by-clicking-on-yes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Select ‘View Transferred Pokémon’
 
@@ -100,6 +96,10 @@ On execution of the above instructions, follow the directions below to move a Po
 ![confirm your pokemon](https://drfone.wondershare.com/2020/confirm-your-pokemon.jpg)
 
 By following the steps above, you will be awarded a Mystery Box in Pokémon Go, and you can activate it by advancing to your item bag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Use Virtual Location to catch the Pokémon Go creature
 
@@ -135,6 +135,10 @@ The simulated position will emerge as genuine for the Pokémon Go app, and it wi
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Movement Simulation between more than two spots:**
 
 Dr. Fone's application also permits you to replicate activity between more than two sites. The component is called after the multi-stop path that can be chosen from the GUI toolbox class positioned at the top-right nook that lets you put numerous specified destinations on the map, and your position will behave appropriately as controlled by the virtual location application of Dr.Fone.
@@ -144,7 +148,7 @@ To grant permission to the system to mock movement by picking out the right opti
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to get Shiny Meltan in Pokémon Go?
@@ -217,13 +221,13 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Save the game state](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2 –** Now hit the "Cheats" menu and then choose the "Cheat List". You will be presented with a new window where you can now enter the cheat codes.
 
 ![Entering the cheat codes](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3 -** If you have a Pokémon Emerald Master Ball GameShark code, then you should hit the “GameShark” button to enter the code.
 
@@ -257,7 +261,7 @@ When you need to level up on Pokémon Go, the best and legal way is to get as mu
 Here are a few of the best ways to go about this:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mass Friending
@@ -271,7 +275,7 @@ Having a lot of friends is not what gets you XP, but the quality of friends that
 Timing the way your friendship levels up, and then dropping a Lucky Egg will hugely boost your XP. However, you can only use this process once for every friend per day. This method is great but it would take you 3 months for any friend to become a Best Friend.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mass Raids
@@ -369,7 +373,7 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Primary Features of Dr. Fone
@@ -394,15 +398,15 @@ Now, grab your iPhone and get it connected with the PC using the lightening cabl
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Check Location**
 
 You will notice a map on the screen now. As it comes, you got to click on ‘Centre On’ to accurately pin point the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Enable Teleport Mode**
 
@@ -415,10 +419,6 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now, the location is changed. You can now open any location based app on your iPhone and check the location. It will show the location you have selected.
 
@@ -440,19 +440,18 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-skype-call-chronicles-20plus-strategies-for-savvy-windowsmac-users/"><u>[New] 2024 Approved Skype Call Chronicles 20+ Strategies for Savvy Windows/Mac Users</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-elevate-your-visual-storytelling-with-innovative-instagram-video-techniques/"><u>[New] Elevate Your Visual Storytelling with Innovative Instagram Video Techniques</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-instantaneous-infiltration-of-lost-reddit-threads-for-2024/"><u>[Updated] Instantaneous Infiltration of Lost Reddit Threads for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-enhancing-workflow-meeting-management-on-zoom/"><u>2024 Approved Enhancing Workflow Meeting Management on Zoom</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/essential-drone-buyers-checklist-top-factors-to-ponder/"><u>Essential Drone Buyer's Checklist Top Factors to Ponder</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-honor-90-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Honor 90 Lock Screen Password?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ct-your-presence-with-solo-video-setups-and-techniques-for-2024/"><u>Perfect Your Presence with Solo Video Setups and Techniques for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-nokia-130-music-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Nokia 130 Music Device</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-guide-to-indispensable-2022-drone-add-ons-revealed-featured-on-zdnet/"><u>The Ultimate Guide to Indispensable 2022 Drone Add-Ons Revealed | Featured on ZDNet</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-comprehensive-analysis-top-budget-friendly-video-calling-tools-iphones-and-androids-for-2024/"><u>[New] Comprehensive Analysis Top Budget-Friendly Video Calling Tools - iPhones & Androids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-things-about-asmr-video-you-should-know/"><u>[Updated] In 2024, Things About ASMR Video You Should Know</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sky-high-data-capacity-at-zero-cost-top-20-free-cloud-storages-to-explore/"><u>2024 Approved Sky-High Data Capacity at Zero Cost Top 20 Free Cloud Storages to Explore</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/boost-your-online-presence-with-cookiebot-technology/"><u>Boost Your Online Presence with Cookiebot Technology</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/simple-guide-how-to-effortlessly-move-films-from-your-ipad-to-a-mac/"><u>Simple Guide: How to Effortlessly Move Films From Your iPad to a Mac</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-a2-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo A2 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/windows-11-optimized-dvd-shrink-compatibility-setup-guide/"><u>Windows 11 Optimized DVD Shrink Compatibility Setup Guide</u></a></li>
 </ul></div>
 

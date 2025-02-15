@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Realme 12 5G? | Dr.fone
-date: 2025-01-25T19:07:41.649Z
-updated: 2025-01-31T22:10:22.445Z
+date: 2025-02-08T18:36:46.789Z
+updated: 2025-02-14T21:59:38.182Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -31,7 +31,7 @@ Following are the additional evolution items observed in Pokémon Go:
 ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
@@ -52,6 +52,10 @@ Pokemon Go can be played without requiring movement, using Dr. Fone's toolkit. T
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can click the ‘Get Started’ button to initiate the action as soon as your phone gets detected.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -62,17 +66,9 @@ Unfold the top right area of the initial option before reaching Dr. Fone's GUI, 
 
 ![virtual location 08](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
 
 ![virtual location 09](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The change location will act as genuine for the Pokémon Go application, and it will presume that the player is moving in between the two points you chose on the Dr. Fone GUI screen. At the foot of the screen, the rate of motion can also be modified, making use of the gliding menu. By following these steps, you can use the fake motion of the position of Dr. Virtual Fone without needing to understand it, and your app will not be banned.
 
@@ -94,6 +90,10 @@ Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, w
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
@@ -106,10 +106,6 @@ If you have been playing Pokemon Go for a while, then you might already know how
 
 ![pokemon go friend codes banner](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes-banner.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Where to find Pokemon Go Friend Codes?
 
 Before I list some reliable sources for PoGo friend codes, let’s take a look at the popular options:
@@ -121,6 +117,10 @@ Before I list some reliable sources for PoGo friend codes, let’s take a look a
 - Quora spaces
 - Discord Servers
 - Selective apps and website dedicated to Pokemon Go
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Find Pokemon go Friend Codes on Discord?
 
@@ -143,10 +143,6 @@ Here are some of these popular Discord servers that you can join to find Pokemon
 - Pokemon Global Family
 
 ![dicord server pokedex100](https://images.wondershare.com/drfone/2020/202009/dicord-server-pokedex100.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Find Pokemon Go Friend Codes on Reddit?
 
@@ -196,7 +192,7 @@ Pokemon Go Friend Code is a dedicated online directory having thousands of train
 If you are looking for Pokemon Go friend codes, then the sky is the limit. Apart from dedicated apps and websites, you can also find Instagram pages, Twitter handles, and Quora spaces to exchange PoGo friend codes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Add Friends in Pokemon Go?
@@ -211,11 +207,7 @@ Once you have found Pokemon Go codes for friends, you can add them to your netwo
 ![pokemon go add friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-add-friend-codes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Find new Pokemons to Level-up in the Game?
@@ -239,7 +231,7 @@ Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield
 ## Part 1. Shiny Stone Pokémon
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What is Shiny Stone Evolution?
@@ -249,7 +241,11 @@ A Shiny Stone is an item in Pokémon Go that is used to evolve certain Pokémon.
 ![shiny stone Pokémon](https://images.wondershare.com/drfone/2020/shiny-stone-pokemon.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How and where to find a Shiny Stone evolution
@@ -296,6 +292,10 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Use Android spoofing tool- Pgsharp
 
 Pgsharp i8s an Android application that enables users to be fake their GPS location and fools location-based apps like Pokémon Go to enter a territory that is easy to grab a Shiny Stone or Pokémon. It has a joystick feature for easy and smooth movement, coordinates to move to specific locations, auto walkthrough several pokestops, and saves your last location, among others.
@@ -318,24 +318,22 @@ Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A goo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-transform-brainstorms-into-youtube-channel-names-for-2024/"><u>[New] How To Transform Brainstorms Into YouTube Channel Names for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-universal-approach-to-smartphone-mac-and-pc-video-filming-for-2024/"><u>[New] Universal Approach to Smartphone, Mac, and PC Video Filming for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-decoding-macbook-airs-screen-capture-a-detailed-walkthrough-guide/"><u>[Updated] Decoding MacBook Air's Screen Capture A Detailed Walkthrough Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-engaging-video-audiences-choosing-impactful-youtube-images-for-2024/"><u>[Updated] Engaging Video Audiences Choosing Impactful YouTube Images for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-quintessential-scripting-spectrum-8-cinematic-classes/"><u>[Updated] In 2024, Quintessential Scripting Spectrum 8 Cinematic Classes</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-se-2022-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone SE (2022) without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/in-2024-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>In 2024, Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/latest-usb-c-support-packs-for-windows-11-users-easy-downloads/"><u>Latest USB-C Support Packs for Windows 11 Users: Easy Downloads</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/strategies-to-reinforce-stability-in-windows-10-photo-viewer-for-2024/"><u>Strategies to Reinforce Stability in Windows 10 Photo Viewer for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transform-your-verbal-input-into-written-content-in-ms-word-for-2024/"><u>Transform Your Verbal Input Into Written Content in MS Word for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-launch-any-video-projects-with-free-kits/"><u>[New] 2024 Approved Launch Any Video Projects with Free Kits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-no-cost-joke-factory-making-laughter-easy/"><u>[New] No Cost Joke Factory Making Laughter Easy</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-closer-look-easy-methods-to-zoom-in-minecraft/"><u>[Updated] Closer Look Easy Methods to Zoom in Minecraft</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-understanding-igtv-from-basics-to-advanced-techniques/"><u>[Updated] In 2024, Understanding IGTV From Basics to Advanced Techniques</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-c53-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme C53? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor 90 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://win-community.techidaily.com/keep-your-system-safe-a-guide-on-regularly-installing-operating-system-patches-with-advice-from-yl-software-gurus/"><u>Keep Your System Safe: A Guide on Regularly Installing Operating System Patches with Advice From YL Software Gurus</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-guide-fixing-issues-with-safari-on-your-iphone-quickly-and-easily/"><u>Step-by-Step Guide: Fixing Issues with Safari on Your iPhone Quickly and Easily</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-archivists-toolkit-techniques-for-capturing-social-events-for-2024/"><u>The Archivist's Toolkit Techniques for Capturing Social Events for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/top-5-online-titler-pros-unveiled-for-2024/"><u>Top 5 Online Titler Pros Unveiled for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why is iPogo not working On Realme 12 Pro 5G? Fixed | Dr.fone
-date: 2025-01-26T18:04:51.097Z
-updated: 2025-02-01T00:28:44.558Z
+date: 2025-02-09T23:10:24.225Z
+updated: 2025-02-14T16:55:54.691Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -69,6 +69,10 @@ If using the iPogo mod to enhance your gaming experience on Pokémon Go seem les
 - Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
 - Simulate your avatar’s movements to travel on a determined route of your choice.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step by Step Tutorial
 
 You can follow these easy steps to teleport to anywhere in the world with the help of drfone Virtual Location.
@@ -79,19 +83,11 @@ Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, inst
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Plug iPhone**
 
 Now, grab your iPhone and get it connected with the PC using the lightening cable. Once done, hit on “Get Started” to begin spoofing.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Check Location**
 
@@ -105,11 +101,19 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Start Teleporting**
 
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, the location is changed. You can now open any location based app on your iPhone and check the location. It will show the location you have selected.
 
@@ -117,13 +121,13 @@ Now, the location is changed. You can now open any location based app on your iP
 
 Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12 Pro 5G
 
 In all Pokemon Go versions, a Rare Candy will automatically uplift you to the next level. These cadies are powerful and come with a lot of extra rewards. That said they are also very difficult to find, especially in Pokemon Fire Red. This article will show you some of the ways in which you can find Rare Cady, and level up quickly to improve your status in the game.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: What is the rare candy in Pokémon Go Fire Red?
 
@@ -175,10 +179,6 @@ To simulate movement when spoofing your location, you can select either “One-S
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Getting Pokemon Go Fire Red Rare Candy Normally
 
 You would have to visit certain locations in order to get Pokemon Go Rare Candy in the normal way. The locations which have been found to give most Rare Candy are:
@@ -200,10 +200,6 @@ Use GameShark or My Boy game emulator to install the codes and then get the Rare
 
 The cheat code for Pokemon Go Fire Red Candy is:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How do you get unlimited rare candies in Pokemon Red?
 
 Sometimes, you don’t want to keep adding Pokémon Go Fire Red Rare candy codes one at a time. You simply want to Master Code that will help you get the Rare Candy whenever you need them.
@@ -215,6 +211,10 @@ This is how you go about getting unlimited Rare Candy on Pokemon Go Fire Red.
 It can be used to get a single Rare Candy or to unlimited Rare Candy as shown below:
 
 ![Pokemon Go Fire Red Rare Candy Storage](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Pokemon Go Cheat Code for Unlimited Rare Candies
 
@@ -256,15 +256,15 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -273,7 +273,7 @@ When you get a soft ban, its duration is about 12 hours. In this period, any Pok
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -295,10 +295,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -346,6 +342,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -386,7 +386,7 @@ Now, you can choose the location by entering its name in the search bar or coord
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
@@ -395,13 +395,13 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
@@ -423,20 +423,20 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-capture-the-world-from-your-mobile-height/"><u>[New] In 2024, Capture the World From Your Mobile Height</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-efficient-broadcast-techniques-incorporating-youtube-loops-on-tv/"><u>[New] In 2024, Efficient Broadcast Techniques Incorporating YouTube Loops on TV</u></a></li>
-<li><a href="https://some-tips.techidaily.com/get-a-35-deal-on-amazons-therapeutic-wax-treatment-for-sore-hands-and-feet-perfect-solution-review/"><u>Get a 35% Deal on Amazon's Therapeutic Wax Treatment for Sore Hands and Feet - Perfect Solution Review!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Google Pixel Fold? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-itel-a60s-phone-without-password-by-drfone-android/"><u>How To Unlock Itel A60s Phone Without Password?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco C50 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-vivo-t2-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Vivo T2 5G Devices</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Google Pixel Fold? | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-6-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer from Apple iPhone 6 to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/middle-of-the-road-meets-modesty-a-critical-look-at-the-dell-inspiron-3671-desktop/"><u>Middle-of-the-Road Meets Modesty: A Critical Look at the Dell Inspiron 3671 Desktop</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/omplete-process-for-customizing-video-game-channels-for-2024/"><u>The Complete Process for Customizing Video Game Channels for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-innovative-broadcast-strategies-live-on-instagram-using-obs-software/"><u>[Updated] In 2024, Innovative Broadcast Strategies Live on Instagram Using OBS Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unrivaled-video-tech-for-apple-phones/"><u>[Updated] In 2024, Unrivaled Video Tech for Apple Phones</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-jokejuxtaposer-quickly-craft-memes-for-all-occasions/"><u>[Updated] JokeJuxtaposer Quickly Craft Memes for All Occasions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-essential-10-online-subtitle-cutting-apps/"><u>2024 Approved Essential 10 Online Subtitle Cutting Apps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/alpaca-anthem-clashes-with-bards-gpts-woolly-counterpart/"><u>Alpaca Anthem Clashes with Bards, GPT's Woolly Counterpart</u></a></li>
+<li><a href="https://some-tips.techidaily.com/evaluation-of-the-iphone-14-meeting-adequate-performance-standards-insights/"><u>Evaluation of the iPhone 14: Meeting Adequate Performance Standards - Insights</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-get-your-twitter-video-feed-ready-aspect-ratio-key/"><u>In 2024, Get Your Twitter Video Feed Ready Aspect Ratio Key</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722885664541-top-8-search-tools-to-locate-any-person-online/"><u>Top 8 Search Tools To Locate Any Person Online</u></a></li>
 </ul></div>
 

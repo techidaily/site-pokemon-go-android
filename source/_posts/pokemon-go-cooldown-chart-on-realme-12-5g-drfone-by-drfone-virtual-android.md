@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Realme 12 5G | Dr.fone
-date: 2025-01-24T20:57:33.173Z
-updated: 2025-01-31T21:29:44.680Z
+date: 2025-02-11T23:34:45.323Z
+updated: 2025-02-14T16:06:22.858Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -19,33 +19,17 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -67,17 +51,9 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -156,10 +132,6 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -175,10 +147,14 @@ Voila! You have teleported your location to the desired place.
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -187,6 +163,10 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 ## iPogo will be the new iSpoofer On Realme 12 5G?
 
 If you are a sincere Pokemon Go player who sticks by the rules and plays the game, then you probably don’t know how hard it is to eliminate a location spoofer from the picture. The game attains new spheres and seems more interesting with a location spoofer involved. If you are an iOS user or an Android enthusiast who is eager for iSpoofer’s return or worried about iSpoofer Pogo not working, then this might just be the right article for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1 - Why am I unable to download iSpoofer for Pogo?
 
@@ -204,11 +184,19 @@ Since we haven’t heard from iSpoofer in 2020, we can assume that they won’t 
 
 It is hard to handle change especially when you are an iPhone user. There aren’t many apps that you can find on the App Store and you never know their authenticity. Even if you find a good location spoofer, you never know how long that is going to keep your location changed or if it will remain undetected. That being said - your first obvious option for spoofing Pokemon Go would be -
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Any App from the Apple App Store
 
 If the iSpoofer for Pogo is not working, then you can make a simple search for some other GPS location changer on the App store and they would help you for a short time. If you are lucky then they might remain undetected for a very long time. However, we won’t suggest this to be the most stable option so we can move ahead to the next best thing for the iOS users.
 
 ![iOS-App-Store-pic-3](https://images.wondershare.com/drfone/2020/2020/iOS-App-Store-pic-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### In-built spoofing with VPNs
 
@@ -261,6 +249,10 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 That being said, there aren’t any well-researched and ground rules as to how your spoofing should be so that you remain undetected. All we can do is pick up tips from someone else’s expertise. Apps like Dr.Fone will help you change your [virtual location](https://drfone.wondershare.com/virtual-location/fake-snapchat-location.html) without getting your account banned as they are designed to do this very job with perfection.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## List of Pokémon Go Joysticks On Realme 12 5G
 
 Today, Pokémon Go has evolved into the utmost augmented reality smartphone games, thanks to its excellent user experience. You might have exhausted all the Pokémon in your location or wish to collect Pokémon far from your geographic area. Although, having a reliable Pokémon Go joystick can be laborious as there are more similar apps.
@@ -268,6 +260,10 @@ Today, Pokémon Go has evolved into the utmost augmented reality smartphone game
 A Pokémon Go joystick lets you visit more places or teleport to any place worldwide while seated at home. Many Pokémon players use a GPS joystick Pokémon Go to alter their locations and visit different areas from their comfort to explore their collectibles. I have listed some of the best options for Pokémon Go joystick android, and for iOS systems, you can try from the list. Take a look!
 
 ![find the lists of the best Joysticks for Pokemon](https://images.wondershare.com/drfone/pokemon-lists.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Dr.Fone – Virtual Location
 
@@ -319,6 +315,10 @@ Cons
 
 ![Fake your location with fake gps](https://images.wondershare.com/drfone/fake-gps-joystick.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Fake GPS Joystick is another suitable GPS joystick to play Pokémon Go from your comfort. This app has many different features you will find helpful when using the Joystick feature. Besides the GPS spoofing capability, you can alter the update intervals to offer real-time expectations. Have a look at the Pokémon go spoofing 2020 app features.
 
 - Expect a better spoof experience
@@ -341,6 +341,10 @@ Cons
 
 ![Use either the fixed location mode or move location mode](https://images.wondershare.com/drfone/fly-gps-joystick.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Android users also wish to enjoy Pokémon go at their comfort. The Fly GPS joystick Pokémon Go app is a reliable option for GPS spoofing. You can easily fake your location to another location along with several tweaks to make others, and the Niantic believe your movements and location.
 
 - using Fake GPS, you can teleport to any location you want
@@ -359,6 +363,10 @@ Cons
 
 - This joystick has few options compared to other apps
 - The available free app has limited features
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Fake GPS Location – Routes and Joystick
 
@@ -385,10 +393,6 @@ Cons
 - To access the joystick option, you have to pay for the premium app
 - There are three modes priced differently with different options
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. iPogo Joystick
 
 ![Use iPogos to fake gps location.](https://images.wondershare.com/drfone/ipogo-joystick.jpg)
@@ -411,10 +415,6 @@ Cons
 
 - You have to set your location to high accuracy to fake your location
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 Playing Pokémon GO from the comfort of your home is what one wants, especially during this pandemic period. Different Pokémon Go joystick apk helps spoof locations and create a better gaming experience. The listed apps above can be used for either android or iOS systems, depending on your needs. Always use these apps carefully to avoid falling into legal actions or ban from Niantic. Use the apps wisely to make your gaming better from your home.
@@ -433,14 +433,20 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-tips.techidaily.com/exploring-cutting-edge-tech-with-toms-computing-innovations/"><u>Exploring Cutting-Edge Tech with Tom's Computing Innovations</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-oppo-reno-11-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Oppo Reno 11 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor X7b? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Tecno Spark 20 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/troubleshooting-liquid-ingress-on-iphone-charging-ends-effective-methods-explained-by-zdnet-experts/"><u>Troubleshooting Liquid Ingress on iPhone Charging Ends: Effective Methods Explained by ZDNet Experts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/update-how-to-repair-a-non-functional-keyboard-at-system-boot/"><u>Update: How to Repair a Non-Functional Keyboard at System Boot</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-generate-speech-from-text-the-best-text-to-speech-converters/"><u>Updated How To Generate Speech From Text | The Best Text-to-Speech Converters</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-framing-fantasy-elite-tips-for-elevating-your-photography/"><u>[New] In 2024, Framing Fantasy Elite Tips for Elevating Your Photography</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-pro-level-text-templates-for-adobe-ae/"><u>[New] In 2024, Pro-Level Text Templates for Adobe AE</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-simplifying-the-world-of-ifunnys-meme-application/"><u>[New] In 2024, Simplifying the World of iFunny's Meme Application</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-pick-your-favorites-top-6-fb-lite-videos-downloaders-for-2024/"><u>[New] Pick Your Favorites Top 6 FB Lite Videos Downloaders for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/chinese-telecommunication-firms-transition-to-domestic-processors-a-major-move-for-local-technology/"><u>Chinese Telecommunication Firms Transition to Domestic Processors: A Major Move for Local Technology</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-the-intricacies-of-transferring-videos-to-youtube/"><u>Navigating the Intricacies of Transferring Videos to YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-c33-2023-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme C33 2023? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

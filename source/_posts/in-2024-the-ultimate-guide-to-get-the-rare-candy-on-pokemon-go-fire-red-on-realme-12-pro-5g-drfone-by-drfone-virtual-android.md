@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12 Pro 5G | Dr.fone
-date: 2025-01-30T18:06:14.474Z
-updated: 2025-01-31T20:19:36.766Z
+date: 2025-02-08T01:12:15.755Z
+updated: 2025-02-14T16:59:11.306Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -28,12 +28,16 @@ When you use a Rare Candy, you get enough Exp. Points to move to the next level.
 ![Pokemon Rare Candy Trainer Card](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to get rare candy in Pokemon Go Fire Red?
 
 There are three main ways in which you can get Rare Candy in Pokemon Go Fire Red. The first one is using a location spoofer to catch rare candy without moving. The second one involves going to areas where you can find the Rare Cady and the last one involves using a Fire Red Rare Candy Code.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Getting Pokémon GO Fire Red Rare Candy without Walking/Moving
 
@@ -72,7 +76,7 @@ To simulate movement when spoofing your location, you can select either “One-S
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Getting Pokemon Go Fire Red Rare Candy Normally
@@ -85,6 +89,10 @@ You would have to visit certain locations in order to get Pokemon Go Rare Candy 
 - Take a journey to the Ghost Tower
 - When you get to the Safari Zone Warden’s House, check behind the boulder.
 - You may also use Meowth or any other Pokemon that has Pickup abilities and try your luck.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Getting Pokémon Go Fire Red Rare Candy with cheat codes
 
@@ -127,10 +135,6 @@ How to use the code:
 Wait for it to be activated and then save it.
 
 ![Enter details of the cheat code](https://images.wondershare.com/drfone/2020/my-boy-pokemon-fire-red-cheat-codes-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4 –** Enter the Pokéstop and deactivate the cheat code.
 
@@ -201,6 +205,10 @@ The change location will act as genuine for the Pokémon Go application, and it 
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Movement Simulation between more than two spots:**
 
 Dr. Fone's application also lets you fake your motion joining more than two positions. The attribute is called after the multi-stop path that can be highlighted from the GUI toolbox class situated at the top-right position, which allows you to release several accurate endpoints on the map, and your position will take action correspondingly as managed by the virtual position application of Dr. Fone.
@@ -209,15 +217,15 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -248,6 +256,10 @@ This is another important aspect that should be taken care of if the Pokémon Go
 
 ![Reload game iPhone](https://drfone.wondershare.com/2020/Reload_game_iPhone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fixture 3: Restart the Phone
 
 Press and hold the volume button and the side button. The power off slider appears, just wait for 30 seconds for the Realme 12 Pro 5G device to restart. In most cases restarting the Realme 12 Pro 5G device will get the issue of GPS not working Pokémon go iPhone resolved.
@@ -255,10 +267,6 @@ Press and hold the volume button and the side button. The power off slider appea
 ## Part 2: The best GPS Spoofer to be used
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the most used GPS spoofer that will make your life easy when it comes to Pokémon Go. The program is the best and it also makes sure that the GPS related issues are resolved with care and perfection. With the best technology and professional development, this program has been at the forefront of GPS spoofing. If the GPS signal not working then it is advised to make sure that Dr. Fone is used to get the work done with ease. There are several features of the program that will make sure that you get a step ahead of your Pokémon Go competitors.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to use Dr. Fone Virtual Location
 
@@ -282,10 +290,6 @@ The center on button is there on the program. Press it and the program will dete
 
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Changing Location**
 
 For teleportation press the third button on the upper right corner. Also, type the name of the location where you want to teleport in the bar.
@@ -304,17 +308,9 @@ The location will be locked on the iPhone and it will display the same location 
 
 ![virtual location 6](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: 3 Ways to fix Pokémon GPS not working on Android devices
 
 The android devices might also get into an issue that is under discussion. To make sure that the problem is fixed it is advised to follow the 3 most important ways that are discussed in this section.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 1: Turn on Location Services
 
@@ -323,7 +319,7 @@ Swipe down to access the notification panel of the program. Make sure that the l
 ![Turn on location service andriod](https://drfone.wondershare.com/2020/Turn_on_location_service_andriod.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Restart the Realme 12 Pro 5G device
@@ -339,7 +335,11 @@ This is another important aspect. There are auto-updates disabled by some users 
 ![Update pokemon go android](https://drfone.wondershare.com/2020/Update_pokemon_go_android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -360,20 +360,24 @@ The Dr. Fone Virtual location is the best and the most advanced program that can
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-crafting-perfect-youtube-channel-names-a-comprehensive-guide-for-video-content-creators-maximum-length-156-characters-for-2024/"><u>[New] Crafting Perfect Youtube Channel Names A Comprehensive Guide for Video Content Creators (Maximum Length 156 Characters) for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-1-choice-easy-online-video-text-conversion/"><u>[Updated] 1 Choice Easy Online Video Text Conversion</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-a-stepwise-approach-to-twitter-archive-utilization/"><u>2024 Approved A Stepwise Approach to Twitter Archive Utilization</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-top-rated-zero-price-after-effects-samples/"><u>2024 Approved Top-Rated, Zero-Price After Effects Samples</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-amd-ryzen-driver-download-and-improvement-tips-for-optimal-performance/"><u>Effortless AMD Ryzen Driver Download and Improvement Tips for Optimal Performance</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/entfernung-von-schutzmassnahmen-bei-disney-dvds-professionelle-anleitung-zum-sauberen/"><u>Entfernung Von Schutzmaßnahmen Bei Disney DVDs - Professionelle Anleitung Zum Sauberen</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-100-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-lava-yuva-2-by-drfone-android/"><u>How to Show Wi-Fi Password on Lava Yuva 2</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme V30T? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/sicuro-backup-dei-tuoi-dati-ios-con-aomei-fonebackup-procedura-semplice-e-facile/"><u>Sicuro Backup Dei Tuoi Dati iOS Con AOMEI FoneBackup - Procedura Semplice E Facile</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-achieve-perfect-screen-captures-on-the-mi-11-lite/"><u>[Updated] 2024 Approved Achieve Perfect Screen Captures on the Mi 11 Lite</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-short-cuts-big-impact-top-editors-for-youtube-short-videos-on-mobile-for-2024/"><u>[Updated] Short Cuts, Big Impact Top Editors for YouTube Short Videos on Mobile for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/deciphering-machine-learning-the-black-box-phenomenon/"><u>Deciphering Machine Learning: The Black Box Phenomenon</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/dvdandmp4windows-10/"><u>DVD化&テレビ再生：MP4ファイルを効果的にWindows 10上でコピーする手順とその便利さ</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-itel-p40plus-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/masterful-strategies-solve-clipchamp-issues-on-win11-platforms/"><u>Masterful Strategies: Solve ClipChamp Issues on Win11 Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-playback-pivot-a-step-by-step-yt-guide/"><u>Mastering Playback Pivot A Step-by-Step YT Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/meme-monster-maestro-for-2024/"><u>Meme Monster Maestro for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/tightpurses-pet-snapshots-revealed/"><u>TightPurses Pet Snapshots Revealed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor X7b | Dr.fone</u></a></li>
 </ul></div>
 

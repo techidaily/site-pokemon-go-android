@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Honor V Purse? | Dr.fone
-date: 2024-07-14T09:05:57.868Z
-updated: 2024-07-15T09:05:57.868Z
+date: 2025-02-10T17:12:38.409Z
+updated: 2025-02-14T22:22:23.750Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,8 +21,6 @@ Pokemon Go is one of the most popular augmented reality location-based games tha
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/qLfCHnwsagk"></iframe>
 
-
-
 ## Part 1: What’s the Need for a Pokemon Go Joystick?
 
 If you are an avid Pokemon Go player, then you might already know that the game demands us to step outside to catch Pokemons or participate in raids. Sadly, not everyone can travel so much on their own. Therefore, you might consider using a Pokemon Go joystick on iOS/Android under the following circumstances.
@@ -39,9 +37,6 @@ A Pokemon Go spoofing iOS/Android solution can easily change your present locati
 
 Please note that the use of any location spoofing or Pokemon Go hack (joystick) is against the terms of Niantic. Therefore, if your account is found using these hacks, then Niantic can display warning messages. If after getting multiple warnings, the hack is still being detected, then it can lead to a temporary or even a permanent ban of your account.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
 
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
@@ -66,9 +61,17 @@ Once your iPhone is connected, its present location would automatically be displ
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Simulate the iPhone Movement with a joystick**
 
@@ -108,9 +111,6 @@ Besides that, you can also tap on the map option to directly enter the address o
 
 You can further visit the GPS Joystick settings to set up preferred walking, jogging, or running speeds for the simulated movement.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![GPS Joystick Set Speed](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-6.jpg)
 
 **Step 3: Start simulating the movement on your Android**
@@ -137,6 +137,10 @@ Great! Now, you can just launch the FGL Pro app on your phone and tap on the sea
 
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
 
 If you want to avoid getting your account banned and still use a reliable spoofing app for Pokemon Go, then consider the following tips:
@@ -152,13 +156,15 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 
 There you go! By now, you would be able to implement these spoofing Pokemon Go tips and tricks. As you can see, there can be so many Pokemon Go spoofing iOS/Android solutions that you can explore. While there are plenty of Pokemon Go spoofer APK tools for Android devices, iOS users can try [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking your device, it will let you spoof its location and even simulate its movement to catch Pokemons remotely.
 
-
-
 ## Ultimate guide to get the meltan box pokemon go For Honor V Purse
 
 If you are a huge Pokemon fan and loves to play pokemon go, you will definitely be aware of the latest addition to this family- meltan. It’s the only 8th generation pokemon. The first appearance of this pokemon was via Pokemon Go, as a mysterious silhouette. There are a huge hue and cry among the pokemon lovers about this mystery box pokemon. With its unannounced entry, it has sent the internet raving mad. It’s not an easy task to catch this pokemon, though. Let us take you through an ultimate guide regarding how you can get the meltan box pokemon go in 2020. Stay tuned and keep reading!
 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What is the meltan box and how does it work?
 
@@ -216,6 +222,10 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 ![bring pokemon](https://images.wondershare.com/drfone/2020/bring-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Open Pokemon Go.
 
 **Step 4:** In the map view, tap on the button “Main menu”.
@@ -230,6 +240,10 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 ![send to nintendo switch](https://images.wondershare.com/drfone/2020/send-to-nintendo-switch.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
 
 ## Part 3: Tips to get more meltan boxes
@@ -240,9 +254,17 @@ There is a lot of confusion among the Pokemon trainers regarding how to get melt
 
 With the help of pairing and connecting your Pokemon Go to the Nintendo Switch, you can actually get the opportunity to transfer the Pokemon and win a mystery box for yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip No.2: Transfer Pokemon to Friend’s Switch
 
 If you cannot establish a pair with your Nintendo Switch, you can always look for your friends. In case you don’t have a Nintendo Switch with a copy of Let’s Go Pikachu, do not worry. You can still obtain a shiny meltan pokemon go mystery box. You can send Pokemon to your friend’s Nintendo switch and bang… you get the chance to catch the mythical pokemon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip No.3: Use Dr. Fone Virtual Location Service
 
@@ -252,15 +274,11 @@ With the help of [Dr.Fone- Virtual Location](https://tools.techidaily.com/wonder
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
-
-
 It is well-known that Pokemon Go is a location-based game that offers several services only according to your location. You might find it difficult to maximize your pokemon go meltan box without moving or looking for services out of your region. Dr.Fone Virtual Location is here to help. With this service provider's help, you can change your location and enjoy the unlimited fun that you had always desired. It will also be a great rescue for you if you cannot catch a meltan in your region. Try it and get the Hex Nut Pokemon.
 
 ## Conclusion
 
 Resolving your query about getting meltan box and offering you a detailed guide and assistance, we aim to help you continue your fun-experience with the game. Play, look for and find all the meltan! You can then evolve your meltan into a formidable Melmetal. You will need around 400 meltan candy to evolve into Melmetal, so be sure to catch as many as possible and enjoy!
-
-
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Honor V Purse?
 
@@ -272,9 +290,17 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 **Pokémon Go Sun Stone evolutions** can improve your entire in-game experience, so learn all about them below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1. What Are Sun Stones in Pokémon Go?
 
 ![sun stone and four pokémon](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
@@ -306,14 +332,8 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
@@ -374,8 +394,6 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
@@ -391,9 +409,6 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![set up mock location on your phone](https://images.wondershare.com/drfone/guide/vl-connect-android-3.png)
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
@@ -408,9 +423,6 @@ Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on 
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -423,9 +435,24 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-peeling-away-at-sharex-comparative-views-and-substitutes/"><u>[Updated] In 2024, Peeling Away at ShareX Comparative Views & Substitutes</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-peak-level-hd-mastery-in-the-markets-top-recorders-for-2024/"><u>[Updated] Peak-Level HD Mastery in the Market's Top Recorders for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-access-unlimited-ringtones-our-top-4-online-spots/"><u>2024 Approved Access Unlimited Ringtones Our Top 4 Online Spots</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://win-community.techidaily.com/asian-equity-markets-surge-as-china-implements-favorable-stamp-duty-policies-early-trading-shows-positive-movement-with-singapore-stocks-climbing-by-105-ami4/"><u>Asian Equity Markets Surge as China Implements Favorable Stamp Duty Policies; Early Trading Shows Positive Movement, with Singapore Stocks Climbing by 1.05% Amidst Anticipation of US Jobs and Inflation Figures - YL Computing Insights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-videos-best-music-dance-and-responses-23-for-2024/"><u>Hot YT Videos Best Music Dance & Responses '23 for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-se-2020-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock iPhone SE (2020) Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-essence-of-style-in-ae-title-design/"><u>In 2024, The Essence of Style in AE Title Design</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-10-innovative-gloves-for-virtual-immersion/"><u>In 2024, Top 10 Innovative Gloves for Virtual Immersion</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-to-developing-custom-gpt-for-enhanced-personalized-interactions/"><u>Step-by-Step Guide to Developing Custom GPT for Enhanced Personalized Interactions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Realme GT 3 | Dr.fone</u></a></li>
+</ul></div>
 

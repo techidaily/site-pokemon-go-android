@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Realme 12 Pro 5G? | Dr.fone
-date: 2025-01-31T00:11:08.433Z
-updated: 2025-01-31T17:49:51.821Z
+date: 2025-02-12T23:43:43.885Z
+updated: 2025-02-14T21:28:32.274Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -55,15 +55,15 @@ Firstly, you can just connect your iOS device to the computer and launch Dr.Fone
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Spoof your iPhone Location to Anywhere you want**
 
 Once your iPhone is connected, its present location would automatically be displayed on the screen. To spoof the Pokemon Go location on iOS, select the “Teleport Mode” option and enter the target location’s address/name/coordinates on the search bar.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
@@ -79,13 +79,13 @@ Afterward, you can enter the number of times you want to cover the route and eve
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Video Guide:** Teleport to anywhere in the world!
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/FfhgWxnARqo" id="video-iframe-t"></iframe>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3.2 Use a Pokemon Go Joystick APK for Android Devices
 
@@ -114,7 +114,7 @@ You can further visit the GPS Joystick settings to set up preferred walking, jog
 ![GPS Joystick Set Speed](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Start simulating the movement on your Android**
@@ -124,7 +124,7 @@ That’s it! Now, you can just view the GPS Joystick on the map with relevant op
 ![GPS Joystick Android](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3.3 Pokemon Go Joystick Hack for Rooted Android Phones
@@ -144,10 +144,6 @@ You can now launch the application and go to its Settings to enable the Root Mod
 Great! Now, you can just launch the FGL Pro app on your phone and tap on the search icon to look for the target location. You can now adjust the location on the map and tap on the Start icon. There will be a GPS joystick location on the map that would let you simulate your movement accordingly on the map.
 
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
 
@@ -184,10 +180,6 @@ The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glow
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
 Depending on the specific Pokémon you want to evolve, you might need additional items or even need to perform a particular task. Some Pokémon will need to be walked as your Buddy Pokémon before they can evolve. Others can be evolved through trading them. Others can only evolve with the help of evolution items like the Sun Stone.
@@ -195,10 +187,6 @@ Depending on the specific Pokémon you want to evolve, you might need additional
 Pokémon Sun Stone evolutions will require you to collect the Sun Stone and a certain amount of candy (which can vary by Pokémon).
 
 You can always check out how to evolve your Pokémon in your Pokédex.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
@@ -220,17 +208,9 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
 
 Fortunately, for all those unlucky ones, you can acquire the Sun Stone to complete your Pokémon evolutions in a few different ways.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Special Events
 
@@ -252,6 +232,10 @@ Among the different types of research the professor sends you is field research.
 
 As you’re completing your field research tasks, you can collect your rewards, earn stamps, and unlock breakthroughs. Hopefully, one of the rewards you receive will include the Sun Stone, allowing you to evolve some of your Pokémon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Special Research
 
 With field research, you have some flexibility. You can visit PokéStops when you’re up for them, and you can even discard some tasks if they’re too difficult for you. With special research, you don’t have all that much flexibility.
@@ -259,10 +243,6 @@ With field research, you have some flexibility. You can visit PokéStops when yo
 Professor Willow will contact you directly and give you specific tasks you must complete. You can’t disregard or discard them.
 
 As a rule, special research will be more involved and will likely last longer than field research. However, your rewards will usually be much more valuable, and you’ll exponentially increase your chances of obtaining a Sun Stone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Gyms and PokeStops
 
@@ -301,6 +281,10 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 ![choose the Realme 12 Pro 5G device you want to connect to dr.fone](https://images.wondershare.com/drfone/guide/vl-connect-android-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6. On your phone, tap **Allow USB Debugging**;
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
@@ -315,6 +299,10 @@ Finally, to start getting Sun Stones and other rarer items more efficiently, you
 
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
@@ -324,6 +312,10 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 iSpoofer is a location spoofer that allows you to change your location on your device. This is useful for games like Pokemon Go, where you can catch Pokemons from different regions without leaving your home. However, iSpoofer is not available for download anymore. If you are looking for an alternative to iSpoofer, you can use Dr.Fone Virtual Location. Here's how you can use Dr.Fone Virtual Location to spoof your location on your Realme 12 Pro 5G.
 
 [![avatar](https://drfone.wondershare.com/images/alice-mj.png)](https://drfone.wondershare.com/author/alice-mj/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 iSpoofer is one of the most useful tools for iOS users, that’s designed to simulate a user's GPS location. With iSpoofer, you can change your current location to anywhere in the world and access geo-restricted content without any hassle. While the tool has several real-world applications, the majority of users use iSpoofer to fake their location to catch rare Pokemon in Pokemon Go.
 
@@ -352,6 +344,10 @@ VMOS is an application that lets users set up a virtual machine on their Android
 
 ![vmos](https://images.wondershare.com/drfone/2020/202010/vmos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The only downside of using VMOS is that it’s extremely hard to set up and manage. First and foremost, you’ll need different tools to successfully set up the virtual OS on your device. Secondly, VMOS is heavy software and if your smartphone doesn’t have decent configurations, it may even slow down the overall processing.
 
 2. **Root Your Device**
@@ -363,6 +359,10 @@ Another way to fake location on Android is to root your device. Rooting an Andro
 PGSharp is one of the best alternatives to **iSpoofer for Android**. It’s a tweaked version of the original Pokemon Go app that comes with a few additional features such as spoofing and GPS Joystick. The best part about using PGSharp is that it’s compatible with all Android devices. You won’t have to root your device to install and run PGSharp.
 
 ![pgsharp](https://images.wondershare.com/drfone/2020/202010/pgsharp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can either choose the free or the paid version of the app. Of course, the latter comes with a few additional features, but if you only want to fake location in Pokemon Go, the free version of PGSharp will get the job done as well.
 
@@ -420,18 +420,14 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/escort-passport-reveals-innovative-long-range-traffic-monitors-that-are-good-for-your-wallet-and-safety/"><u>'Escort Passport Reveals': Innovative, Long Range Traffic Monitors that Are Good For Your Wallet and Safety</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-achieve-fluent-fb-video-posting-windows-linux-ios-and-android-tips/"><u>[Updated] Achieve Fluent FB Video Posting Windows, Linux, iOS & Android Tips</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-how-to-embellish-videos-with-melodies-on-iphone-three-free-ways/"><u>[Updated] How to Embellish Videos with Melodies on iPhone – Three Free Ways</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unlocking-the-full-potential-of-iphones-hdr-capabilities/"><u>[Updated] Unlocking the Full Potential of iPhone's HDR Capabilities</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/can-you-use-windows-defender-alongside-additional-antivirus-programs-exploring-compatibility-yl-computing/"><u>Can You Use Windows Defender Alongside Additional Antivirus Programs? Exploring Compatibility - YL Computing</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/cutting-edge-tips-for-android-time-lapse-capture-mastery-2024/"><u>Cutting-Edge Tips for Android Time-Lapse Capture Mastery 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco M6 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Play 7T? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-c55-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unravel-the-mysteries-of-youtube-metrics-for-growth/"><u>[New] 2024 Approved Unravel the Mysteries of YouTube Metrics for Growth</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-unmatched-closure-in-cyberspace-quest-for-2024/"><u>[New] Unmatched Closure in Cyberspace Quest for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhance-visibility-on-yt-key-aspects-of-channel-art-and-banner-size/"><u>[Updated] 2024 Approved Enhance Visibility on YT Key Aspects of Channel Art & Banner Size</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco M6 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-look-at-the-tp-link-archer-c9-best-budget-wifi-solution/"><u>In-Depth Look at the TP-Link Archer C9: Best Budget WiFi Solution</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unmatched-savings-alert-how-this-superior-windows-ultrabook-surpasses-the-macbook-air-and-is-currently-on-sale-exclusive-tips-from-zdnet/"><u>Unmatched Savings Alert: How This Superior Windows Ultrabook Surpasses the MacBook Air & Is Currently on Sale | Exclusive Tips From ZDNet</u></a></li>
 </ul></div>
 

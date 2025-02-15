@@ -1,7 +1,7 @@
 ---
 title: Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 12+ 5G | Dr.fone
-date: 2025-01-25T00:11:02.694Z
-updated: 2025-01-31T23:23:12.697Z
+date: 2025-02-10T19:06:17.455Z
+updated: 2025-02-14T23:48:17.595Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -33,6 +33,10 @@ Reportedly, you are required to have the mobile version of Home connected to you
 
 ![pokemon settings](https://drfone.wondershare.com/2020/pokemon-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Click ‘Sign In’ in your Nintendo Account. A pop up will appear asking for permission to sign in to 'nintendo.com,' pressing “Continue” will redirect to the website to log in.
 
 ![sign in to your account](https://drfone.wondershare.com/2020/sign-in-to-your-account.jpg)
@@ -42,7 +46,7 @@ Reportedly, you are required to have the mobile version of Home connected to you
 ![](https://drfone.wondershare.com/2020/enter-your-password.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 On execution of the above instructions, follow the directions below to move a Pokémon Go creature to Home App:-   Open Pokémon Go and access the ‘Main Menu’ by pressing the PokeBall icon.
@@ -53,10 +57,6 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![open settings](https://drfone.wondershare.com/2020/open-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Press on ‘Send Pokémon’
 
 ![click on send pokemon](https://drfone.wondershare.com/2020/click-on-send-pokemon.jpg)
@@ -64,10 +64,6 @@ On execution of the above instructions, follow the directions below to move a Po
 - Press Continue
 
 ![press continue button](https://drfone.wondershare.com/2020/press-continue-button.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - Select the Pokémon you want to relocate
 - Click ‘Next’
@@ -99,10 +95,6 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![confirm your pokemon](https://drfone.wondershare.com/2020/confirm-your-pokemon.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 By following the steps above, you will be awarded a Mystery Box in Pokémon Go, and you can activate it by advancing to your item bag.
 
 ### Use Virtual Location to catch the Pokémon Go creature
@@ -121,6 +113,10 @@ Subsequently, connect your PC or laptop with the Dr. Fone application. Also, per
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Imitate your GPS position:**
 
 Select your current location on the map. Next, click the leftmost button on the top-right corner of the window to start the ‘Teleport’ mode. Then search the places you wish to mock your position with, and press ‘Go’ after the selection.
@@ -133,19 +129,11 @@ To start the simulation, make a movement and traverse to the ‘Move Here’ but
 
 ![virtual location 9](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The simulated position will emerge as genuine for the Pokémon Go app, and it will believe that you are moving between the two designated positions chosen on the Dr. Fone GUI screen. At the foot of the screen, the motion speed can also be tuned using the sliding menu. This way, you can use the false maneuver of the position of Dr. Virtual Fone without having the need to understand it. Also, your application will not be banned.
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5: Movement Simulation between more than two spots:**
 
@@ -155,10 +143,6 @@ To grant permission to the system to mock movement by picking out the right opti
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to get Shiny Meltan in Pokémon Go?
 
 Meltan is a legendary steel-type Pokémon that was initially launched in Pokémon Go. It is original since each and every other Pokémon has been announced in either the main games or using the Pokémon animation. Meltan has very restricted accessibility and Meltan evolution, Melmetal can yet solely be evolved in Pokémon Go. Until now, there were only two ways of catching Meltan - transferring a Pokémon from Pokémon Go to Pokémon Home or associating your Pokémon Go account to Let's Go, Pikachu! or Let's Go, Eevee! Now there is another way of capturing Meltan, that is, by opening a mystery box. You can get a Mystery Box that opens once a week by connecting your ‘Pokémon Go’ and ‘Pokémon Home’ accounts as described earlier.
@@ -166,10 +150,6 @@ Meltan is a legendary steel-type Pokémon that was initially launched in Pokémo
 The Mystery Box will act as an essence precisely for Meltan, attracting a large amount of the small Hex Nut Pokémon to your locality for one hour. It takes time to recharge, about three days, but after it is charged, you have to transfer another Pokémon to HOME to be able to use it again for an hour. If you get to use the Mystery Box in the course of specific events, you can even grab a Shiny Meltan.
 
 ![pokemon home vs pokemon go](https://drfone.wondershare.com/2020/pokemon-home-vs-pokemon-go.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -351,12 +331,20 @@ Please note that the use of any location spoofing or Pokemon Go hack (joystick) 
 
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
 
 Out of all the Pokemon Go joystick and location spoofing solutions, I would recommend trying the following tools.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3.1 Pokemon Go Joystick for iOS (No Jailbreak Needed)
@@ -380,6 +368,10 @@ Once your iPhone is connected, its present location would automatically be displ
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Simulate the iPhone Movement with a joystick**
 
@@ -421,6 +413,10 @@ You can further visit the GPS Joystick settings to set up preferred walking, jog
 
 ![GPS Joystick Set Speed](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Start simulating the movement on your Android**
 
 That’s it! Now, you can just view the GPS Joystick on the map with relevant options. You can start/stop the simulation as per your requirements and even directly enter the coordinates to fake GPS on Pokemon Go.
@@ -446,7 +442,11 @@ Great! Now, you can just launch the FGL Pro app on your phone and tap on the sea
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
@@ -478,20 +478,17 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-effective-strategies-for-archiving-vimeo-footage/"><u>[New] 2024 Approved Effective Strategies for Archiving Vimeo Footage</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exposed-the-hazards-of-fake-follower-purchases-on-youtube/"><u>[New] 2024 Approved Exposed The Hazards of Fake Follower Purchases on YouTube</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-tailoring-your-streaming-experience-on-macos-via-mixer/"><u>[New] Tailoring Your Streaming Experience on macOS via Mixer</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-innovation-unveiled-5-cutting-edge-webcams-with-sound-tech/"><u>[Updated] Innovation Unveiled 5 Cutting-Edge Webcams With Sound Tech</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-zte-nubia-z60-ultra-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General ZTE Nubia Z60 Ultra Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-poco-c50-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Poco C50? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-motorola-g54-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Motorola G54 5G Is Unlocked</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-vivo-s17t-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Vivo S17t</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/ultimate-guide-to-the-finest-airtag-wallets-of-2024-expert-opinions-zdnet/"><u>Ultimate Guide to the Finest AirTag Wallets of 2024: Expert Opinions | ZDNET</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Tecno Spark 20? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-essential-guide-to-crafting-dynamic-snaps/"><u>[Updated] In 2024, The Essential Guide to Crafting Dynamic Snaps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-professional-photography-hacks-perfecting-motion-blur-with-adobe-tools-for-2024/"><u>[Updated] Professional Photography Hacks Perfecting Motion Blur with Adobe Tools for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-pruveeo-fhd-dashcam-top-rated-1080p-action-cameras-for-your-car/"><u>Affordable Pruveeo FHD Dashcam - Top Rated 1080P Action Cameras for Your Car</u></a></li>
+<li><a href="https://win-news.techidaily.com/expert-tips-for-diagnosing-and-fixing-vga-issues-under-windows-os-by-yl-software/"><u>Expert Tips for Diagnosing and Fixing VGA Issues Under Windows OS by YL Software</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/from-burned-pasta-to-flavorful-fun-an-engaging-overcooked-2-reaction/"><u>From Burned Pasta to Flavorful Fun: An Engaging Overcooked! 2 Reaction</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-honor-90-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Honor 90 Location | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/next-level-audio-logitech-g-pro-x-experience/"><u>Next Level Audio: Logitech G Pro X Experience</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Google Pixel Fold | Dr.fone</u></a></li>
 </ul></div>
 

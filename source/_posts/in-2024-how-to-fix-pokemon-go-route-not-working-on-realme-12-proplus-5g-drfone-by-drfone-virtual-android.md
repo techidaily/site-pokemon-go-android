@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Fix Pokemon Go Route Not Working On Realme 12 Pro+ 5G? | Dr.fone
-date: 2025-01-25T16:41:49.161Z
-updated: 2025-01-31T21:11:23.183Z
+date: 2025-02-08T01:30:42.187Z
+updated: 2025-02-14T23:26:36.447Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,10 +21,6 @@ However, it’s perhaps safe to say that Pokemon Go Routes is still far from per
 
 In this article, we will discuss how Pokemon Go Routes basically work. We will also talk about the main reasons why **Pokemon Go Routes is not showing up** sometimes. Lastly, we will provide some helpful tips to fix this kind of problem. Continue reading below to learn more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1. How Do Routes in Pokemon Go Work?
 
 The logic behind the Pokemon Go Routes is very simple. There are only two things you need to remember about it. First, you can record a walking path anywhere and submit it for review. Your Route will immediately appear on the Pokemon Go map once it receives approval from the game developer. Of course, the quality and safety of the Route must be checked thoroughly before it becomes available to the public. Another thing about the Route is that you can use it to discover and explore new walking paths near you. All you need to do is pick your preferred Route and finish the entire trail. Afterward, you can obtain special rewards and extra bonus points upon its completion.
@@ -35,6 +31,10 @@ Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how 
 - **Step 2:** On the map view, find and click the **Nearby** icon at the bottom-right corner of your screen.
 
 ![nearby option](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - **Step 3:** Then, click **Route.**
 
@@ -68,15 +68,7 @@ Pokemon Go Routes and most of the game’s main features require a reliable inte
 
 ![update pokemon go app](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-6.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Keep in mind that the Pokemon Go Routes is an additional game feature. That’s why you first need to update your existing Pokemon Go app before you can access it. The Routes is definitely not available to old versions of Pokemon Go mobile software.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The current software version of your smartphone is not compatible with the Pokemon Go Routes feature
 
@@ -111,23 +103,19 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Pokemon Go players must try the Routes and explore this feature. It’s indeed an incredible development that can certainly take your game experience to a whole new level. Is Pokemon Go Route not working on your end? Don’t worry. It’s not a big problem. Refer to the troubleshooting tips listed above. One of them can surely help you a lot in this regard. If you need a substitute for the Pokemon Go DeFit that’s not working on your smartphone, try [<u>Wondershare Dr.Fone.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It has a potent Virtual Location feature that is capable of simulating GPS movements needed in Pokemon Go. Download it for free.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Which Pokémon can Evolve with a Moon Stone For Realme 12 Pro+ 5G?
 
 Evolution items play a significant role in evolving certain species in the Pokémon game. Moon Stone is one of these peculiar items that are worth adding to your Pokedex. However, getting Moon Stone Pokémon is a tough assignment and you have to pull your best bells and whistles. However, there are several hacks and tricks that can reduce your hunting pain. In this article, we shall take you through a complete guide on Moon Stone Pokémon and evolutions.
 
 ## Part 1. Moon Stone Pokémon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is Moon Stone Pokémon?
 
@@ -141,10 +129,6 @@ The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to La
 
 Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Nidorina
 
 Nidorina is a poison type Pokémon that was introduced in Generation I. it looks like a rabbit with blue skin and dark spots around the body. Its natural abilities are poison point, rivalry, and hustle. As of level 16, Nidorona evolved from Nidoran. With the use of Moon Stone, Nidorina can evolve into Nidoqueen.
@@ -156,6 +140,10 @@ Nidorino is a male counterpart of Nidorina. This poison-type Pokémon debuted in
 ### 3\. Clefairy
 
 This is a fairy-type Pokémon that was introduced in Generation I. It is a small, round, and star-shaped Pokémon whose abilities include magic guard and cute charm. It is timid and rarely feature near humans. Clefairy evolves from Cleffa when it gets leveled up with high friendship. With the help of Moon Stone, Clefairy evolves into Clefable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Jigglypuff
 
@@ -170,16 +158,12 @@ This is a normal type Pokémon that was introduced in Generation II. This Pokém
 Munna is a psychic-type Pokémon that was introduced in Generation V. It is a small Pokémon with a pink round body having purple flower painting on its back. With the use of Moon Stone, Munna evolves into a Musharna.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2. Tricks and Hacks to Get Moon Stone Pokémon
 
 As you have seen above, getting a Moon Stone is not an easy ride. It involves lots of trials and there is no guarantee to get it. But what tricks and hacks can you incorporate to make your hunt seamless? The following are some of the plausible tricks that you can use to easily grab a Moon Stone and add it to your Pokedex.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Use Dr. Fone Virtual iOS Location
 
@@ -198,6 +182,10 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 **Step 3.** The program will display a new page with three icons at the top-right. Click the third icon to take you to the teleport mode. Again enter the place you want to teleport to in the text field at the top-left of this same window and then hit "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4.** Click "Move Here" from the pop-up that follows to teleport to the location you provided.
 
@@ -249,6 +237,10 @@ With your **Pokemon Go promo code**, you can redeem it to get insightful items s
 
 ![redeem pokemon go promo codes on Android](https://images.wondershare.com/drfone/article/2022/07/pokemon-go-promo-codes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 1. Get to the shop bar**
 
 Firstly, in the map view, click on the menu icon. It displays various options. Click on the shop button.
@@ -264,10 +256,6 @@ Click on the **‘Redeem’** icon.
 **iOS devices --**
 
 ![sign with facebook or gmail](https://images.wondershare.com/drfone/reedem-pokemon-on-ios.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 1. Log in to the Pokemon Go official website**
 
@@ -309,7 +297,7 @@ First, download Dr.Fone - Virtual location from their [<u>official website</u>](
 ![connect your phone and start to change location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Using a USB cable, connect your iPhone to your computer system. Hit the **‘Get started’** button to continue.
@@ -324,6 +312,10 @@ Here, you need to search for a suitable location that you would like to teleport
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Various options of places you would like to teleport to will be there on display. You can search for it using the search bar or select one from the displayed list and hit the **‘Go’** icon.
 
 **Step 5. Teleport to your chosen location**
@@ -331,6 +323,10 @@ Various options of places you would like to teleport to will be there on display
 For you to teleport to your chosen location, you need to drop a pin on your preferred place and hit the **‘Move Here’** icon. Now, you will be able to catch more Pokemon since you have already altered your location.
 
 ![ideal location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Android Phones --**
 
@@ -366,6 +362,10 @@ Go to your Fake GPS application and search for a preferred location. To initiate
 
 ![search and confirm your new location](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-fake-gps-android-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lastly, head back to your Pokemon Go app. There, you can see your new location cast.
 
 ### Conclusion
@@ -386,14 +386,24 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ne-connected-video-experience-joining-on-youtube/"><u>[New] One Connected Video Experience Joining on YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-premium-screen-recording-selections/"><u>2024 Approved Premium Screen Recording Selections</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/cultivating-intellect-over-copy-pasting-with-gpt/"><u>Cultivating Intellect Over Copy-Pasting with GPT</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-8-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 8 Without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Poco F5 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme V30? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/winning-against-dota-2s-crash-problem-top-solutions-for-uninterrupted-gaming/"><u>Winning Against Dota 2'S Crash Problem - Top Solutions for Uninterrupted Gaming</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-11-superior-sound-recording-tools-of-the-year/"><u>[New] 2024 Approved 11 Superior Sound Recording Tools of the Year</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-curating-the-best-video-game-openers-on-yt-no-money-max-impact/"><u>[New] In 2024, Curating the Best Video Game Openers on YT No Money, Max Impact?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ace-your-content-strategies-to-skyrocket-video-popularity/"><u>[Updated] Ace Your Content Strategies to Skyrocket Video Popularity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-joyful-views-essential-15-comical-youtubers-to-relax-with-for-2024/"><u>[Updated] Joyful Views Essential 15 Comical YouTubers to Relax With for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/epson-l3150-printer-software-download-and-update-for-windows-11-8-and-7/"><u>Epson L3150 Printer Software Download & Update for Windows 11, 8 & 7</u></a></li>
+<li><a href="https://fox-that.techidaily.com/experiencing-problems-with-iphones-home-button-try-these-five-fast-fixes-for-relief/"><u>Experiencing Problems with iPhone's Home Button? Try These Five Fast Fixes for Relief</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/fixed-non-responsive-epson-device/"><u>Fixed Non-Responsive Epson Device</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-strategic-hash-tags-to-launch-you-into-six-figures/"><u>In 2024, Strategic Hash Tags to Launch You Into Six Figures</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-c53-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-c55-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-samsung-galaxy-m34-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Samsung Galaxy M34 5G Phone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unlock-creative-potential-with-10-best-backdrop-modification-software-for-2024/"><u>Unlock Creative Potential with 10 Best Backdrop Modification Software for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

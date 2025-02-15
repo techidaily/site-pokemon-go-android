@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme 12+ 5G | Dr.fone
-date: 2025-01-24T16:07:29.382Z
-updated: 2025-01-31T23:32:28.980Z
+date: 2025-02-09T21:27:29.780Z
+updated: 2025-02-14T23:50:21.196Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -38,6 +38,10 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 **_Step 3:_**  On the screen, they will show your current location.
 
 ![locate yourself](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **_Step 4:_** To go to another location, you can click on “Teleport Mode” which is the 1st icon on the upper right and you can type the place you want to go to. If you want to [simulate GPS movement in AR games](https://drfone.wondershare.com/virtual-location/fake-gps-run.html), you can also choose the "Multi-Stop Mode".
 
@@ -151,15 +155,7 @@ If you love going for walks, then The Walk is the game that you should try to el
 
 ![the walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.thewalk2&hl=en&gl=US) _
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _4\. Minecraft Earth_
 
@@ -168,6 +164,10 @@ If you have played Minecraft or just have the knack for creating worlds, then yo
 ![minecraft earth](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-11.jpg)
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE) _
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Pikmin Bloom
 
@@ -192,6 +192,10 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 
 ![ingress prime](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US) _
 - _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181) _
 
@@ -206,20 +210,20 @@ Pokemon Go is a popular game that has taken the world by storm. It is an augment
 Pokémon Go has been on the nerves of its players and this is all because of the AR notion that it presents. The failed to detect location 12 is one of the most common errors that are faced by the players while playing this game. You might not believe but the GPS signals and the location settings on iPhone or Android are the two main reasons for this error. It can be resolved with ease and this article has been written to get the work done with ease. Applying the methods explained will ensure that you get the best results overall.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why is Location Important in Pokémon Go?
 
 The best part of this game is that it has been compiled keeping in view the location mechanics. The location analytics of the game has made sure that it becomes the overnight sensation. Three main attributes are associated with the location framework of the game. These attributes also show how important the location is for the game. Understanding these attributes will also make sure that the user can overcome the errors such as failed to detect location 12 GPS joystick 2019.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### i. Physical World Attribute
 
 The best part of this attribute is that it is the center of the user experience of the game. The second part is the fact that this map has evolved and there are no shortcuts to its success. Ingress was the previous game that was developed by Niantic and the crowdsourcing of this map started with the evolution of this application. This was developed by the same team that is working on the core of Google Earth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### ii. Real World Gestures
 
@@ -230,7 +234,7 @@ The augmented reality is another important aspect that is related to Pokemon Go 
 The system within the system that has been designed by the game developers makes sure that the location inaccuracies are accounted for. This also means that the 4-meter accuracy of the GPS is further enhanced to deal with the perfect location identification of each player.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Ways to Fix Error 12 on Pokémon Go
@@ -269,10 +273,6 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3: Reboot the Realme 12+ 5G device
 
 This might seems weird but this trick has been working to quiet some time now and has been proven to eliminate the failed location 12 Pokémon Go issue. There is a possibility that the server location is not synced with the Realme 12+ 5G device. Restarting the Realme 12+ 5G device will make sure that both the locations are sync and the problem is resolved with ease.
@@ -281,19 +281,11 @@ Just long-press the power button and choose the reboot option from the menu that
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The Process
 
@@ -314,10 +306,6 @@ Connect your iPhone and enable virtual location from the options of the program.
 The center on the button on the next screen is to be clicked to get the accurate location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Teleportation**
 
@@ -344,6 +332,10 @@ The location will be locked by the program and your iPhone will also show the sa
 ## Additional Tips About Sinnoh Stone For Realme 12+ 5G
 
 Sinnoh Stones are similar to other evolutionary items found in Pokemon Go, like Metal Coat, Dragon Scale, and Sun Stones. Pokemon Go's Sinnoh Stone is a rare evolution item enabling you to upgrade existing creatures into Gen 4 versions. It is extremely exciting to see your favorite Pokemon's being upgraded, also making the best Pokemons of the game more powerful. The Pokemon Go Sinnoh Stone evolution list is also provided in the guide, which contains 18 Sinnoh Stone Evolutions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Understanding the idea of Pokemon Go Sinnoh Stone
 
@@ -386,19 +378,23 @@ Pokemon Go can be played by using the toolkit of Dr. Fone without shifting. Open
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can press the Get Started" button to start the process upon phone detection.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Imitating Movement between steps:**
 
 Open the first choice located in the top-right corner until you enter Dr.Fone's GUI, which helps you to fake movement between the two locations. Select the location pin found in the search bar and press the "Move Here" button.
 
 ![virtual location 8](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You want to make a motion, and navigate to the "March" button to start the simulation, enter the magnitude of times. By default, the movement is set to one, but the user can override it, and the application will move accordingly.
 
@@ -417,6 +413,10 @@ The application by Dr.Fone also helps you to mock movement between more than two
 Click the 'March' button to allow the system to simulate motion by selecting the correct options. You'll have to do the Pokémon Go walking trick at some point. The virtual motion simulation software for Dr. Fone makes your life easier and helps you to do the job without thinking about travel costs.
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Essential Requirement and Evolving Pokémon's Using Sinnoh Stone
 
@@ -440,20 +440,19 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-achieving-auditory-perfection-top-tips-for-quality-audio/"><u>[Updated] 2024 Approved Achieving Auditory Perfection Top Tips for Quality Audio</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-deciding-between-ultrawide-and-uhd-4k-monitors/"><u>[Updated] 2024 Approved Deciding Between UltraWide and UHD 4K Monitors</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-nextupcameras-venturing-past-mycam/"><u>[Updated] In 2024, NextUpCameras Venturing Past MyCam</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/acer-chromebook-516g-evo-premium-performance-in-a-budget-device-techspot/"><u>Acer Chromebook 516G EVO - Premium Performance in a Budget Device | TechSpot</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/crash-free-gaming-fixes-for-star-citizens-windows-compatibility-issues/"><u>Crash-Free Gaming: Fixes for Star Citizen's Windows Compatibility Issues</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exploring-the-history-of-netflixs-original-dvd-subscription-service/"><u>Exploring the History of Netflix's Original DVD Subscription Service</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor Magic 6 Lite? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-15-pro-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone 15 Pro Prevention & Solution</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/troubleshooting-and-repairing-windows-device-drivers-with-guidance-by-yl-software-experts/"><u>Troubleshooting and Repairing Windows Device Drivers with Guidance by YL Software Experts</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-11-pro-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-seamlessly-explore-facebooks-past-content/"><u>[New] Seamlessly Explore Facebook's Past Content</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-superior-practices-for-mute-videography/"><u>[Updated] 2024 Approved Superior Practices for Mute Videography</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exclusive-youtube-snippet-access-high-quality-free-download-in-2024/"><u>[Updated] Exclusive YouTube Snippet Access - High Quality, Free Download, In 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-superior-budget-friendly-cam-viewer/"><u>[Updated] Superior Budget-Friendly Cam Viewer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-quick-clip-quandary-youtube-shorts-advantage-over-tiktok-for-2024/"><u>[Updated] The Quick-Clip Quandary YouTube Shorts' Advantage Over TikTok for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-update-your-ryzen-cpu-with-newest-drivers/"><u>How to Update Your Ryzen CPU with Newest Drivers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-5-exceptional-online-video-editing-tools-for-youtube-creators/"><u>Top 5 Exceptional Online Video Editing Tools for Youtube Creators</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-get-steady-expert-tips-for-video-stabilization-in-fcpx/"><u>Updated 2024 Approved Get Steady Expert Tips for Video Stabilization in FCPX</u></a></li>
 </ul></div>
 

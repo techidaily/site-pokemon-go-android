@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Honor Magic Vs 2? | Dr.fone
-date: 2024-07-14T09:08:23.798Z
-updated: 2024-07-15T09:08:23.798Z
+date: 2025-02-11T21:43:33.284Z
+updated: 2025-02-15T00:58:40.472Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -33,9 +33,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **2\. Uxie:** Found in found in Acuity Cavern in the middle of Lake Acuity, Uxie is one of the three legendary Pokemon scattered around Sinnoh after you have battled and qwelled Giratina. The Level 50 Pokemon is reachable by walking or riding up without any fear of attack. This is one of the popular platinum legendaries.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 3](https://images.wondershare.com/drfone/Platinum-legendaries-3.png)
 
 **3\. Azelf:** Located in Valor Cavern, in the middle of Lake Valor, Azelf is the Blue Pokemon in the trio. The Level 50 Pokemon does not attack you as you walk or ride up to it. Spray Super Repels as you move towards the Pokemon and surf onto the rocky island housing a cave to catch it.
@@ -46,10 +43,11 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
@@ -69,6 +67,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
 **15\. Registeel:** Located in the Iron Ruins cave on Iron Island, Registeel is accessible only if you have Regigigas on your team. Enter the cave with a Metal Coat, and as you go up to the statue in the cave, Registeel – the level 30 Pokemon – will attack.
@@ -80,6 +82,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
@@ -109,9 +115,17 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
@@ -123,11 +137,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -141,8 +150,6 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
-
-
 
 ## Additional Tips About Sinnoh Stone For Honor Magic Vs 2
 
@@ -189,6 +196,10 @@ Pokemon Go can be played by using the toolkit of Dr. Fone without shifting. Open
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can press the Get Started" button to start the process upon phone detection.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -202,6 +213,10 @@ Open the first choice located in the top-right corner until you enter Dr.Fone's 
 You want to make a motion, and navigate to the "March" button to start the simulation, enter the magnitude of times. By default, the movement is set to one, but the user can override it, and the application will move accordingly.
 
 ![virtual location 9](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For the Pokemon Go application, the new position will appear as real and will presume that you are walking between the two selected locations you have selected on the Dr. Fone screen. The walking pace can also be changed at the bottom of the screen using the sliding menu. This way, without knowing it, you can use the fake movement of the desired position, and your application will not be prohibited.
 
@@ -225,8 +240,6 @@ Only the trainers above the 10th Level have access to acquire Sinnoh Stone. The 
 
 Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting you evolve your favorite Pokemon and keep them throughout your journey in the game. Dr.Fone's virtual application lets you find them with ease without any real movement on your part and helps you enjoy the game to the fullest.
 
-
-
 ## List of Pokémon Go Joysticks On Honor Magic Vs 2
 
 Today, Pokémon Go has evolved into the utmost augmented reality smartphone games, thanks to its excellent user experience. You might have exhausted all the Pokémon in your location or wish to collect Pokémon far from your geographic area. Although, having a reliable Pokémon Go joystick can be laborious as there are more similar apps.
@@ -234,6 +247,10 @@ Today, Pokémon Go has evolved into the utmost augmented reality smartphone game
 A Pokémon Go joystick lets you visit more places or teleport to any place worldwide while seated at home. Many Pokémon players use a GPS joystick Pokémon Go to alter their locations and visit different areas from their comfort to explore their collectibles. I have listed some of the best options for Pokémon Go joystick android, and for iOS systems, you can try from the list. Take a look!
 
 ![find the lists of the best Joysticks for Pokemon](https://images.wondershare.com/drfone/pokemon-lists.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Dr.Fone – Virtual Location
 
@@ -258,9 +275,6 @@ Cons
 - Niantic banning after you fail to install the program correctly
 - Denying when you fail to enable the passenger mode during movements
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## 2\. GPS Joystick - Fake GPS Location
 
 ![GPS Joystic to fake GPS location](https://images.wondershare.com/drfone/gps-joystick.jpg)
@@ -283,6 +297,10 @@ Pros
 Cons
 
 - You cannot save locations
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Fake GPS Joystick
 
@@ -309,6 +327,10 @@ Cons
 ## 4\. Fly GPS (Android)
 
 ![Use either the fixed location mode or move location mode](https://images.wondershare.com/drfone/fly-gps-joystick.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Android users also wish to enjoy Pokémon go at their comfort. The Fly GPS joystick Pokémon Go app is a reliable option for GPS spoofing. You can easily fake your location to another location along with several tweaks to make others, and the Niantic believe your movements and location.
 
@@ -356,9 +378,6 @@ Cons
 
 ## 6\. iPogo Joystick
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Use iPogos to fake gps location.](https://images.wondershare.com/drfone/ipogo-joystick.jpg)
 
 The iPogo Pokémon Go joystick apk is almost at par with the Dr.Fone AnyGo joystick. This app has nearly all the features present on the AnyGO app. The app is available for iOS users, and to use it; you can download it from the official iPogo website. Download and install the app on your system, and you are ready to go. Here are some of its features:
@@ -383,7 +402,6 @@ Cons
 
 Playing Pokémon GO from the comfort of your home is what one wants, especially during this pandemic period. Different Pokémon Go joystick apk helps spoof locations and create a better gaming experience. The listed apps above can be used for either android or iOS systems, depending on your needs. Always use these apps carefully to avoid falling into legal actions or ban from Niantic. Use the apps wisely to make your gaming better from your home.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -396,9 +414,23 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-transforming-views-to-interactions-a-telegram-strategy-guide/"><u>[New] Transforming Views to Interactions A Telegram Strategy Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-chuckle-champions-twitters-comedy-corner-for-2024/"><u>[Updated] Chuckle-Champions Twitter’s Comedy Corner for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-inquiring-into-the-benefit-of-verified-online-self-portraits-for-2024/"><u>[Updated] Inquiring Into the Benefit of Verified Online Self-Portraits for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-snapchat-entrepreneurs-handbook-for-profitability-for-2024/"><u>[Updated] The Snapchat Entrepreneur's Handbook for Profitability for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automatisches-datensicherungssystem-fur-usb-flash-laufwerke-beim-einschliessen-unkompliziert-und-effizient/"><u>Automatisches Datensicherungssystem Für USB-Flash-Laufwerke Beim Einschließen: Unkompliziert Und Effizient</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-bose-quietcontrol-30-sound/"><u>The Verdict on Bose QuietControl 30 Sound</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-oppo-find-x7-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Oppo Find X7 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-premiere-or-after-effects-choosing-the-right-tool-for-your-video-project-for-2024/"><u>Updated Premiere or After Effects Choosing the Right Tool for Your Video Project for 2024</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-your-hardware-drivers-with-windows-device-manager-in-windows-10-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning your hardware drivers with Windows Device Manager in Windows 10</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Honor Play 8T? | Dr.fone
-date: 2024-07-14T09:09:38.332Z
-updated: 2024-07-15T09:09:38.332Z
+date: 2025-02-10T01:01:46.408Z
+updated: 2025-02-14T17:03:05.059Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,6 +24,10 @@ Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield
 A Shiny Stone is an item in Pokémon Go that is used to evolve certain Pokémon. Shiny Stone was introduced in Generation IV and is no different from other evolution stones such as dusk stones, dawn stone, and ice stone, to mention but a few. The major differences could be their location as well as the type of Pokémon they help to evolve. You can identify this peculiar stone by its dazzling, shining light.
 
 ![shiny stone Pokémon](https://images.wondershare.com/drfone/2020/shiny-stone-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How and where to find a Shiny Stone evolution
 
@@ -65,6 +69,10 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4.** Click “Move Here” on the dialog box that pops up once the program finds the location.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -76,6 +84,10 @@ Pgsharp i8s an Android application that enables users to be fake their GPS locat
 ### 3\. Use a Drone
 
 Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A good example of a drone is DJI PantomDrone. When this drone is integrated with some smart software, you can easily control a phone that is attached to the drone. This way, you can sit at home while visiting gyms and pokestops.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3 Ways for Android Pokemon Go Spoofing On Honor Play 8T
 
@@ -101,6 +113,10 @@ A while back, Niantic realized that a lot of people are misusing the app by expl
 
 ![Pokemon Go spoofing risks](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: 3 Best Methods for Android Pokemon Go Spoofing
 
 As you can see, if you are using any unreliable Pokemon Go spoofing app on Android, then it can even get your account suspended. Not just that, it can also harm your device and make it vulnerable to security threats. To help you pick the best spoofing app for Pokemon Go Android, we have handpicked the 3 most secure options here. Let's explore these Pokemon Go spoofing solutions for Android in 2019.
@@ -118,6 +134,14 @@ Some of the Virtual Private Networks that I have tried are Express VPN, Nord VPN
 **Step 3.** Once the VPN has started working, it will automatically spoof your location. Now, launch Pokemon Go on the Honor Play 8T device again and access the new location.
 
 ![vpn for android](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3.2 Use Fake GPS Go
 
@@ -157,15 +181,15 @@ This is another fake GPS app that is available for free and can easily be used o
 
 There you go! After following this guide, you would be able to [spoof Pokemon Go](https://www.virtuallocation.com/pokemon-go/) on Android in three different ways. For your convenience, we have also included the risks of using any Pokemon Go spoofer for Android as well. As you can see, a VPN would be your best spoofing app for Pokemon Go Android due to its added security features. Though, you can also use Fake GPS Go app to do Pokemon Go spoofing on Android. Go ahead and give these solutions a try and feel free to share your tips about Pokemon Go spoofing in the comments as well!
 
-
-
-
-
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Play 8T
 
 There was a big craze that made a fuzz with game enthusiasts and fans alike back in 2016. This was the year when the game Pokémon Go was released to the public. For some players, this was a show that they grew up watching and having that built into a game where they, themselves, can also catch and collect creatures. People made sure that they downloaded it to their phone and went outside to catch their very own Pokémon creatures to collect and train. Even in 2023, Pokémon Go is still popular with around 333,000 active daily users.
 
 For some, Pokémon Go is probably not a game that piques their interest but wants similar games where you can also go to a location and play some challenge or game. Aside from the fact that it encourages people to walk or move, it also has game incentives that push the players to win the game. For those of you who want other games to play similar to Pokémon Go, we have searched the interest for the list and will share them with all of you so you can download and try which games will suit your interests more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: AR Games
 
@@ -181,9 +205,6 @@ _**Step 1:**_ Download Dr. Fone - Virtual Location on your computer.
 
 _**Step 2:**_ Open the program and you can connect your phone to your computer or laptop via USB. Then, you can click on “Get Started”.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![start the virtual location feature](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 **_Step 3:_**  On the screen, they will show your current location.
@@ -196,16 +217,10 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 **_Step 5:_** It will then take you to the place that you want, and you can click on “Move Here”.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![teleport to desired location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 **_Step 6:_** Finally, it will show you that chosen location that you typed and you can then check your current location on your phone which shows the same place.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![current location in program](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 **Here is a video for you to learn how to teleport your iPhone GPS location:**
@@ -217,13 +232,18 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 If you want a game like Pokémon Go but want a different storyline and characters, we will list down AR games that you can try to play yourself. In addition, you can check other similar AR games below.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 15\. The Walking Dead: Our World
 
 If you like zombie movies, this game is the right one to download. “The Walking Dead: Our World” is a game where you can play as a zombie hunter, explore the environment, and save the world. This game uses the player’s GPS location, where they release new challenges that can be found in your town or area. This game also allows users to play and shoot zombies with their friends or group where you can reap big rewards.
 
 ![the walking dead: our world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160) _
@@ -249,6 +269,10 @@ After Pokémon Go’s popularity, they created another game with a different sto
 If you have watched and loved watching the Jurassic Park movies and just love dinosaurs in general, then the game Jurassic World Alive is the perfect game for you to download. In this game, you explore your area to collect DNA samples of different dinosaurs and just see the dinosaurs roaming around your location. It is a unique game where you can play against your friends or even just experiment with different DNA samples and create your dinosaur.
 
 ![jurassic world alive](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.ludia.jw2&hl=en&gl=US) _
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/jurassic-world-alive/id1231085864) _
@@ -347,13 +371,9 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US) _
 - _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181) _
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 These are all the games that are similar to Pokémon Go and something that you can try on your own time to see the different concepts of how AR is integrated into this game. Though the games require you to walk and track your GPS, it will motivate you to move a little and get out of the room. If you are not keen on doing that, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), can also help you to virtually go to any place on the earth without having to get up from your couch. These games will surely entertain not only you but also the friends that you can play with.
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -367,9 +387,21 @@ These are all the games that are similar to Pokémon Go and something that you c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-essential-guide-using-inshot-for-laptop-video-editing/"><u>[Updated] 2024 Approved Essential Guide Using Inshot for Laptop Video Editing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-broadcasting-twitch-to-facebook-friends-easily-for-2024/"><u>[Updated] Broadcasting Twitch to Facebook Friends Easily for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-6-pro-rated-gopro-head-straps-and-mastering-usage/"><u>[Updated] In 2024, Top 6 Pro-Rated GoPro Head Straps & Mastering Usage</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-multiplatform-meeting-logistics-on-zoom-for-2024/"><u>[Updated] Mastering Multiplatform Meeting Logistics on Zoom for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-unblemished-visuals-a-buyers-ultimate-guide/"><u>2024 Approved Unblemished Visuals A Buyer's Ultimate Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-key-elements-for-compelling-facebook-ad-textual-content/"><u>In 2024, Key Elements for Compelling Facebook Ad Textual Content</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-htc-u23-pro-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your HTC U23 Pro</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Poco X5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-nokia-105-classic-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Nokia 105 Classic</u></a></li>
+</ul></div>
 
