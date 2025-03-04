@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Honor Magic V2 | Dr.fone
-date: 2024-07-14T09:00:09.393Z
-updated: 2024-07-15T09:00:09.393Z
+date: 2025-02-26T08:32:12.775Z
+updated: 2025-03-04T00:19:30.106Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,9 +25,6 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
@@ -54,9 +51,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -146,9 +140,6 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Voila! You have teleported your location to the desired place.
@@ -157,15 +148,9 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
-
-
 
 ## What is the best Pokemon for pokemon pvp ranking On Honor Magic V2?
 
@@ -242,8 +227,6 @@ Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check o
 
 It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on how well you prepare. That’s why you should catch as many strong Pokemon as possible beforehand. Sure. Catching Pokemon in the wild is not as easy as falling off a log. You have to travel a distance and wander aimlessly until you come across your target. But did you know that there’s actually a tool that can help you do all this stuff without going outdoors? Yes. Wondershare Dr.Fone has a potent Virtual Location feature capable of modifying your current whereabouts and simulating GPS movements. Do you want to try it out? Here’s a short guide to get you started.
 
-
-
 - **Step 1:** Download Wondershare Dr.Fone from its [<u>official website. </u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) Right after, install it on your computer.
 - **Step 2:** Open the newly installed application on your desktop. Once it fully loads up, connect your smartphone using a data cable. Follow the on-screen instructions to ensure the connection between the two devices is strong and reliable.
 - **Step 3:** Head over to the left-side panel and then click **Toolbox.** On the main dashboard, click **Virtual Location.** Let Wondershare Dr.Fone download additional resources if it’s your first time accessing this feature.
@@ -262,8 +245,6 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 ## Conclusion
 
 Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players who just want to have fun. That’s totally fine. Pokemon Go surely has in store for them that don’t require trainer battles. But if you’re among the players who wish to go the extra mile, try the Pokemon Go PvP rank games. Read the discussions above because it can help you get started with the Go Battle League. Work your way up as you go along throughout the season. For preparations, download [<u>Wondershare Dr.Fone.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It offers a powerful Virtual Location feature capable of simulating GPS movements needed when catching Pokemon. Try it out and take advantage of its wonderful benefits.
-
-
 
 ## Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Magic V2
 
@@ -304,9 +285,6 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 
 This has to be the most important thing that you should check before you start any Pokemon Go PvP battle. Right before starting the battle, you can check a list of the prospective opponents in your league. You can have a glimpse of their main Pokemons and pick your Pokemons accordingly so that you can counter their picks.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![opponent screen pokemon pvp](https://images.wondershare.com/drfone/2020/opponent-screen-pokemon-pvp.jpg)
 
 ### Tip 4: Know the current Meta
@@ -365,9 +343,6 @@ Presently, some attacks like thunderbolt are considered extremely strong in PoGo
 
 Most importantly, you should be aware of the defense, attack, IV, CP, and all the vital stats of your Pokemons to pick the best ones in the league of your choice. Besides that, you should also do some research about the Meta tier in Pokemon PvP to know the best picks of the present time.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![meta pokemons in pvp](https://images.wondershare.com/drfone/2020/meta-pokemons-in-pvp.jpg)
 
 Most of the experts consider the following points while picking any Pokemon in PvP battles.
@@ -410,7 +385,6 @@ Switching is another strategic account in the new mechanism of Pokemon PvP battl
 
 There you go! I’m sure that after reading this post, you would be able to know every important thing about PvP Poke battles. From the meta Pokemons for PvP battles to essential mechanisms, I have listed it all in this guide. Now, it is time for you to implement these tips and become a Pokemon Go PvP champion in no time!
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -423,9 +397,26 @@ There you go! I’m sure that after reading this post, you would be able to know
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-top-tips-for-creating-instagrammable-unboxing-highlights/"><u>[New] Top Tips for Creating Instagrammable Unboxing Highlights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-harness-high-quality-banners-free-for-content-developers/"><u>[Updated] 2024 Approved Harness High-Quality Banners – Free for Content Developers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-perfecting-iphone-timelapse-techniques-for-2024/"><u>[Updated] Perfecting iPhone Timelapse Techniques for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-poco-c50-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-honor-70-lite-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Honor 70 Lite 5Gwith/without a PC</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-clean-a-flat-screen-tv/"><u>How to Clean a Flat Screen TV</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-expert-guide-to-instagram-data-decoding-and-actionable-strategies/"><u>In 2024, Expert Guide to Instagram Data Decoding and Actionable Strategies</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-igtv-video-downloads-on-windows-and-mac-top-5-methods/"><u>In 2024, Mastering IGTV Video Downloads on Windows & Mac Top 5 Methods</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/perfect-habits-to-embrace-with-podcasts-playing-for-2024/"><u>Perfect Habits to Embrace with Podcasts Playing for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/top-clonezsoft-pour-ameliorer-lefficacite-du-raid-guide-complet/"><u>Top ClonezSoft Pour Améliorer L'Efficacité Du RAID : Guide Complet</u></a></li>
+<li><a href="https://extra-information.techidaily.com/understanding-the-basics-of-motion-design/"><u>Understanding the Basics of Motion Design</u></a></li>
+</ul></div>
 
